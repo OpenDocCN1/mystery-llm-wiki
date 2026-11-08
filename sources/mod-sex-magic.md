@@ -1,3 +1,10 @@
+---
+compiled: true
+pages:
+- 性魔法定理.md
+- 性魔法秘史.md
+- 现代性魔法.md
+---
 # 现代性魔法
 
 Modern Sex Magic
