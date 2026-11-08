@@ -1,3 +1,9 @@
+---
+compiled: true
+pages:
+- EFT十大情绪排毒.md
+- EFT情绪释放技巧.md
+---
 
 # EFT 情绪疗愈
 
