@@ -57,3 +57,4 @@
 ## [2026-11-09] ingest | wicca-book-spell-witchcraft-begin -> 巫术现代指南.md, 西方巫术简史.md, 威卡仪式与圆圈.md
 ## [2026-11-09] ingest | wicca-magic-start-kit -> wicca-magic-starter-kit.md, wicca-candle-magic-introduction.md
 ## [2026-11-09] ingest | xr21帖子整理最终版 -> huanxiangxr-21-cosmology.md, huanxiangxr-21-world-matrix-invasion.md
+## [2026-11-09] ingest | zaitaluo -> 你可以再塔罗一点.md, 塔罗牌阵基础与解牌流程.md

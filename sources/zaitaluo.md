@@ -1,3 +1,9 @@
+---
+compiled: true
+pages:
+- 你可以再塔罗一点.md
+- 塔罗牌阵基础与解牌流程.md
+---
 # 你可以再塔罗一点
 
 # INTRODUCTION
