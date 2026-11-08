@@ -1,3 +1,10 @@
+---
+compiled: true
+pages:
+- oh-cards-healing-cases.md
+- oh-cards-introduction.md
+- oh-cards-techniques-and-spreads.md
+---
 
 
 ## 22個OH卡療癒的真實案例 照見潛意識的心靈明鏡

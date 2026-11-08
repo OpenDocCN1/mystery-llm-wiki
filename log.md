@@ -47,3 +47,4 @@
 ## [2026-11-09] ingest | mod-sex-magic -> 现代性魔法.md, 性魔法秘史.md, 性魔法定理.md
 ## [2026-11-09] ingest | mod-witchcraft -> 巫术现代指南.md, 西方巫术简史.md, 魔法四元素与宇宙观.md
 ## [2026-11-09] ingest | neizaixiaohaikuaile -> 尤尼希皮里与内在小孩.md, 框架与向往的清理.md, 零极限与荷欧波诺波诺体系.md
+## [2026-11-09] ingest | OH卡与心灵疗愈 -> oh-cards-introduction.md, oh-cards-techniques-and-spreads.md, oh-cards-healing-cases.md
