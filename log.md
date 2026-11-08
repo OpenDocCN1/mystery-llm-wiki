@@ -51,3 +51,4 @@
 ## [2026-11-09] ingest | README -> (无沉淀)
 ## [2026-11-09] ingest | shuiximofa -> 水系魔法体系.md, 水系神话存有与水元素神明.md
 ## [2026-11-09] ingest | SoHam徒手能量疗愈 -> soham-healing-system.md, soham-techniques-and-meridians.md, soham-healing-sprays.md
+## [2026-11-09] ingest | SUMMARY -> 占星书籍目录与主题导航.md
