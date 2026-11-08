@@ -46,3 +46,4 @@
 ## [2026-11-09] ingest | mnd-mgk -> 心灵魔法显化的神经科学.md, 显化的大脑网络与神经系统.md, 显化实践与专注力训练.md
 ## [2026-11-09] ingest | mod-sex-magic -> 现代性魔法.md, 性魔法秘史.md, 性魔法定理.md
 ## [2026-11-09] ingest | mod-witchcraft -> 巫术现代指南.md, 西方巫术简史.md, 魔法四元素与宇宙观.md
+## [2026-11-09] ingest | neizaixiaohaikuaile -> 尤尼希皮里与内在小孩.md, 框架与向往的清理.md, 零极限与荷欧波诺波诺体系.md
