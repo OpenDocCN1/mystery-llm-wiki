@@ -1,3 +1,10 @@
+---
+compiled: true
+pages:
+- luck-creation-principles.md
+- luck-how-it-happens.md
+- luck-risk-and-probability.md
+---
 # 运气如何发生
 
 ![《运气如何发生》封面](img/hwlkhpn_cover.jpg)
