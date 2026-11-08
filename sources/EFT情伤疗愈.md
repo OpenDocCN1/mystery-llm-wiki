@@ -1,3 +1,10 @@
+---
+compiled: true
+pages:
+- EFT情伤疗愈.md
+- EFT情伤疗愈实作.md
+- EFT情绪释放技巧.md
+---
 
 
 # EFT 情伤疗愈
