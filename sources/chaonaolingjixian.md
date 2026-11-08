@@ -1,3 +1,10 @@
+---
+compiled: true
+pages:
+- 大脑可塑性与五大迷思.md
+- 超脑英雄与心智实践.md
+- 超脑零极限.md
+---
 # 超脑零极限
 
 ![](img/chaonaolingjixian_1.jpg) 
