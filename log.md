@@ -49,3 +49,4 @@
 ## [2026-11-09] ingest | neizaixiaohaikuaile -> 尤尼希皮里与内在小孩.md, 框架与向往的清理.md, 零极限与荷欧波诺波诺体系.md
 ## [2026-11-09] ingest | OH卡与心灵疗愈 -> oh-cards-introduction.md, oh-cards-techniques-and-spreads.md, oh-cards-healing-cases.md
 ## [2026-11-09] ingest | README -> (无沉淀)
+## [2026-11-09] ingest | shuiximofa -> 水系魔法体系.md, 水系神话存有与水元素神明.md
