@@ -1,0 +1,5346 @@
+
+
+# 灵魂DNA第一部
+
+## 靈魂 DNA
+
+> 《靈魂 DNA》就像為我們準備的滿桌盛宴，邀請我們開啟心門，面對那越來越容易取得的新能量並接受其呼喚。這份邀請不僅是要我們依序入席，更要我們親自走入廚房與花園，學習培育菜餚的材料並親自烹調。來自所有時代（甚至是生命自身本質）的聖者、天使、導師與先知都樂於提供諮詢與指引，話語也都容易了解並充滿全然的愛。在閱讀中，所有參與者的存在都如此顯而易見，讓這本書也成為強有力的傳導體。我們都該與永恆對話並領悟靈魂的完整。
+
+——羅伯·華特曼（Robert D. Waterman），教育博士、作家、能量場療法（Noetic Field Therapy）發明者、昆柏利·阿曼提基金會（Quimby Amenti Foundation, www.mystery-school.com）創辦人及總裁
+
+> 我認識雷·強德蘭已經好幾年，我知道他是個執著的靈性追求者。他致力於滿足他人的需要，致力於對自己和所服務的人真誠不欺。你可以確定，只要你提出要求，他就會給你最佳的建議與看法。我會說，關於他所做的事與他做事的方法，你可以完全相信他。願你們生活一切美好。
+
+——羅伯·薩比羅（Robert Shapiro），作家、專業靈媒、神祕學教育者
+
+> 《靈魂 DNA》統整了關於人類 DNA 全新的靈性見解。雷·強德蘭是位力量強大的靈媒，針對 DNA 與業報、揚昇、以及人類多層次自我的關係正進行一項開創性的靈性事業。本書的核心訊息是關於人類如何在 2012 年成功穿越一個重大關卡。黃金時代的可能性如今就在眼前。為此新時代進行準備（包括療癒地球）的新工具在本書中均有解釋。我高度推薦這本書，特別是所有希望清楚了解人類進化下一步的靈性追求者。
+
+——大衛·米勒（David K. Miller），作家、專業靈媒、四十群（Group of Forty, www.groupofforty.com）創辦人
+
+## 靈魂 DNA
+
+## 推薦序 - 羅伯·梅森·波洛克
+
+從雷·強德蘭完成《靈魂DNA上册》
+迄今已經四年了。這本書一定無法名列紐約時報的暢銷書籍排行榜，因為它是為了靈性道路上的先鋒，也就是人生首要目標是為了成長，以及了解自身靈性天性的人們。
+
+從四年前開始，我和雷已經合著了五本書，然而《靈魂DNA》這本書卻持續引發廣泛興趣，銷售量也持續領先其他五本著作。這本書中所提供的訊息沒有時間限制，對於那群將畢生精力投注於首要目標—靈性連結的人們來說，更能引發他們的興趣。
+
+當我聽到這本書會以中文出版時，我的心情十分歡喜與激昂。因為我一向都主張，我們未來發展的重點區域會在亞洲，特別是中國。今年初，我在北京帶領了一場工作坊，我發現與會的學員們都十分開放、樂於聆聽新知、甚至十分熱情，也不會因為生命中的嚴峻考驗變得僵化固執。我感覺像是在對中國未來的靈性領袖們說話，也就是那群會引領中國人民去了解民主的責任、靈性成長，以及他們未來將會獲得的自由。
+
+我非常榮幸能為這些貢獻我一份心力，所以我將這份感受傳達給當天參與工作坊的學員們。我也十分榮幸得知這本書，將以數十億人口的母語出版。這就是我們星球進化與靈魂啟蒙的過程。
+
+羅伯·梅森·波洛克
+美國，麻薩諸塞州，米爾河2017年9月
+
+# 推薦序
+
+# ◎羅伯·梅森·波洛克簡介
+
+- · 與雷·強德蘭共同編纂過數本身心靈書籍《靈魂DNA第一部 & 第二部》、《天使夥伴》、《天使與揚昇》以及《手之舞》。
+- · 由美國不用藥醫師聯盟認證為整合自然療法師。
+- · 擔任能量療癒師超過25年經驗，曾於麻薩諸塞州的整合治療部門從事能量療癒工作達十年。
+- · 接受過觸碰療癒、再連結療癒，以及氣場平衡的訓練（亦稱為智性場域療法）。
+- · 個人網頁：www.BerkshireEnergyHealing.com
+
+## 靈魂 DNA
+
+## 推薦序(原文版) — ROBERT M. POLLOCK
+
+It has been four years since Rae Chandran completed work on the first volume of DNA of the Spirit. It was never going to make the New York Times list of best selling books. It was written for the spiritual vanguard, people whose priority is growing and understanding their nature as spiritual beings.
+
+Since that time, Rae and I have collaborated on five other books, yet DNA of the Spirit continues to draw the most interest and outsell the other books. The message here is timeless, and of interest to everyone who puts their connection to spirit among their highest priorities.
+
+I was elated to hear that this book would be published in Chinese. It has been my opinion that the future of our planet lies in Asia, and China in particular. I taught a workshop in Beijing earlier this year, and found the students to be open, receptive, enthusiastic, and unhardened by the rigors of their lives. I felt like I was addressing the future spiritual leaders of China, those who would lead the people of China to understand the responsibilities of democracy, spiritual growth, and freedom as they became available. I was honored to contribute to that effort, and I expressed that sentiment to the people in the workshop. I am also honored to have this book published in a language that can reach
+
+# 推薦序
+
+billions of people. This is how our planet will be lifted, one enlightened soul at a time.
+
+Robert M. Pollock
+Mill River, Massachusetts USA
+September, 2017
+
+© Robert Mason Pollock
+
+- Co-authored and edited several spiritual books with Rae Chandran - DNA of the Spirit (Volumes 1 and 2), Partnering with Angels, Angels and Ascension, and The Dance of Hands.
+- Certified by the American Association of Drugless Practitioners as a Holistic Health Practitioner.
+- Over twenty-five years of experience as an energy healer. Employed as a Healing Energy Practitioner in a holistic integrative healing department in Massachusetts for 10 years.
+- Trained in Healing Touch, Reconnective Healing, and Aura Balancing (also called Noetic Field Therapy).
+- Website : www.BerkshireEnergyHealing.com
+
+## 推薦序 - Anne Choo
+
+你或許會好奇為何一位半退休律師會為《靈魂DNA》這類書籍撰寫序文，這本書是由通靈傳訊者雷·強德蘭弟兄，與另一位頗負盛名的靈性老師，親愛的羅伯·梅森·波洛克弟兄合作撰寫。我自己也對這件事感到好奇，但是當我開始思索要寫些什麼，一切都變得顯而易見了。
+
+三十多年來，我是一名盡責且充滿熱情的律師，同時也是一間高級法律事務所的負責人。在這段時間，我也十分熱衷於尋找較新、有效率且簡單的方式，以實行我學習過的療癒方式。我也如同無頭蒼蠅一般，汲汲營营地追尋更高真理，以及能夠在靈性道路上引導我前進的老師，卻始終未果。
+
+在2017年8月，我逐漸放下執業律師這份工作，這也讓我有更多時間與自由去追求我在靈性及療癒上的興趣。我參加雷弟兄的DNA活化以及靈魂療癒工作坊，便馬上被這些非常有變化的療癒模式吸引。DNA活化工作坊令人大開眼界，內容是以不同的手勢打開身體的療癒空間，並且使我們連結高我及指導靈更深入地體驗內在的自在。
+
+十分令我驚訝的是，雷弟兄一返回東京後，立即利用通訊軟體skype親自教導我聲音療癒。起初，我很遲疑，但是我內在的聲音迅速地給予肯定的回應。從那時開始，我逐漸成為雷弟兄積極向學的學生，一開始是聲音療癒的學生，我很快地便成為他在靈性揚升道路上的學生。
+
+# 推薦序
+
+DNA活化工作坊，以及《靈魂DNA》書中相關的技巧，引導我進入傳訊的領域。對DNA全新且完整的理解，使我們的神聖靈魂藍圖得以展開。藉由能量的連結，我們得以進入匯集我們過去、現在與未來旅程的資料庫，並使我們在更高的真相中覺醒，提升我們與地球靈魂甚至宇宙的意識。我甚至發現了一關關於揚升大師、天國存有、大天使與天使、地球、月亮、太陽、星辰靈魂、元素、植物、樹木以及動物的全新領域，在任何時候，我們都可以向他們尋求幫助與指引。
+
+就我多年來的理解與嘗試，「冥想」意味完全靜默及分毫不動至少數小時，有時我的一條腿甚至因此無法行動自如。而由雷弟兄傳訊的冥想方式則比較容易實行，這套冥想分成幾個較短的片段，但是卻威力十足，所以經常帶來很深刻的體驗。
+
+我的同學們、朋友們以及我自己也嘗使用本書中列出的技巧，我們都體驗到難以置信的擴張，以及光能的流入，甚至有時會有美妙的靈視經驗。我使用書中期種幾種技巧來幫助朋友，持續獲得正面的效果，有些朋友在身體的四周體驗到充滿愛與溫暖的感受。我摯愛的寵物狗，帕皮，只要我以書中的手印治療牠疼痛的胃部以及虛弱的後腳時，牠的反應總是很歡喜。
+
+除了冥想與靈視技巧外，雷弟兄也傳訊了一系列的延伸技巧，都很適合本書的讀者使用：聲音、符號、顏色以及神聖幾何圖形。只要簡單地投射意圖，並且發表相關聲明，呼請並連結揚升大師或其他光的存有，我們除了能消除與中和業力外，還可以遠離母體、殉道者意識以及苦難。提升食物與水的能量
+
+## 靈魂 DNA
+
+也不再是難事了！雷弟兄所傳訊的技巧是如此簡便、易於施行，你可以將這些技巧用於每日自我療癒，或者療癒地球及他人。
+
+本書是一本沒有時限、十分實用的手冊，不論何時，只要我們在人生旅程中需要協助時，我們都可以翻閱本書。
+
+除了靈魂DNA與聲音療癒外，雷弟兄也帶領瑪哈亢達里尼、創造符碼、龍、符號以及埃及神祕學苑等工作坊。他也帶領朝聖者們前往包含埃及與以色列在內的聖地。
+
+雷弟兄是我所見過最有活力、最深刻、有直覺力，心胸最寬廣的傳訊者，不僅僅是因為他教導種類如此多的能量方式，他的教導永遠不會枯燥死板。即使相同主題的能量工作坊，每一堂對於學員而言絕對是嶄新的體驗。揚升大師及其他光之存有們似乎不斷地藉由我們充滿愛與謙卑的雷老師，而他也總是準備好以滿腔熱忱與他的學生分享這些新洞見與知識。
+
+踏上由雷老師所引導的朝聖之旅絕對是場不一無二的「瑞」式體驗！他以他充滿力量的傳訊，將神殿、教堂以及其他神聖地點變得生動，並傳遞有關無條件的愛、智慧與自我實現的訊息。雷弟兄除了是一個靈魂本質慷慨、慈悲與溫暖的人外，雷弟兄也是一位充滿慈愛與關懷的丈夫及父親。他藉由鼓勵他的學生、朝聖者與個案去質疑舊的教條以及信念系統，並辨識他們自己的至高真理，使他們重拾個人力量；每當面對挑戰時，他引導他們看到不同的可能性及潛能，使他們能夠自己做出決定。他會給予這些人建議，並在恰當的時機推他們一把，讓他們服務自身的真理，並以自身的力量站起來，最後相
+
+# 推薦序
+
+信他們自己。我和其他許多人就是在雷弟兄的指引與保護下加速我們的靈性成長，為此我要對他獻上我最深且無盡的謝意。
+
+我深信身為一名求道者，你會發覺本書就像你靈性旅程的Google地圖。它首先會引領你往自我探尋、自我發現以及重拾自我力量的方向邁進，至於其他更深的追尋，則要看你自己了！
+
+願造物主以及你所有的指導靈在你的靈性旅途上給予你祝福。
+
+願你享受你的旅程！
+
+©Anne Choo
+
+新加坡聲音療癒老師
+
+BodyTalk證照執業工作者
+
+Yuen Method證照執業工作者
+
+获取更多好书，请加微信：13641926204 或 QQ:715104687
+
+## 推薦序(原文版) - ANNE CHOO
+
+You may be wondering why a semi retired lawyer is writing the foreword for a book on DNA of the Spirits channeled by Brother Rae Chandran, an eminent and beloved spiritual teacher together with Brother Robert Pollock. I wondered the same myself, but when I started thinking about what to write, it all became clear.
+
+For 3 decades, I worked as a dedicated and passionate lawyer managing a boutique law firm. During this time, I was also avidly searching for new, more effective and easier ways to implement the healing modalities that I had learnt. I also searched without direction for higher truths, for a teacher to guide me on my spiritual path; without any success.
+
+In August 2017, I started to wind down my legal practice and this allowed me time to pursue my interests in spirituality and healing with greater freedom. I attended Brother Rae's DNA Activation and Sound Healing workshops and was immediately intrigued by these dynamic modalities. The DNA Activation workshop was a total eye opener to the use of different hand positions to create healing space for the physical body as well as to connect with our higher self and our guides and to experience inner liberation.
+
+Much to my surprise, Brother Rae upon returning to Tokyo offered to personally teach me Sound Healing over skype. Initially, I hesitated but my inner voice quickly responded affirmatively. There and then began my journey as Brother Rae’s enthusiastic student, initially of Sound Healing but soon as a student walking a spiritual path towards ascension.
+
+The DNA Activation workshop in conjunction with the techniques in the book, DNA of the Spirit introduced me to channeling. A whole refreshing understanding of DNA, our divine blueprint began to unfold. The energetic connections which one can tap into this library of information of our past, our present and future journey can help us to awaken into a higher reality, to raise our consciousness and the consciousness of Spirit Earth and the cosmos. I also discovered a new realm of Ascended Masters, Celestial Beings, Archangels and Angels, the Spirit of the Earth, Moon, Sun, Stars, the elements, plants, trees and animals with whom we can connect and ask for help any time.
+
+Meditation as I had always understood and tried over many years meant sitting in complete silence and stillness, sometimes for hours, a feat which I cannot do with ease. The meditation techniques channeled by Brother Rae are easy to implement, lasts for short periods but are extremely powerful which often left me with profound experiences.
+
+My fellow students, my friends and I also experimented with the techniques shown in the book and we experienced an incredible expansion and infusion of energy of light, at times accompanied by beautiful visions. I have used the various techniques on friends and the outcome has consistently been positive, some experienced feelings of warmth and love, energy and light coursing through their physical bodies. My beloved dog, Poppy invariably responds with delight whenever I use the hand position to heal her upset stomach and weak hind legs.
+
+Apart from the meditation and visualization techniques, Brother Rae also channeled an extensive and comprehensive array of other tools which the reader can utilize: sounds, symbols, colors and sacred geometry. By simply giving intention, making the relevant statements, connecting with and calling on the Ascended Masters or other Light Beings, we can, amongst other things, erase or mitigate our karma, disconnect from the matrix, the martyr consciousness and suffering. Energizing food and water has never been easier! Brother Rae's techniques are so easy to follow and simple to use that you can use them daily for healing yourself and others as well as Spirit Earth.
+
+This book is a timeless, useful toolkit which we can draw upon for assistance any time we need help throughout our lives.
+
+Apart from DNA Activation and Sound Healing Brother Rae also conducts workshops in Mahakundalini, Creation Codes, Dragons, Symbols and the Egyptian Mystery School. He also leads pilgrims to sacred places including Egypt and Israel.
+
+Brother Rae is the most dynamic teacher and the most profound, intuitive and expansive channeler I have met. Not only does he teach such a wide range of modalities, Brother Rae's teachings are never static. Each workshop of the same modality is invariably a whole new experience for his students. The Ascended Masters and other Beings of Light seem to continually speak through our loving and humble teacher Rae who will readily and enthusiastically share with his students new insights and knowledge. Going on a pilgrimage is a uniquely Rae experience! He makes the temples, churches and holy sites come alive with his powerful channeling, delivering messages of unconditional love, wisdom and self realization. An extremely magnanimous, compassionate soul with a gentle nature, Brother Rae is also a loving and caring husband and father. Brother Rae empowers his students, pilgrims and clients by encouraging them to always enquire, question old dogmas and belief systems and to discern the higher truth for themselves. When confronted with challenges, he guides them to see different potentials and possibilities in order for them to reach their own decisions. He steers and when appropriate nudges them to serve their own truth, to stand in their own power, to trust and have faith in themselves. I and many other students have accelerated our spiritual growth under the tutelage of Brother Rae for which I give Brother Rae my deepest and eternal gratitude.
+
+I am sure that as a seeker, you will find in this book a google map for your spiritual journey. It will help start you off in the direction of self knowledge, self discovery and self empowerment.
+The rest is up to you!
+
+May the Creator and all your guides bless you on your journey.
+
+©Anne Choo
+Singapore
+Sound Healing Teacher
+Certified BodyTalk Practitioner
+Yuen Method Certified Practitioner
+
+## 推薦序 - 王牧絃
+
+「相信老天的一切安排必有道理，或許現在頭腦不明白時候到了、智慧具足了，然就明白了！」這一向是我個人的價值觀。也是我在經歷此書最深的感觸。身為命潛能出版社的負責人，很高興有機會能與有緣接觸到本書的讀者分享此書的奧妙之處。
+
+與雷·強德蘭老師結織是因《靈魂DNA這本書》有緣來到我們出版社。因為希望了解作者期望我們如何呈現此書的中文版，受惠更多走在成長路上的伙伴們，於是安排了一次與老師的會面。此次的會晤，意想不到地開啟我靈性上的另一扇窗，也整合了許久以來一直未解的靈性成長問題。
+
+「本書中提到手印、聲音、符號的教學，是否連接到身體的氣脈明點？」這是我向老師提出的第一個問題。雷老師當下手一揮請我站起起來，馬上教了我一個手印，當我雙手向上打上印時我嚇了一跳，怎麼會這樣？怎麼可以如此快速地進入另一個空間呢？於是帶著好奇及探索自己生命的熱忱之心，展開了不在計劃中的靈魂之旅。我跟隨雷老師老師來到了聖地以色列，這一切的过程讓我體驗到書中所提到的觀念：「進化松果體，增進腦部的功能，並且讓工作作變成遊戲，最後享有喜悦的生活。」
+
+如果你準備好，想要在靈性成長上多一些觀察及體驗，書中有很多不同層面的練習和工具，可以藉由這些工具符號、手印、聲音達到提升意識之目的。
+
+這是一本實用的書，書中提到：「這項修持有兩件重要的事，第一是請求，第二是塑造意圖，如果你不祈求，就無法給予，在舊的能量中無知是福，在新的能量中無知是危險，舊的思想模式已經離開了，造物主不會降臨支持你，你必須透過請求來參與創造，並且藉由持續努力支持自己。」這本書讓我了解並學習更寬廣的靈性知識，透過每天與造物主的頻率校準，讓我更容易接收到祂們想要傳達給我的訊息，顯化在生活中的不同面向。
+
+祝福閱讀此書的有緣讀者，也能接受到雷老師及書中各位揚升大師、聖者、大天使們、先知、大地之母對我們地球人類充滿愛與智慧的能量，也願這美麗的星球以愛和光照亮每一位來到地球的靈魂。
+
+生命潛能負責人
+
+王牧絃
+
+## 前言
+
+我與雷·強德蘭在2012年12月初次相遇,地點是埃及的亞斯文。當時,雷帶團前往埃及、以色列、希臘的聖地旅行,我也報名他的行程。我們一見如故,幾個月後,我們就開始合作這本書。
+
+認識雷之前,我的靈性修持與信念已經停滯不前。我花了超過二十年時間在一所神祕學學院與靈性社群;儘管認識雷之前我已經離開該社群超過十年,但我仍依照那多年之前建立的典範來修持。我前一本書《以心導航》便簡述了那些信念與修持。
+
+在2012年7月8日的通靈聚會中,聖哲曼敘述了雷和我該如何向本書讀者自我介紹。聖哲曼說我正由繭中甦醒,這也是事實。多年來我生活在理念相似的封閉社群之間,因此我發現自己的社交處世能力已經退化,走入世界讓我相當害怕。所以,最初幾年,我設法過著安全的生活。我創辦一個能量療癒的事業,三不五時開設工作坊。我也過著相當內向的生活,多數時間都是獨處。顯然這一切都將改變。
+
+投入這本書讓我看見地球上正在發生的靈性與能量改變。2013年是意識發生次元移轉的第一年。人類在意識層次發生巨大成長,讓埃及與其他地方的神祕學校的古老真理與修持能夠向人們釋出。我們的身體也發生改變,以便支持水晶(或基督)意識。揚昇的契機已經降臨。我們正在打下基礎,讓兩代的新小孩能顯化其中某些變化。
+
+雷和我並未寫下本書所介紹的內容。雷是難得一見的清晰靈媒，不過真正的作者是大師與大天使，而你也將讀到他們的話語。我是文字工匠，我的工作是組織、編輯、釐清。
+
+我另外一項工作是學習。我學會不再認為 DNA 就是遺傳而來的生理特徵，而將之視為我靈魂的資訊庫。我的 DNA 包含了我生生世世的生命史，記錄我帶入此世的態度、業報、以及情緒傾向，提供藍圖（或生命課題）讓我提升自己。DNA 也記錄從你被創造為星子（starbeing）的那一刻到當前轉世的全部存在。
+
+這些資訊寫在我的還有你的全身每個細胞裡。我能做某些練習、能進行能量連結，並藉此提升我的意識並活化額外的 DNA 螺旋束。這會帶來更進一步的靈性加持、提升的覺知、讓你與創造者和在內在層次努力支持人類的存在有更深的連結。
+
+這本書有許多材料我也是初次聽聞。我的修持並未包含運用聲音、吟唱、或符號，也不包括與大地、其他星體、或動物進行能量連結，更別說是「龍」了。不過，我是個心胸開放的人，最後我也不再對自己正在編輯的材料感到震驚，也開始練習其中某些部分。
+
+你會發現自己對本書某些部分感到親切，但是其他練習則無法讓你產生共鳴。本來就該如此。我特別有感覺的，就是要求被帶往大角星人（Arcturian）的療癒神殿以淨化並啟動我的松果體。在連續幾天的輕微頭痛之後，我感覺那樣的工作讓我# 前言
+
+更加清晰。我也努力讓自己與聖哲曼、阿肯納頓、以及耶穌建立連結。我能感覺他們給我的支持。
+
+雷和我都不覺得自己很特別。我們被賦予一項工作，就是呈現這些材料。我們會練習其中一部分，其他部分則放下或留待日後進行。我覺得真正的工作將由讀者諸君完成。如果有足夠的人努力為本書所討論的兩個世代的新小孩打下基礎，那麼奇蹟將變成家常便飯，地球將獲得療癒，人類將超越地球如今隨處可見的衝突與貧瘠。的確，真的得靠我們一同顯化這個新的實相。
+
+羅伯·波洛克
+麻薩諸塞州，匹茲菲爾德（Pittsfield, Massachusetts）
+
+## 作者序
+
+我成長的環境充滿源自古印度宗教、根深蒂固的思想模式與信念體系，因此幾年之前我仍無法想像能以其他方式來認識神。然而，經歷許多帶來生命改變的經驗之後，我被迫以非常極端的方式正面迎戰這個實相。這也在我內心開啟深度的好奇心，希望能更深入了解神與生命本質。
+
+經過反覆摸索，我慢慢開始發現自我，了解我如何藉由思考程序、信念體系、行動與意圖來創造自己的生命。這引領我向自己內心更深處探索，希望不僅能找到一己苦難的更大成因，也能找到世上所有重大悲痛的根源。
+
+透過多次向自我最深處的探索，我很幸運能認識許多大師，他們引領我更加深入內在以尋得答案。這些大師有些存在於物質層面。他們的指引深深鐫刻在我的靈魂上——這些大師包括羅伯·薩比羅、大衛·米勒（David Miller）、以及李·卡羅（Lee Carroll）（以上均來自美國）；來自英國的娜塔利·葛拉松（Natalie Glasson）；尼爾·唐納·瓦爾許（Neale Donald Walsch）的著作；還有其他大師來自內在層面，他們的指引從以前到現在都給我巨大的幫助——包括庫圖彌大師、聖哲曼大師、大天使麥達昶、以及阿肯納頓王。
+
+本書來自與內在層面諸位大師以及物質層面的羅伯·波洛克的合作。在 2012 年底認識羅伯可說是本書出版的轉捩點。若不是羅伯的合作與支持，這個計畫便無法生根茁壯，而對此我也對他非常感謝。在出版過程中，我們也得到兩位來自以色列、非常美麗的光之生命所給予的能量支持——分別是莫迪凱·雅欣（Mordechai Yashin）以及弗列達利卡·亞隆（Fredaricka Yarom）。此外，所有花時間協助聽打、編輯並通讀所有材料還能準時且優雅完成的人也給我們很大的支持。所以，廣義來說，這個計畫真的是個共同創造的過程。
+
+本書包含的許多材料都是我曾做過也持續進行的修持，其他則是第一次傳達到人間。本書是要作為實作手冊，幫你練習書中提到的內容，因為我相信任何材料——無論是來自通靈或來自其他源頭的指導——都必須賦予讀者力量，提升讀者，讓他們能感受文字傳達的能量與愛，好讓他們感到擴展並提升。我相信本書滿足這些必要條件。
+
+最後，我希望感謝造物主溫柔地指引我，帶著我來到這裡，讓我能傳達這些訊息來支持人類。我也要感謝我的家人支持我這麼做。
+
+Namasté
+雷·強德蘭
+日本東京市
+
+## 大天使麥達昶的話
+
+2014年1月30日
+
+我是麥達昶。
+
+## 您好。
+
+親愛的兄弟，恭喜諸位〔完成手稿〕。火車就要開動，準備都已完成。你將會非常忙碌，所以請仔細聽好。這趟旅程很有趣，一切由你掌握。
+
+我們希望今天別說太多。我說DNA是構成你是誰的核心元素。不過你是誰仍是未解之謎。DNA包含了你的歷史，不過創造本身又是什麼？DNA不僅包含此刻的你，也記錄了你在創造之時的樣貌，更記錄了你未來的走向。
+
+## 可否請您多加說明人在自身創造之時是什麼模樣？
+
+對造物主而言，那是一種你是誰的感應，是造物主本身的一部分：你就是造物主。
+
+你能說出「我就是神」嗎？
+
+## 我會說我是造物主的一個層面。這樣正確嗎？
+
+這當然正確，因為人類覺得說出「我就是神」很難。要想著自己就是神，對人而言太過崇高了。當你終於能見到神的模樣，你所看到的是誰的臉？沒錯，是你，是金色的你，是綻放金色光芒的臉。DNA 不僅包含此一層面，亦即什麼是真正的你，也包含你的旅程本身。旅程是什麼？這是個有趣的問題。
+
+DNA 不僅是你存在的靈性層面，也是整個旅程以及你未來旅程的潛能——告訴你未來的旅程，不論在這個星球或其他星球，會是什麼樣子。這段旅程銘刻在你的 DNA 內。這不僅是了解你存在的靈性層面，更是了解你意識的全部：你的過去、現在、未來。
+
+自我了悟的生命會接受自己真正身分的偉大。你見到更寬闊的景象，知道自己的旅程完全連結到「宇宙我」的旅程。你擴展，宇宙也跟著擴展。正是經由你的旅程，宇宙才得以擴展。
+
+從更高的層面看，你會影響整個宇宙。根據這個概念，你會開始了解自己的偉大。耶穌說：「我所做的事，信我的人也要做」（約翰福音 14 章 12 節），這句話真正的意思也是如此。他知道自己的過去，知道自己的現在，也知道自己前進的旅程。
+
+你該如何理解這點並且在生活中實踐呢？你該如何啟動這段旅程？要透過你的 DNA。當你以開放的心來認識自己的 DNA，你也會運用復活的能量。每一刻的生命你都在死去。等到那一刻結束，就完成了。親愛的兄弟，如果你在每一刻的生命都請求復活，那會如何呢？你會持續地開啟，時時刻刻都會越來越開放。因此你必須請求復活。
+
+當你時時刻刻都請求復活，你會開啟自己越來越廣大的層面。耶穌大師就是這麼做的。下一刻該怎麼做都展現在他面前——他一生中時時刻刻都是如此。如果你完全調整好去運用自己的 DNA，那麼這就會自然地發生。
+
+## 我們時時刻刻都接受著指引？
+
+不是指引。你會知道該怎麼做。你會學到。不僅是在當下這一刻知道，而且每一刻當下都覺醒到更高實相、更高的了解、更高的真理。每一刻都是偉大的一刻，都了悟到宇宙本身的擴展。
+
+當你覺醒，你不僅成為靈性的存在，更會擴展。透過你的擴展，神也會擴展。因為你是神的一部分，因此你的擴展也自然是神的擴展，不是嗎？這是給宇宙的獻禮。
+
+當你覺醒，宇宙和宇宙中包含蓋亞在內的一切也都會覺醒。你的覺醒會擴展蓋亞的意識以及樹木、動物、植物的意識。因此你便達成你來到世間真正的目的：促進萬事萬物的演進。一切都是為了擴展和演進而創造出來。不然，它會腐蝕並死去。祝各位安好。我是麥達昶。
+
+2014 年 4 月，大天使麥達昶要求以下文字放入第一冊：
+
+> 這是本實用的書，而在練習中有兩件事很重要。其一是請求，其二是塑造意圖。如果你不請求，就不會被給予。根據古老能量，無知是福。根據新的能量，無知是危險的。人們需要知道這一點。陳舊的思考模式已經逝去。造物主不會降臨來支持你。你須透過請求來共同創造，並且以努力支持自己。
+
+## 導論
+
+此套書共有兩冊，其中介紹的工具能擴展靈性覺知，活化不常用且遲鈍的乙太 DNA 束獲得活化。此為上冊，教材內容係根據時間編排。下冊則介紹額外的教導與練習。
+
+本書的資訊乃由不同的大師與大天使陳述，內容則是由雷·強德蘭在 2013 年春、夏及初秋的一系列通靈聚會所傳達。對我而言，參與這些聚會就像參加靈性的碩士班研討會，有講者提供資訊，人類參與者則向不同講者提出問題。我們居住在北美洲、中東和亞洲，藉由 Skype 彼此聯繫。
+
+## DNA記錄我們有何成就
+
+很多人都知道每個細胞內的 DNA 雙螺旋束包含了你我物質身體的藍圖：長相、家族與種族傳承的層面、是否容易罹患生理症狀與疾病等。不過，我們人類是多次元（或者說量子）的存在；我們在非物質次元進行各類非物質活動。我們會以自己非物質的情緒身（emotional bodies）來產生並詮釋情緒。我們參與各類心智活動：我們要用各種非物質的心智身（mental bodies）來抉擇、記憶、分析、形塑潛意識印象、培養態度、並且進行抽象心理思考。我們能進入靈性層面：我們會祈禱、崇拜、透過良知和直覺接收指導並且獲得超越的經驗、夢境和了悟。
+
+在我們一世生命的開始，所有非物質成就和傾向都已就位，另有十束額外的非物質 DNA 來記錄這些資訊。這些 DNA 束並非固定的，它們會記錄我們在成長與改變（或退化）中所發生的變化。我們攜帶這些資訊繼續前往下一世，因為 DNA 就是資訊，記錄了我們從被創造為個體靈魂之後的累世生命裡有什麼樣的成就。
+
+古人對 DNA 的了解其實比我們一般認為的更多。埃及、印度、西藏和愛西尼派（Essenes）神祕學院的追尋者都了解 DNA 的非物質層面可以被喚醒和活化，只要他們擴展自己的靈性覺知並且將自己意識的所有層面相應於宇宙的良善力量。他們知道自己能將這些擴展的靈性能力帶到自己來世的生命。
+
+強化的靈性連結不僅帶來喜悅和自由，還有高超的才能和知識。古人非常慎重挑選要教授什麼樣的弟子，因為他們不希望自己的知識落入錯誤的人手上。隨著基督教和羅馬天主教在西方興起，這些教導或者走入地下，或者逐漸消逝。
+
+我們現在正從漫長的靈性沉眠中甦醒。這個過程需要幾個世代才會更為顯著，也需要許多高等進化的靈魂在接下來兩個世代轉生到我們的星球。在本套書中，我們說這些靈魂是「新孩子」（New Children）。正是由於如此偉大的甦醒，讓人類的靈性指引者（大師、大天使、靈性階層之主）相信揭露本書內含資訊的時機已經來到。我們的成長讓我們準備好領受這些資訊。
+
+## 提升意識的工具
+
+本書所包含的資訊是雷透過一系列通靈聚會所傳達，其中羅伯、弗列達利卡和莫迪凱以及其他人都向諸位揭露資訊並幫助我們的存在發問。本書包含 2013 年十三次聚會的逐字稿。這些聚會可以說是大師舉辦的研討會。我們將這些場次的逐字稿送交光之科技出版社，我們的編輯摩妮卡·馬克利也建議釐清並再詳述某些部分。雷和我在 2014 年三、四月間又進行額外五個場次，多數都是和大天使麥達昶合作，為本書增加大約 50 頁的材料，分散在原始的逐字稿內，以方框〔〕標示。
+
+在這些聚會中，許多練習、工具和技巧都首次向人類揭露，能提升意識並活化非物質的 DNA 束。我真的很榮幸能受邀參與這些通靈活動。這些場次開啟我的雙眼，讓我看到自己從未思索過的靈性層面。許多練習都是不同形式的靜心。其他非靜心的練習與守則包括提升食物和飲用水能量的方式、與動植物的意識合作、設定意圖、運用音聲與吟唱、運用符號、運用手印（mudra）等。你或許覺得不是每項練習都讓你感興趣，請挑選吸引你的練習來做。就把本書當成任君選擇的自助盛宴，並且運用你的鑒別力來挑選最有共鳴的來做。
+
+以下是我們的建議：DNA 的十二層面均有相應的練習（手印和符號）。我們建議要一同練習它們，不要一次只針對其中一兩個層面練習。規律練習很重要，自律也是。要記得，自律是規律而非懲罰。
+
+如果你和其他人一起做，你們的努力將會倍增（馬太福音 18 章 20 節：「因為無論在哪裡，有兩三個人奉我的名聚會，那裡就有我在他們之間。」）這包括與志趣相投的人一起合作，或是參加工作坊來補強個人的修持。
+
+## 其他關於DNA的書籍
+
+這些材料真正的作者群包括聖哲曼大師、薩南達大師（他化身為耶穌亞，或是人們所稱的耶穌）、庫圖彌大師、阿肯納頓王、聖母瑪利亞、安娜（耶穌亞的祖母）、大天使麥達昶、主墨基瑟德、主梅翠亞、山納·庫瑪拉、蓋亞、昴宿星大師以及 DNA 的大師們。其他非物質的存在也經常參與。
+
+本書不是第一本介紹十二束 DNA 的書，不過據我們所知，這是第一本全面且專門討論活化十二束 DNA 的書：介紹能改變非物質 DNA 螺旋束的工具和技巧，讓你的能量特徵能轉化並反映你的靈性進展。
+
+從 1990 年代起，有多位作家傳達了關於十二束 DNA 的材料，分別關連著人類 DNA 歷史的不同面相以及為何十束乙太螺旋會被改變或失去活性。芭芭拉·瑪西尼亞克（Barbara Marciniak）於 1992 年出版《黎明到來》（Bringers of the Dawn）一書，傳達者了昴宿星人的話語；他們在數十萬年前在人類身上播下他們十二束 DNA 的種子，然而這個星球卻受到某些實體蹂躪，改變了人類的 DNA 以便管理並掌控我們這個種族。安妮·布魯爾（Anne Brewer）於 1998 年出版《十二的力量》（The Power of Twelve）一書，該書在 2000 年及 2009 年陸續改版，加入了部分介紹 DNA 活化的實用內容；該書同時傳達了來自美索不達米亞諸神（Mesopotamian gods）的資訊，後者也出現在撒迦利亞·西琴（Zecharia Sitchin）從《第十二顆星球》（The 12th Planet）以降的多本著作。2010 年李·卡羅（Lee Carroll）出版了克里昂（Kryon）系列的第十二本書《DNA 十二層次：關於內在大師的密教研究》（The Twelve Layers of DNA: An Esoteric Study of the Mastery Within）。這本書包括了 DNA 十二層次的希伯來文名。
+
+## 成為大師
+
+本書的核心訊息滿懷希望。此訊息關係著人類如何能成功於 2012 年穿越門檻。黃金時期（Golden Age）的可能性就在我們眼前。完成這項工作的某些工具就在本書之中。其他工具則會在未來出版的書籍中出現，能教我們如何為地球療癒人類衝突的業報，為動物療癒受到人類虐待的業報。
+
+我們所獲得的、關於改變人類 DNA 的材料強調，人類已經有所進步，已經醒悟到自己長久以來都是受到恐懼控制，已經在敵意環伺的環境下變得堅強，已經準備好成為星際探險家、自由戰士、光之工作者、以及銀河系的公民。古老的、以恐懼為基礎的模式在靈性覺知擴展之下已經可以取代，而且我們人類已經獲得力量能看清自己本來就是量子、跨次元的存在。我們能夠創造奇蹟。我們能夠為地球與她所支持的生命形式療癒那些我們造就的負面與黑暗。我們都能成為大師。
+
+——羅伯·波洛克
+
+## 人類的潛能何在？
+
+完整的潛能是人能以自身存在的完整本質生活，DNA束均已完全活化，生命之花也在內在活化。
+
+要記得一件事：
+
+你的腎臟包含生命之花，你的心臟包含生命之花，你的雙手也包含生命之花。
+
+> 你必须相信你是量子的存在，相信你能提升自我的频率，
+如此方能活化你的十二束DNA。
+——聖哲曼
+
+## Chapter 1
+## 4E DNA 降層次的印記
+
+2013年4月10日
+聖哲曼、一位昴宿星大師和庫圖彌大師
+
+我是聖哲曼。所有傳統都有秘密智慧和秘密知識。有個來自過去的古老智慧能在今日支持人們覺醒並進入新的意識。
+
+口傳的傳統有其秘密知識和智慧，現在過了 2012 年 12 月的門檻後就能向人類揭露。我們能夠傳達，是因為當時發生了群體覺醒，因此現在每個人都能融入某些新的真理。我們感覺人類此刻已經更能接受真理。
+
+在此之前，人類尚未準備要接受這個真理。例如，你開的車很漂亮。不過，如果有人在兩百年前、在人類對車子毫不了解的時候給你這部車，人們會怎麼說？他們也許會說：「這是惡魔的產物」或許還有「他說不定是用黑魔法變出來的」。簡單的計算機或是各類今日看來尋常無比的事物也都是這樣。人類在兩百年前不可能理解，但是今日你已經準備要接受這個古老的智慧。
+
+等到人類準備好，一個思想型態就會進入人類的視野。人類已經看著鳥兒飛翔好幾千年，但要等到上個世紀人們才找到飛翔的方法。為什麼之前沒有呢？
+
+我們相信此刻時機對了，可以提供許多古老真理和許多古老智慧。但是人類會抗拒新的觀念。你提出的任何事物都可能被視為瀆神，不過你也知道，許多真理剛開始都被當成假的典範、惡作劇或瀆神。有時候，當你揭露一個新的真理，人們會說：「哦，也許我們該來研究看看」，不過通常人們都不會完全接受。
+
+給予這些古老的工具是來自亞特蘭提斯（Atlantis）與阿肯納頓的古埃及大師、來自埃及太陽神（Lord Ra）、托特、哈托爾（the Hathors）和其他許多大師。這些是來自遠古時代的神祕教導。法老王圖特摩斯三世（King Tutmosis III）——所謂的戰士君王——就是庫圖彌大師。以下的許多手印都是他每日規律練習的。所以我只想告訴你一件事：由於現代人已經更能接受更高真理，因此可以用任何你覺得適合的方式介紹這些材料，不過這些是我們對這個主題的看法。
+
+我親愛的家人們，接下來我要介紹一些高度進化的存在。他們特別鍾愛這顆星球，因為他們已經將自己的 DNA 在這裡播種。我們很榮幸今日有一位偉大的昴宿星大師來加入我們的行列。
+
+## DNA的十二層次
+
+我是隨著庫圖彌大師的昴宿星大師。各位好，祝福各位。套句古埃及人的話，hi heem¹，意思是「發自內心的寒暄」。願我們的心一起搏動，因為我們和造物主合而為一。讓我們用片刻時間結合，藉此修補我們的心並融合能量。我們要帶個重要訊息給你們——這個訊息對世界非常重要——特別是此刻，因為世界正在覺醒，以更快速度生活，步調只會越來越快。
+
+人類真實的起源將會在接下來幾年揭露。所有古老的教導，包括達爾文的進化論，都會被揚棄，人們會說它們已完成階段性任務，而自此刻起我們已經找到更高真理和新的領悟。這些新的工具將會讓地球上每個人都能和我們之中某位高頻能量的存在連結，因為我們就是未來的你。我們已經將自己的 DNA 植入你們每一個人內在。這個領悟將會在這顆星球上造就重大的意識覺醒。
+
+在這個脈絡下，我們希望介紹和我們的 DNA 有關的十二個手印。正如各位所知，DNA 基本上是訊息或資訊，需要藉由提升個人的意識來促成其活化。那是等待被人閱讀的指導手冊。你會如何運用取決於你的心靈和你活化它的方式。我們要先由提升意識開始。這些手印、歌曲、呼吸和符號會影響意識，好讓意識能自然地影響 DNA。
+
+原則上，DNA 有十二個層次需要掌握，有不同的手印幫助你活化每一個層次：
+
+- 第一層次為「生命之樹」（Tree of Life）
+- 第二層次為「生命藍圖」（Blueprint of Life）
+- 第三層次為「當下意識覺醒」（Present Consciousness Awakening）
+- 第四層次為「信念」（Belief）
+
+1 註：發音接近「嗨呵伊姆」。
+
+## 靈魂 DNA
+
++   第五層次為「覺醒的自我」（Awakening Self）
++   第六層次是神聖中最神聖的層次：「我即是我」（I Am That I Am）
++   第七層次為「平衡」（Balance）
++   第八層次為「真理」（Truth）
++   第九層次為「啟明見實」（Opening the Blind Eye and Seeing without Illusion）
++   第十層次為「回憶」（Remembrance）
++   第十一層次為「了悟」（Realization）
++   第十二層次為「神」（God）
+
+## 運用手印、聲音和符號
+
+我們帶來一些手印，勤加練習有助於提升你的意識。這些手印搭配上聲音、呼吸和符號，絕對能逐漸提升人的意識。這些修持，對勤加練習的人而言，可說是新意識的關鍵。背景音樂有助於你的練習，例如嗡聲（Om）或是由偉大的亞特蘭提斯音樂家麥可·哈摩（Michael Hammer）所製作的音樂。
+
+做這些手印時，你可以站著或坐下。要深呼吸。我們唯一要求的是你要閉上眼睛，保持在一個放鬆而療癒的狀態下。我們會用以下的術語來稱呼我們的手指：拇指、第一指（食指）、第二指（中指）、第三指（無名指）和第四指（小指）。
+
+這些手印專門針對DNA，應該一起練習。你不該挑選其中之一來單獨練習。這十二個手印專為 DNA 設計，應該一次練習一整組。
+
+如果使用背景音樂，尤其是嗡聲、西藏頌缽、水晶缽、金屬聲、鐘聲或磬聲，那麼你會發現自己的能量變得更強。請自己嘗試，找到最適合你的方法。人類需要將這些工具與自己的文化相互調和。
+
+## 第一層次：生命之樹
+
+## 手印一：生命之樹
+
+生命之樹手印搭配的吟唱是嗡聲。每天練習這個手印三到五分鐘，持續十五天，你將發現自己心臟區域開放了。能量會開始在你的心臟循環，像甜甜圈那樣，由你心臟前方開始，繞向身體背面，然後再流到心臟。不過能量不僅只有一個層次，會有多重層次的能量構成甜甜圈的形態，顏色分別是柔軟的紫色與柔軟的金色。
+
+你或許會有被提升的感覺。做這些練習時最好能坐著，因為你的能量可能會非常充盈，因此必須慢慢累積。這個姿勢更適合女性。
+
+手印一：雙手拇指輕觸第二、第三和第四指，而雙手這些手指的尖端彼此碰觸。雙手食指不要碰觸，要伸直並指向與身體相反方向。雙手在心臟前方保持水平。
+
+## 第二層次：生命藍圖
+
+## 手印二：生命藍圖
+
+生命藍圖手印會創造力量來取得你的生命藍圖。這是你在你的社會所擁有的真理，必須向下傳給自己的人帶到他們自己的國家。我必須一再強調：你必須調整這項工作以適應運用這些技巧的社會。
+
+這一層次吟唱的聲音是「0000000000 0000000000」¹，在第二次的「0000000000」要向上移兩個音符。這會創造力量來取得你的生命藍圖。許多人感覺在這麼做的時候，會有純白色的能量由大腦筆直地流向心臟；這會創造一條道路，讓他們在生命中可以依循前進。這會幫助他們記起自己的藍圖，會創造一條好的道路，讓此生的步伐有所根據。
+
+1 註：聲音接近「歐歐歐歐……歐歐歐歐……」。
+
+## 層次三：當下意識覺醒
+
+## 手印三：當下意識覺醒
+
+第三層次會喚醒你的當下意識：那是促使你更加認識自我的渴望。每個靈魂在既定時刻都會緩慢地開始覺醒到一種更深入認識自我的渴望。這個渴望來自第三層次的活化。通常這是在無意識間發生，不過你可以藉由要求並塑造意圖的方式來活化第三層次。
+
+如果你仍不清楚自己的生命旅程，並且想要知道自己為何來到這裡，想知道自己存在的更高目的，那麼你可以運用這個層次。意圖是力量強大的工具。當你要求自己的第三層次獲得活化，你會開始感覺到它的意識流入你，讓你更認識自己所有的感覺和情緒。這個層次是屬於自我發現的層次。
+
+這個手印會產生深層平靜的能量，彷彿海洋——一座包容一切、美好、寧靜、安詳、和平的海洋。這個層次搭配的吟唱是「aaaaaaaaaaaaaaaa」²
+
+2 註：聲音接近「啊啊啊啊……」。
+
+## 層次四：信念
+
+## 手印四：信念
+
+信念創造人的實相。你的想法、語言、行為和感受全都來自你對自我和世界的信念體系。你的信念乃是在此世及諸多前世中塑造而成。即使你的經驗也都是自我信念體系的內在反映。信念是此世的關鍵：你相信什麼便會創造出什麼。如果你相信世界會虧待你，那麼你的生活就會反映出這一點。如果你相信生活全是善良美好，那麼你將創造出善。請為自己相信最高的善。有許多事物乃是古代的遺留。你必須打破舊有的模式。這就是所謂的古老真理理論（ancient truth theory）。幾乎所有的人類都能將舊有的信念和態度由自己的意識中清除。這個手印事關重大，因此我們提供一特別的聲音來打破阻隔，據我們所知這就是神的聲音：「wwhhooooooooooooomm」。在發聲結束前略微拉高音調。你也可以在此時呼喚自己所有的天使來幫助你。如果你的第三脈輪完全活化，你會感覺附近區域像火焰一般，燃燒許多來自亙古過去所殘留的舊有模式。花點時間練習這個發聲。有些人會看見有綁在太陽神經叢上的巨大鐵鍊纏繞著巨大火球。你背負著這些垃圾已經太久了。
+
+## 層次五：覺醒的自我
+
+## 手印五：覺醒的自我
+
+第五層次是覺醒自我的層次，也稱為理解的層次。覺醒是理解自我的過程。當你完全理解自己，你便成為大師。喚醒這個層次是個緩慢、漸進的過程，不過，等到你開始將更多的光融入自我，這個過程便會得到強化。
+
+方式之一就是讓你的靈魂和身體有更緊密的結合。在你心靈的眼睛中，要看見一持續發光的明亮光體由你的心臟核心綻放，隨著每次呼吸，你要看到它越來越擴展，終於包裹住你的全身。這個簡單步驟能讓你與自己的靈魂連結，並因此大大強化你的光明。你也能呼喚天使、大天使、以及指導靈、導師、大師來與她們的光結合。你可以請求協助你的大師讓你與他們的光結合。
+
+這個重要的手印能幫助你表達這樣的意圖：「我已經準備好要喚醒我的更高自我。」第五手印的音調為：「hhhoocommmmmmmm」³，其意義為「我此刻正在喚醒神聖自我。」
+
+3 註：聲音接近「呵吼歐歐歐姆姆姆姆姆……」。
+
+## 層次六：我即是我
+
+## 手印六：我即是我層次
+
+第六個層次稱為「我是」層次。當你修練自己的覺醒自我並且更完整地認識自己，那麼下一步便是與「我是」層次、與神聖靈魂連結。你的神聖靈魂便是真實的你。你的「我是」層次與每個人的「我是」層次連結，同時也和父／母神、造物主連結。
+
+你越渴望與你的「我是」存在連結，這個層次活化的速度越快。你的渴望會讓你的靈魂越來越和你的身體連結。當你開始透過你的靈魂來表達並體驗自己的生命，你將會擁有靈魂的偉大智慧，將能挑選並表達自己的生命。
+
+這是個無比神聖的層次；其中包含了希伯來文，這是來自其他星球，力量強大且跨次元的語言。某些希伯來文字力量非常強大，能彰顯造物主。以下就是個例子：' Ehyeh 'ašer 'ehyeh (eh he eh a show eh he eh)⁴，意為「我即是我」。
+
+這個層次的吟唱音調為：「hhhaaayy hhhheeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee## 層次七：平衡
+
+手印七：雙手握拳，讓手指之間沒有縫隙。雙手拇指相觸，右大拇指在左大拇指上。右手握拳，放在左拳上——不是交錯，而是平貼在另一拳的上方。將雙拳垂直疊在心臟前方。你會看到那構成一個三角形，三角形的頂點指向你的心臟。
+
+## 手印七：平衡層次
+
+平衡是一種意識狀態，進入其中，無論身處何種環境或處境，你都能完全感覺與自己同在。對平衡的人而言，他們自己內在或與他人相處的情境或經驗均無情緒壓力。那是種無論發生什麼都能完全接受的感覺。
+
+這個音調與手印會從其他實相和時間收集片段片段段的你，將他們帶回來並且與你內在結合。你再次讓自己完整。你正呼喚自己其他力量更強的部份過來加入你。
+
+平衡也意味著在所有處境中均能保持完全覺知以採取適當的行動。適當的行動就是能為涉入該經驗的所有人創造有益的經驗。當你充分平衡，你也能夠培養平靜：在你的心靈、身體和情緒，或者面對人群、文化、大地母親與天空之父相處時。
+
+你為這個層次創造的聲音是：「aaaahhhooohhhhmmmmm」。
+
+> 註：聲音接近「啊啊啊哈吼歐呵呵姆姆……」。
+
+## 層次八：真理
+
+手印八：雙手拇指分別碰觸第一指。第二與第三指內縮並碰觸掌心，同時雙手小指彼此碰觸——非常簡單。雙手放到心臟區域前方，同時保持水平。
+
+## 手印八：真理層次
+
+大多數人都很難保持真誠。除非你全然真誠地面對自己，否則你也很難對他人完全真誠。人類很害怕檢視自己並找到自己的身分。修練真理層次可以幫助你更完整地發現自己和自己正在演進的真理。這能幫助你了解更高真理。真理永遠都在演進，真理也相當龐大，因此沒有人擁有全部的真理。
+
+隨著你的進化，進化中的真理會出現在你的生命中。不過，由於我們的信念體系，我們通常會拋棄進化中的真理，並執著於我們在漫長時間中培育出的陳舊真理。
+
+這稱為真理層次是因為它表達了什麼是真正的我們。那是個三角形，靈魂、單細胞（monad）、以及「我是」的存在。（monad 指的是靈魂群體的存在，共有 144 個意識群的集合。）這個層次的手印乃是由造物主所給予。
+
+這個手印所吟唱的聲音來自古埃及文：「mmmaaa hhheee oooooohhhhhhmmmmmmmmmm」，這是個很長且充滿共鳴的單音，每個音段的長度都有所差異。
+
+> 註：聲音接近「姆瑪啊 呵呵嘻伊 歐歐歐呵呵呵姆姆姆……」。
+
+## 層次九：開啟偉大之眼
+
+手印九：左手握拳，中間沒有縫隙。右手張開，手指併攏。左手指節放在右手掌心。雙手放在心臟位置前方。
+
+## 手印九：開啟偉大之眼層次
+
+偉大之眼又稱為荷魯斯之眼，是你美麗的靈魂之眼。這讓你毫無錯覺地看見。沒有錯覺的面紗，你能看見自己生命的實相而沒有恐懼或偏見。我們是如此深陷於錯覺，因此忘記了那是錯覺。當你能夠向這個層次的意識開啟自我，那麼你便能更清楚看見實相。所有曾經在這個星球活動的大師，他們的生命都超越了錯覺。一旦你能醒悟到這個真理，你便能喜悦地活在這個世界，心中充滿平靜，因為你將知道這個世界乃是一個巨大舞台，上頭所有的演員都忘記自己其實活在舞台上。你能清楚看見身為演員的你在這個偉大遊戲中扮演的角色，因此你能選擇自己在這埸偉大的錯覺遊戲中要如何扮演這個角色。
+
+這個手印有兩個聲音。第一個聲音是：「eeelll ssshhheeeedddd iiiiiiiii」，要以長的單音來吟唱，其意義為「神之名字」。這些聲音將在這個層次喚醒。另一個聲音為：「hhheee mmmeee oooooohhhhhh」，其意義為「我是開放的，願意以神聖之眼來看得更廣。」很多時候，在練習這個手印時，你將看見光由第三眼進入雙手手掌，構成一個三角形。
+
+> 註：聲音接近「伊伊伊歐歐歐 噓噓呵呵嘻伊伊德德 伊伊伊伊伊伊」。
+> 註：聲音接近「呵嘻伊姆米伊 歐歐歐呵呵呵」。
+
+## 層次十：回憶
+
+手印十：左手四指握拳，拇指伸直。右手拇指碰觸左手拇指。左手手指張開，彼此保持距離。雙手放在心臟前方。
+
+## 手印十：回憶層次
+
+這個層次稱為回憶層次，亦即回想起你是誰，回想起你生命的目的。這個回憶是關於你出生時的靈視：你知道自己知道。一切都是清晰的。等到你回想起來，你便能取用你的阿卡莎檔案並且汲取各種讓你的生命在此刻變得更好所需的天份和能力。
+
+你可以請求你的靈魂回想起某些特定的情緒或天份，並且將之與你當前的生命經驗結合。無論置身何種情境，你都可以選擇自己的情緒經驗。你不再受到當下實相和其相關的情緒與感覺所擺佈，而是能無時無刻完全控制自己的生命。
+
+這個手印吟唱的音調是「sssooowww mmmyyyaaaaaaaa」，要以長的、充滿靈魂的單音吟唱，一次又一次。這是來自哈托爾的古老音調。等你練習這個音調一段時間之後，你會看到一明亮的光體出現在你的額頭前方，彷彿太陽出現在你的頭上，將光向你傾注。
+
+> 註：聲音接近「嘶嘶歐歐嗚嗚姆姆米伊伊亞啊啊啊」。
+
+## 層次十一：了悟
+
+## 手印十一：了悟層次
+
+這個層次稱為了悟層次，也意指與代表父親、母親的內在父神、女神的連結。透過這個層次，我們才了悟到自己就是造物之神，擁有洞見並完全了悟自己的真實。
+
+如果活化了這個層次，我們創造以來的全部歷史都會為我們所知，而我們也能記得並了悟自己本質即是亞當·卡德蒙（Adam Kadmon）。這也會幫助我們穿越許多更高次元，並且與更高次元的大師連結，讓他們進一步支持我們的靈魂成長。
+
+手印十一：雙手除拇指外其餘手指均握拳。右手拇指置於左手拇指下方。讓握拳的右手處在左拳的上方，讓右手拇指處在左手拇指的下方。雙拳垂直疊在心臟前方。
+
+> 註：神人或以人的樣貌存在的神，參見本書第十一章。
+
+## 層次十二：神
+
+## 手印十二：神的層次
+
+等到這個層次獲得活化，你便能以造物之神的形態活出自己的真理。你會有意識地參與這個宇宙的創造。針對這個層次冥想，請求自己神的存在能完全顯現在你的生命，成為活生生的真理。
+
+雙手放在心臟之前，彼此互不碰觸，同時進行這個手印。這個層次的音調為：「hhhuuummm yyyooooooo」。
+
+手印十二：這個手印做法是，右手拇指和小指相觸，右手食指上舉，第二及第三指內扣。左手的第二、第三及第四指內扣。左手拇指碰觸食指，其他手指內扣。
+
+> 註：聲音接近「呵呵胡嗚嗚姆姆姆伊伊唷歐歐歐」。
+
+## 靈魂 DNA
+
+人類正朝向自己真正的命運進化——人類將成為探索者，進行創造，成為內在造物主的表現，具備善意和魔法；人類將成為各個星球跨銀河聯盟的成員之一。
+
+> 〔阿肯納頓王，第二章，2013 年 5 月 16 日〕
+
+本書的發想是要支持人類了悟到自己有能力達到此一目標，能獲得這樣的平靜、自由和喜悅。這是解釋本書最簡單的方式。這需要讀者提升自己到達這樣的意識狀態，以便能從書中的技巧獲得益處，並且運用它們來達到某種層次，使自己能觸及更高智慧。
+
+> 〔山納·庫瑪拉，第六章，2013 年 6 月 30 日〕
+
+要教人知道時候已經到了。我們從人身上學習，不過我們必須走出自己的道路，以自己的方式，借助力量的培育來發現神。當我們被動跟隨，在某個層次上我們放棄了自己自己的力量。我們領受指引，但是我們要自己努力並找到自己的內在真理。最理想的書籍或通靈將帶領每位讀者回到自己的真理。請運用這本書並觀察它是否給你支持。
+
+> 〔聖哲曼，第九章，2013 年 7 月 25 日〕
+
+此刻降生在地球上的小孩，身上大約有百分之三十至四十的基因已經活化。他們的小孩，也就是第二代，將有百分之五十到七十的基因獲得活化，而他們的小孩，也就是第三代，會有百分之百的基因活化。
+
+> 〔阿肯納頓王，第二章，2013年5月16日〕
+
+新的孩子帶著更高的DNA束出生，他們將會創造新的實相。他們會明智地抉擇、運用自己的心，也就是自我的陰性部分，只會用自己內在所帶來的更高力量來創造善的事物。你們許多人……都為新的世代和他們的人鋪路。你們為偉大事物做了示範。你們為新的世代鋪好道路，讓他們行走。
+
+> 〔阿肯納頓王，第二章，2013年5月16日〕
+
+再過三十五到四十年，你們將看到巨大的轉變。你們和雷此刻正在做的會為第二代鋪好道路，讓他們能夠降臨。你們打下的基礎，讓新的一代，也就是我們孩子的孩子，能夠來到並且完全覺醒並完成校準。等到2021年之後出生的孩子長到13或14歲時，他們會擁有完全喚醒的DNA，也將知道自己真正的目的。
+
+> 〔聖哲曼，第三章，2013年6月19日〕
+
+2013年5月16日
+DNA大師群、阿肯納頓王、以及大天使麥達昶
+
+哈囉，我們是一群 DNA 大師。儘管人類 DNA 遭到修改，但是在我們看來，一切都還有希望。一切都深深藏著，而此刻該要開啟深藏於內的事物。
+
+我們不喜歡用「操縱」（manipulation）這個詞，而寧願使用「重構」（restructured）或「修改」的說法，因為這是為了某一目的而作，而且並非是由黑暗存在為了控制人類所做的修改。
+
+> 〔大天使麥達昶說：因為這個星球當時準備進行實驗，因此負責照顧此星球的議會決定進行改變，好讓人類出生時不記得自己真實身分。如此一來，他們便能完成他們的工作。我們說「改變人類 DNA 的人」有一部分就是這個意思。不過 DNA 修改不是為了控制，而是為了取走記憶，好讓人類能從事自己來到這個星球所需完成的任務。然而，後來有來自其他星球的非人類種族前來掠奪這個星球的礦產。他們比當前的人類工程師有更發達的科學，因此他們修改了人類 DNA 好遂行控制。因此總共發生兩次改變，其一為更高力量取走記憶，其二是為了控制所進行。但那是非常後來的事了。〕
+
+由我們的觀點來看，在歷史的進程中，某類的存在會自然離去，而新的存在會來到這個星球。人類 DNA 只受到輕微改變，但其目的卻非常重要：這樣人類降生地球時將處在未覺醒的狀態，因此他們將在黑暗中摸索，做出犧牲，面對重大改變。如此，他們才能更快地成長。之後，他們才能將這樣的覺醒與了悟帶到其他星球和銀河系來改變當地的進程。
+
+在完美的秩序中不會有什麼成長，因此造物主設計了一個絕佳計畫。他邀請志願者來到地球，不讓他們取用自己完整的意識記憶，因此他們需要以顛倒的次序努力。這會很不舒服，但由這樣的不舒服中，他們會成長，會將這樣的成長帶到其他星球並紓緩當地的不適。人只能在不適和挑戰中成長。這是我們的觀點。
+
+有些存在，他們為了一己利益，前來修改某些基因與 DNA。不過，他們這麼做，主要不是為了控制整個星球，而是為了商業利益，因為許多來自其他星球的存在前來開採地球母親（Mother Earth）的身體，取得珍貴的礦物和金屬並且帶走。的確，在某些方面，人類並未覺察到這樣的事正在發生，因此他們並未擁有完整的記憶。
+
+根據我們的觀點，一切都是由造物主所賜與，而且我們不相信造物主會允許其他的造物之神出於控制目的對 DNA 進行操控。那樣有什麼好處？這個星球被孤立起來是有原因的：這是個進行中的實驗。人類如何覺醒並取得完整的意識和改變，好讓他們能將這樣的體悟帶往其他星球並創造類似的改變？我們了解許多光之存在有他們自己的解釋，但是根據我們的觀點，我們相信事情就是因此發生。
+
+現在我們要回答諸位的問題。我們從未和人類說話，所以我們的溝通有點遲緩與模糊，請原諒我們。我們將會溝通我們在當前時刻被允許能溝通的。
+
+**首先，我想請您清楚解釋您的身分，好讓我們能向讀者清楚表明。**
+
+我們是 DNA 大師的集體本質；我們向來被稱為 DNA 存在。
+
+**所以您包含了十二束 DNA 的所有特質以及由此衍生的所有擴展、覺醒的意識？**
+
+沒錯。也因此許多人類，包括雷在內，都持續努力並融合更高自我的十二個層面，後者位於十二個星球。所以，我們必須觸及這十二層面並活化我們的更高脈輪來完整活化十二束 DNA。
+
+**連結十二星球與十二脈輪**
+
+**您提到的十二星球是什麼？在我們的太陽系，我們只算到九大行星。**
+
+親愛的兄弟，請等我們一會兒好嗎？〔暫停〕我要為前面的干擾致歉。這些星球分別是金星（Venus）、半人馬座阿爾發（Alpha Centauri）、天琴座（Lyra）、大角星（Arcturus）、斯泰隆星（Styron）、昴宿星團（the Pleiades constellation）、馬爾戴克（Maldek）、心宿二（Antares）、阿爾孔星（Alcon）、塞流士星（Cyrus）、仙女座（Andromeda）、獵戶座（Orion）。如果你能與這全部的星球連結，它們包含本質的一部分。這個本質可以稱為 DNA 自我的核心束。所以在你冥想的時段，你會和這些元素連結，因為它們內在全都帶有特定的振動能量以及特定的特質。
+
+**所以我們的十二脈輪分別與這些星球共鳴，是這樣的嗎？**
+
+正是如此。兄弟，即使在你傳給雷的材料中，有些也提到這點，不是嗎？
+
+**正確。這是個驚人的資訊。您能否告訴我們哪個星球連結到我們的哪個脈輪，可以由第一脈輪開始往上介紹嗎？**
+
+我們可以概略介紹。第一脈輪與金星連結，並且依照前述的順序往上直到獵戶座。第一脈輪是金星，第二脈輪是半人馬座阿爾發。天琴座是第三，大角星是第四。斯泰隆星是第五，昴宿星團是第六，不過後者向來扮演非常重要的角色。
+
+**怎麼說呢？**
+
+因為昴宿星團包含造物主最純淨的本質，而且這和你 DNA 的第六層完全連結。聖經也提到這個層次，亦即「我即是我」層次。第七層次是馬爾戴克。
+
+**馬爾戴克不是已經被摧毀了嗎?**
+
+在能量上它仍非常活躍。心宿二是第八脈輪。
+
+**這是我們所謂的跨人格點(transpersonal point)。**
+
+阿爾孔星是第九脈輪，塞流士星是第十脈輪，仙女座是第十一脈輪，獵戶座是第十二脈輪。不過，我們要再次提醒各位，要冥想這一點並觀察自己感覺到多少連結，因為這是我們的觀點。
+
+**改變自己的自我信念**
+
+**對一個嘗試要透過修持來學習、連結、活化這十二層次的人，你會說什麼?**
+
+我們會說，剛開始你必須思維並相信自己是個量子生命。那非常重要。如果你身為人類不相信自己比你以為的更大，那麼你將無法向更高意識開啟。所以你必須相信自己其實更龐大，在宇宙間有更大的目的。這樣的理解將會讓人類轉化。
+
+第二，在冥想中，你必須呼喚和這些星球特別相關的能量。如果你去搜尋，你將會找到和這些星球相關的資訊，關於他們個別的色彩振動，以及如何運用它們。不過，簡單地說，我要告訴一般人，想像你正坐在一個圓圈裡，這十二個星球圍繞著你。這十二個星球有特定的色彩振動，你能看到他們十二道色彩之流向下流進你。
+
+能夠喊出這些星球的名字也很好，因為我能隨便喊你，也能喊你羅伯，而當我喊你羅伯時，你的回應將更能出於你特定的能量表徵。所以，當你呼喚一個星球的名字，這個星球有其意識，也會將自己的能量下載給你。
+
+這是個非常單純的過程。我們試圖要做的事如下：許多人類、許多書籍、許多其他的教導都傳達普遍的感覺，認為DNA 很深奧，不是每個人都能修練的。我們希望簡化這一點，所以我們說：「只要與這些星球的能量連結，導出這些能量，那麼運用 DNA 是有可能的，因為一旦這發生了，你的更高脈輪將會自動地活化。」
+
+**所以更高的意識層次將會因為如此工作而自動地跟隨。**
+
+沒錯。還有一點需要記住：七個脈輪分別有自己的核心中心。每個脈輪都有自己的核心中心與意識。當我們談到第一脈輪，其實意識的第一脈輪有許多層次。你要活化第一脈輪的量子層面。
+
+**可否請你定義「量子」?那是否意味著跨次元?**
+
+是的，正是如此。舉例來說，你的心輪有24個次元。你甚至可以稱之為心室，不過在心臟內有許多的心室。每個心室都會越來越深入。
+
+**這聽起來好像我知道的還只是皮毛!**
+
+不，別這麼說，我們尊重每個帶來智慧與資訊來支持眾人的人。我們只是提出一個想法或一個參考點；就只是如此。
+
+## 靈魂 DNA
+
+  們尊重所有將智慧帶到這個星球的人。
+
+## 對於初次學習這點的人，就每個層面該花多少時間的實際層面，你還要說明什麼？
+
+  沒有規定每一層次需要花多少時間。此外，人們也不能特別說：「我現在要修練第六層次，或是我將要修練第十層次。」一切都和諧地共同運作。所有靈性修持都教導我們簡單的事物——愛、喜悅、平衡。當你提升自己的意識（當你淨化自己、療癒自己，很自然你就會提升自己的意識），這個意識將會自動活化這些層次。你不能呼喊說：「我想要在這個時刻活化這個層次。」
+
+## 我的意思是，當人們坐下來進行修練，他們是否該一一練習這十二個層次，每個練習五分鐘？
+
+  我們建議人們先觀想這十二個星球圍繞著自己，觀想他們傳送能量到自己身上。人們該嘗試找出這十二個星球的能量特徵、相關的顏色振動、以及個別的本質與特徵。然後從那裡開始。如此一來，他們會接收到更多，並且為十二層次的集體意識努力，好促成活化。
+
+## 我們學到聲音、學到手印、符號。我們該如何應用呢？
+
+  同樣的，這些都只是幫助你達到平衡的輔助工具。我們強調愛、和平、喜悅、平衡能量、清理、療癒、釋放。這些工具、手印、符號或聲音都只是基礎的準則，讓人達到平衡；僅此而已。從我們的觀點來說，我們不會太過強調它們的重要，因為最重要的是提升意識，如此一來才能活化 DNA。
+
+## 所以符號和手印只是達成目的的手段？
+
+  正是。不過讓我們告訴你到底 DNA 一般說來是什麼。DNA 基本上是資訊庫，因此你必須命令這些資訊庫打開並釋放資訊，好讓你能取用資訊組。不過 DNA 本身能做的不多；這些都只能互動……
+
+## 和人的意識互動嗎？
+
+  沒錯。那是個盒子。你必須命令你要它去哪裡，盒子才會帶你去那裡。因此，你必須活化你的 DNA 並且與它合作。等到資訊組打開，那麼許多事物都會來到。會出現什麼呢？你的故事、創造的故事、甚至是各個時代的故事。我們稱之為資訊庫。
+
+> 一位老師曾說，宇宙就在我們裡面。我認為這是為什麼每個人內在都有宇宙的關鍵或原因之一。
+
+  等到你記得自己是誰，你就知道自我身分的完整、自我的歷史、星球的歷史、以及宇宙自身的歷史。
+
+## 陳述並遵循意圖
+
+  現在我要問你一些問題，關於你會如何建議想將這樣的工作落實在生活中的人；他們該做些什麼，避免什麼，例如酒精、毒品、性行為和某些食物。這些是否有害於他們所做的努力？
+
+  當你嘗試要重新創造自己，你所創造的每個經驗都必須與其真正的目的和意圖保持和諧關係。無論是什麼樣的活動都沒有關係。關鍵在於你嘗試要創造的意圖。沒有什麼特定實相說你不你可以吃「這個」或不可以沈溺於「那個」或你不可以做「這個」。你也許會好奇：「對每個走在自己道路上的人而言，這是否支持他們所希望創造的事物？」
+
+  只要陳述你最高的意圖就好。宇宙會聽到，你想要更加認識自己的渴望將會為 DNA 活化做好定調。真正釋放並和更多光連結將會提升意識並開啟這個過程。所以，當你具備智慧，你會與自己的細胞溝通，因為 DNA 就在你身體的每個細胞內。
+
+## 這樣的工作是否關係到和地球的意識建立連結？
+
+  當你開始啟動這樣的工作，你很自然就會與萬有（All That Is）連結，包括大地母親和造物主更高層級的意識。
+
+## 您還希望我知道或向他人傳達什麼？
+
+  要相信你是偉大的存在，擁有許多更高的潛力和可能性。當前以肉身存在的你只是真實的你的一小部分，而且你生活在這裡是為了更宏大的目的。你和整個宇宙本身連結。對自己有這樣的信念將會立即開始這個程序。多數人類即使到了此刻仍不相信自己更加偉大。百分之八十的人類或許會相信某種形式的死後生命，不過他們仍不相信自己遠比自己在地球的物質存在更為偉大。你是否相信你比自己更為偉大？
+
+  我相信有某部分的我是這樣，但是我尚未能真正有效地與它們連結。
+
+  這是我們希望導出的領悟。只要你相信這點，你便能努力更深入發現自己。如果你還不知道自己有更高自我，那麼你就會想與之連結。這就像生命中的一切：如果有夢想，你便能朝之努力。如果你相信自己有更高的潛能，你便能夠達成，接著你便能努力與自己的更高層次建立連結。
+
+## 2012年12月21日
+
+  能否請您解釋 2012 年 12 月 21 日發生了什麼事而啟動這個過程？
+
+  時機對了。讓人們帶著對自我與自己真實身分有限的認知而降生的實驗逐漸結束。越來越多人了悟自己真正的本質。越來越多的人類將會覺醒，一切都完美地規劃好讓這能夠發生。首先是磁場，接著是水晶意識。首先，磁場轉換並改變，接著出現這全新的水晶意識的開啟。
+
+  從 1987 年的「和諧匯聚」（Harmonic Convergence）以來，人們選擇擁有全新的實相。許多新的教導和知識來到。同樣的，當人類選擇更高的實相——並且信任它——那麼人們會投入並創造另一個新的轉換。這是宇宙運作的方式。我們所見的危險在於人類太過聚焦於 2012 年 12 月 21 日。是的，那是個轉捩點，但是我們不希望人們停在那裡。還有更多更多。除了 2012 年 12 月 21 日之外，還有更多更多轉捩點的日子。若非如此，人們將會停留在那個空間。但如果人們知道還有其他的日子、其他的能量、其他的日期即將來到，那麼他們可以為此努力，培養自己和更高自我的連結。
+
+## 擴展你對自我的覺知
+
+  您是否可以建議我們如何呈現這樣的工作？是否該以手印、聲音和符號當作基礎？你會如何將這教給別人？
+
+  教導別人這些知識——告訴他們所謂的自我和本質遠比他們以為的更多，全都編碼在他們的 DNA 內，可以透過提升自己的意識來加以活化。從我們的觀點來說，這就是關鍵，要一再重複，好讓人們知道自己內在的偉大。為你舉個例子，想像一棵巨大的紅杉樹（或任何大樹），想著它最初只是一棵種子。想像這顆種子如何擁有能力長成樹齡數百年的大樹。種子也有能力不去成長並且在數年後死去。
+
+  人類也是如此。如果人類能轉變自己的思考模式，就會有越來越多人覺醒並活化自己的 DNA，並且讓人們知道他們能觸及自己更寬廣、更崇高的層面。這不是魔法，有其他導師已經這麼做了。世界已經有太多大師。這些大師相信還有更崇高的層面，因此他們努力朝之前進。這些大師只是為你示範你能怎麼做。由於地球的磁極轉換，現在已經更為容易。帷幕已經去除，實驗已近尾聲。
+
+## 已近尾聲是什麼意思？
+
+  人類來到地球，對自我的成長只帶著有限的知識和理解，這樣的實驗現在已經結束，因為新的孩子出生，他們有更高的振動模式，也已經有更高的 DNA 活化。
+
+## 所以現在出生在地球上的孩子，有一些已經活化了更多的 DNA 束，這是您的意思嗎？
+
+  此刻降生在地球上的小孩，身上大約有百分之三十至四十的基因已經活化。他們的小孩，也就是第二代，將有百分之五十到七十的基因獲得活化，而他們的小孩，也就是第三代，會有百分之百的基因活化。
+
+## 你能否再談談古埃及發生了什麼事以及這些修持當初如何進行？
+
+  好的，讓我們來和那些大師進行溝通。
+
+## 負責任地提升意識
+
+  我珍愛的兄弟，我是阿肯納頓王。我們古埃及的大師很清楚 DNA 存在於每個人的體內但後來卻遭到遺忘。我們所有修持都是設計來活化沉睡的 DNA。神殿和神祕學院的各類儀式和啟蒙都只是為了這個原因：要活化 DNA 並彰顯更高脈輪。
+
+## 感謝您。那真是美好。我們可否假設，那些資訊之所以遺失或受到扭曲，是因為某些神職人員？
+
+  很多時候，資訊被隱藏起來是因為，如你所知，完全覺醒的 DNA 帶著更高的振動頻率，因此在顯現的過程中，創造會立即發生。如果你未覺察自己創造所帶來的後果，那麼很可能會發生某些處境讓人類運用這個資訊造成巨大災難或摧毀整個星球。在地球上，人類生命只有一個目標：要徹底理解所有創造物及其後續的各個細節與層面，因為你將要把這樣的理解帶往其他星球並促成發展。
+
+## 除了古埃及外，還有其他文明認識到 DNA 活化嗎？
+
+  當然——印度和西藏——還有許多文化和所有薩滿巫醫都很清楚。這個知識被當成秘密，是因為他們不希望這樣的高頻能量落入錯誤的人手中。讓我問你一個問題：如果明天，某個普通人獲得了一百萬，你認為那個人會明智地使用它嗎？
+
+## 很可能不會。
+
+  如果你看看許多獲得大量財務支援的年輕人，你會發現他們經常會摧毀自己的生命或完全浪費自己的能量。需要某種成熟度才能讓人有智慧在生活中擁有這麼多錢。DNA 也是如此。當你修練 DNA 所有的層面，你的手中將握有巨大的創造力量。想像一下，當你所有 DNA 束均已活化，隨便一個想法會創造出什麼。
+
+## 絕對會造成大災難！
+
+  正是如此！所以這個知識被隱藏起來，當成秘密。因此許多接受啟蒙者需要一而再、再而三接受試煉。
+
+## 那麼現在又有什麼不同呢？為什麼人類不會用這種擴展的意識來造成災難？
+
+  因為人們已經了解他們摯愛的星球已經被他們摧毀了好幾次。最初，人們遺忘了，但是他們集體提升了自己的頻率，因此現在他們已經了解，也不希望再次發生。
+
+## 所以這些意識能力是否有被某些人誤用的危險？
+
+  當然，即使現在也是一樣。因此需要許多年和許多世生命才能企及更高意識的階段，讓你絕不會誤用這樣的力量，絕不。你只會運用這種力量來創造善意和愛。
+
+  想像一下，你有能力——只要十二束 DNA 都活化——同時身在兩個或三個地方，或是所謂的「雙重維度存在」（bilocate）。你能想像某些人會做什麼嗎？他們會跑進某人的臥室或創造出許多東西——顯化他人想法的能力、控制他人的能力。所以這種知識當然要當成秘密；必須隱藏起來，因為人類必須真正了解每個行動的後果。親愛的兄弟，你可是在玩火。
+
+## 但是現在我們正要將它公諸於世。
+
+  因為我們相信人類已經達到相當的意識等級，不會去誤用它。這個資訊不會被處於低等意識的人類碰觸。
+
+## 他們不會受到它的吸引嗎？
+
+  不會，一點也不會。
+
+## 能不能請您談談人類的未來？有了我們即將釋出的改變，您眼中的人類百年後或千年後會如何？有什麼計畫嗎？
+
+  我們相信人類有希望。
+
+## 您看到我們正走向何處？
+
+  走向你們的命運——要成為探索者、要去創造、要成為你們內在造物主的表現並帶著善意和魔法，要成為各星系跨銀河聯盟的成員。這非常有可能。
+
+  當然，人類是否能再次轉變仍有所疑問。你要知道，如果你看現在的新聞，你會有不同的看法。似乎一切正走向相反的方向。不過我們感覺、我們也相信集體的意識能再次轉變這個實相。人類已經在 1987 年至 2012 年之間轉變了。接下來的重要年份為 2020 年、2032 年、以及 2044 年。這些日子將帶給我們決定性的因素，指出人類如何真正走入新世紀。
+
+  我們相信帶著更高的 DNA 束出生的新孩子，他們將會創造新的實相。他們會明智地抉擇、運用自己的心，也就是自我的陰性部分，只會用自己內在所帶來的更高力量來創造善的事物。這是我們真正的希望。我們相信的是，你們許多人，包括雷和其他人，都正為新的世代和他們的人鋪路。你們為偉大事物做了示範。你們為新的世代鋪好道路，讓他們行走。
+
+  那真是美好。我也真的相信人類正走向好的方向。我們今天見證到的地球上的混亂，其實是舊秩序的死前掙扎，也唯有如此，新的事物才能建立。
+
+  但是你知道人類有能力轉變這點，能創造出善。所以我們相信他們將會做出明智的選擇。現在大天使麥達昶要和你說話。
+
+## 運用聲音來提升意識
+
+  我是麥達昶。上星期我自己和雷一起找出了某些音調。那是由巴巴吉（Babaji）和其他女神存在所完成的。這聲音是「oh him」¹而女神聲音是「ah him」²，所以當你吟唱「oh him」和「ah him」，你正呼喚自我內在陽性／陰性能量的平衡，亦即男神／女神。〔大天使麥達昶每個聲音示範了三次。〕
+
+  在所有古老的學院裡——包括印度、西藏、以色列、埃及、蒙古等——聲音主要適用來當成提升頻率的振動工具。聲音和身體內在的意識有非常好的共鳴。細胞會隨著聲音共鳴，而細胞內又有 DNA，所以 DNA 會和某些聲音頻率共鳴。所以你要時時運用聲音。
+
+  在萬物之中看到造物主，如此你將會自然地覺醒到 DNA 意識的最高層次（束）。如果你能在一切事物內看到神——無論是花、是狗、整體、或人類——自然地你也將覺醒到神的意識，這正是 DNA 層次完整活化的狀態。
+
+  運用聲音的方式包括使用金屬頌缽以及瀑布或輕柔流水的聲音。當你聽到這樣的聲音或當你置身於小溪或其他溫柔流動的水旁，會有什麼感覺？你覺得很好。為什麼你會放鬆？是你的細胞所致；聲音會影響你體內的細胞。所以你可以增加某些和水相關的儀式以提升你的意識，因為水能夠轉變並確實活化更高束的 DNA。
+
+  我會這麼做。
+
+## Chapter 3 喚醒水晶意識
+
+2013年6月19日
+聖哲曼
+
+  我是聖哲曼。當你每天早上醒來，開始一天的方式就是祝福這一天，說：「今日我將共同創造自己生命中最好的一天。我祝福這一刻。我祝福這一天。」這個簡單的練習真的可以強化你的生命，給你力量，讓一切變得更容易。
+
+  用意圖開始一天是個不錯的主意。當你處在和諧狀態，你便會共同創造那天所發生的一切。你處在事物的流動之中，宇宙會回應你，事物都各就各位，因為你正在請求協助。當你請求協助，協助總會到來。當你在以色列旅行，規律設定意圖，那麼一切都會水到渠成。
+
+  透過意圖，你會致力於以自己所能最善意的方式去共同創造今天你該做的事；在事物的流動中，宇宙會支持你，指導靈也會支持你。
+
+## 水晶和磁場意識
+
+  以人類開始認識自己的起源這件事而言，水晶意識和磁場意識有什麼差別？
+
+  這個星球乃是設定來提升頻率，因此人類可以來到這裡卻未曾徹底瞭解自己是誰。人類可以在黑暗中成長和學習。這件事的發生牽涉到許多因素，其中之一就是地底的磁場。在強大磁場下，你會傾向於安定在一個概念或一個地方，不去前進。這是有意造成的。
+
+  最近，地球的磁場改變了。負責導航的船隻很清楚這點。他們必須調整自己的海圖；你會看到新的線條反映出磁場的改變。也是因為這樣，動物才會擱淺或迷航。牠們的遷徙遵循特定的磁場路徑。磁場改變，因為人類意識改變了，提升了。
+
+  在磁場矩陣下方是水晶意識矩陣，那是多年前由原型龍（archetypal dragons）所設置的。水晶意識覺醒只能在磁場移除之後才能發生，磁場移除只有在人類意識提升之後才能發生。原本世界會在 1999 年結束的典範也因此轉移直到 2012 年。人類轉變這個典範，因此開啟了新的時間軸——水晶意識的時間軸。現在我們處在水晶意識之中。這個能量處在每個人類內在，這不僅是水晶意識的覺醒，也被視為基督再臨。
+
+  覺知自己神聖的神性，接受自己內在乃是神，這到底是什麼意思？這樣的接受——加上你接受自己與萬物有著共同連結——將會讓物質身體的細胞結構改變為水晶意識。身體必須達成至少讓百分之 33 的細胞擁有水晶意識才能揚昇。完成讓身體超過百分之 90 的細胞具有水晶意識的人，一旦揚昇將成為導師和大師。照片中，他們的喉嚨將顯示出聖光，因為他們的細胞結構已經完全發展出水晶意識。
+
+  在 300 年內，地球的全部人口將會讓自己的細胞改變成水晶結構。所以水晶意識的真正意義乃是基督意識的覺醒，覺醒到你和萬物有共同連結，了悟到你是萬有的一部分，你是神聖的。你就是神。
+
+  那是個美好的答案，相當振奮人心。非常感謝你。那真美好。
+
+## 轉變二元性
+
+  以已經影響人類這麼長時間的負性力量而論，地球上的二元性會變得如何？
+
+  此刻二元性正在緩慢轉變。逐漸地，人們正在覺醒，會告訴自己：「我的生命不只是僅僅存在、只是賺錢或討生活。」這不會發生在每個人身上，只會發生在少數人身上。覺醒者的能量正在影響尚未覺醒者。
+
+  未覺醒者還在沉睡，他們想繼續沉睡下去。不過某些覺醒的人閃耀著明亮的光芒，這會干擾未覺醒者。有人在房裡睡覺，假設有人進來點亮燈泡，那位睡著的人會喜歡嗎？那個人或許會非常生氣。
+
+  此刻正在發生的就是如此：越來越多光明點亮了黑暗的角落。你在美國看到美國政府偷偷地側錄人們的交談。某人點亮了光，醜陋就出現了：「我們需要殺死開燈的人。」所以此刻發生的重大事情之一就是這個。你會看到越來越多人覺醒並點亮自己的光。
+
+  並不是說二元性慢慢走進尾聲，而是人們逐漸瞭解二元性的本質，知道二元性為什麼被創造出來。這是巨大的改變。
+
+  二元性的目的為何，我們在世界舞台又採取什麼行動和劇本？理解到我們設計二元性來教人類一課是個巨大轉變，是整個星球意識的量子跳躍。
+
+  我們還未準備好接受這種理解。這大約會在 40 年或兩個世代後發生。再過 35 到 40 年，你將看到巨大的轉變。你和雷此刻在做正是為第二代的到來鋪設道路。你正在披荊斬棘，讓一個新的世代，我們孩子的孩子，將能到來，屆時他們已經全然覺醒與校準。等到 2021 年出生的孩子十三或十四歲，他們將會擁有完整覺醒的 DNA，也將知道自己真正的目的。
+
+## 常人的DNA與揚昇大師的DNA
+
+## 揚昇大師的 DNA 和普通人的 DNA 有什麼差異？
+
+  我會說其實沒什麼差異。兩者均包含相同本質。不過揚昇大師的 DNA 有超過十二個層次。大師的 DNA 還有許多其他次元。舉例來說，偉大大師具備活化 DNA 的全部 144 束。普通人，即使在揚昇層次，只會活化十二個層次，所以即使你能活化 DNA 全部的 144 個層次，即使時間不長，普通人都必須努力才能維護並穩定這種能量。或許你將能三不五時活化這樣的意識並維持一段時間，不過必須維持並停留在那個層次，這樣大師才能成長。大師能夠保持那樣的振動，並加以維持，如此它才能成為自己的一部分。人們會穿越不同層次的揚昇實相。你不是只揚昇一次。揚昇是個過程。你會經歷許多揚昇層次。
+
+  真正發生的是我們會揚昇許多次。你〔羅伯〕幾個星期前在以色列，你透過許多活化和通靈，或甚至身處於那個國家的能量中便能提升自己的振動。不過你回到紐約時是否能維持同樣的振動呢？或許不行。揚昇也是如此。
+
+  你有能量向下發射，經由脊椎進入頂輪，在某些地方、某些時候、或者在深度的靜心中給你啟發，不過你無法維持。揚昇大師能夠維持。所以大師跟正在途中的人的差異便在於此。大師能夠維持。
+
+  看看達賴喇嘛。你認為達賴喇嘛沒有遭遇到挑戰或問題嗎？當然有，不過他能維持自己的平和。那就是凡人和大師的差異。大師能夠維持。人們會說：「我的拙火（kundalini）上升了」，我們的回答是：「那很好，不過你是否能維持，穩固，並從這點開始成長？」我會說差別不大，除了一點：大師能夠維持高頻振動能量，將之與自己的存在完全融合，並且將之帶往下一個層次——因為大師也在成長。
+
+## 您提到 144 個層次，也就是十二乘以十二。換句話說，人類的潛能不僅僅是十二束，而是可以幾何倍數增加？
+
+  正是。當你看看安娜（耶穌的祖母），她活了數百歲，活化了不僅十二層次還有其他更高的層次。人類在這個時代是可能做到這點的，而且人們也開始相信自己能做得到。這是最主要的事之一。如果全世界相信你不需要死，那麼你自然會看到越來越少人死亡。人們的信念是如此重要。當然，人們還是會死，不過他們會有意識地死去，選擇自己何時要走，壽命也會
+
+---
+1 註：聲音接近「喔 呵伊姆」。
+2 註：聲音接近「啊 呵伊姆」。
+
+## Chapter 3 喚醒水晶意識
+
+更長。
+
+## 所以癥結在於只要改變信念的層次就能做到?
+
+確實如此，要相信自己能做到。大師都非常確定，相信自己有掌控力，不會搖擺不定。賽巴巴（Sai Baba）和耶穌就是如此來行使奇蹟。你仔細想想，在他們呼喚時，他們會懷疑自己能夠顯化嗎？他們百分之百肯定他們當下即能顯化。大師們命令自己的身體也是如此；他們知道當他們命令自己的身體，他們便改變身體的細胞結構。
+
+此刻當你看著自己，文字的力量在你自己的生命中已變得更加強大，顯化自己既有意圖的時間也變得越來越短。不過大師們每說出一個陳述，都會全然相信其真實，因此他們的 DNA 也會完全接受。不過 DNA 只是工具箱、資訊箱，是你的意識、靠你的命令才能啟動這個工具箱。是你的信念、你的意志、你的話語、你的信念。
+
+## 動物和人類的 DNA
+
+我在克里昂關於 12 束 DNA 的著作¹中讀到非人類的 DNA 並未內含造物主，因此我們可以假設造物主的本質存在於人類的靈魂 DNA 內。我想聽聽關於植物及動物的 DNA 以及人類 DNA 的關係，您有什麼看法。
+
+從我們的觀點看來，所有生物都有 DNA，它們都是造物主本身的一部分。萬物及所有 DNA 和人類都相互連結，即使動物也有偉大的智慧和偉大的意識。難道能說海豚沒有偉大的意識？或者樹沒有？它們全都有意識；它們全都有 DNA。
+
+所有生物彼此都相互連結。你認為鯨魚為什麼唱歌？牠們歌唱，好讓所有生物——無論動物或植物（包括人類），只要體內含有水份者——都能因為聽到牠們的聲音並因此活化 DNA。
+
+某些動物有不同層次的 DNA。例如，大地母親有超過 12,000 個 DNA 層面。所以 DNA 各有不同，因此不同的 DNA 類型也有不同的意識。烏龜有 7 個 DNA 層次，人類則需要修練 12 個層次，不過烏龜的 7 個層次有不同的意識類型，獅子或許有 14 或 15 個層次。
+
+## 透過 DNA 與創造連結
+
+## 我們能否透過自己的 DNA 來與動物連結？
+
+當然，不只是與動物連結，更是與所有創造連結。當你開始鍛鍊並活化 DNA，你便與萬有連結。你將了解自己和動物並無不同，因為意識乃是相同，但振動的頻率不同。這顯示你正獲得啟蒙，顯示你和萬有合而為一，因此你和小狗之間無所分別。
+
+## 所以動物能如何幫助我們提升自己的 DNA？
+
+每個動物都帶著特定的意識和振動，而且每個動物都是每個人的支持和嚮導。美洲原住民很清楚這點。當你和動物連結，可以請求牠們將意識轉移到你的 DNA，進入你的能量場，這能提升你的振動和意識。你的 DNA 將因此活化。
+
+或許你想和獅子連結，因為獅子具備強大的勇氣和責任感。獅子也是明智的領袖。如果你缺乏這些特質，或是希望自己能強化這些特質，那麼這樣的連結會立即提升你的振動，也將變得更加平衡、更負責的人類。牠們不是為了享受而殺；牠們是因需要而殺，也會尊重其他動物。那就是你能藉由與動物連結所獲得的特質。
+
+假設你與母牛連結。母牛是全然的大師。在給予上有困難，或是執著於事物上的人，可以從與母牛連結而獲益。母牛是全然的付出，可以幫助人徹底開放。母牛會說：「來拿走吧，我不在乎，因為我知道自己是永恆的存在。」母牛是真正的大師。
+
+就以禿鷹為例：你認為美洲和其他文化為何尊敬禿鷹？牠們有許多特別的特質，不僅是尊貴。牠們是鳥中之王，也非常專注且有清楚意圖。牠們知道一切最準確的時機。對任何事，總有最完美、最神聖的時機。即使意識內在的正確時機也是神聖時機。不會在之前發生，也不會在那之後發生。它發生在那個時間點。所以一切都是神聖的時機。
+
+鷹能幫助你在生命中找到最恰當的時機來脫離任何計畫，因為鷹在天上雖能看到七公里之外，但牠不會直接飛向獵物去捕捉，而是等待最完美的機會，縱身一撲，攫獲獵物並即刻消失。
+
+當你藉由意圖將這類能量和你生命中需要強化的部分結合，那麼你的意識和你的振動都會自動提升。一切都有助於強化你的振動。動物有助於強化你的振動，並促進 DNA 活化。
+
+## 向基因學者解釋十二束 DNA
+
+您會如何將十二束 DNA 的系統介紹給基因學者，他們只是在科學、理性、物質的基礎上研究 DNA，所認知的也僅是雙螺旋 DNA？
+
+過去四、五百年來這一直是問題的核心，靈性的人們一直希望說服科學〔或宗教〕社群，許多人也因此遭到迫害。哥白尼（Copernicus）和伽利略（Galileo）遭遇了什麼？其實變化並不大。現在，如果你說這樣的話，很可能人們會說你瘋了或者將你送進瘋人院。
+
+要科學家理解 DNA 的能量和意識層面很難。不過科學家已經開始發現孩子有所不同：孩子的想法不一樣了。教育家慢慢地開始注意到這點；他們看出較新孩子的不同。新孩子和之前的世代非常不同。教育家會開始想到這點。某些教師認為這是注意力缺損症候群（attention deficit disorder, ADD），建議使用藥物。不過聰明的教師知道新生的孩子有些不同，儘管他們仍無法確定。
+
+剛開始了解到新孩子出生時帶有某些更高事物的科學家也是如此，因此他們會開始檢視這一點，會發現人必須回到這些孩子出生的時間，回到他們降生於這個新實相的方式。這些孩子用和第三次元相當不同的方式理解實相。他們會最先在英格蘭發現這點。
+
+## 科學家需要能夠在實驗室看到才能相信。不過，您是說他們因為新孩子的降臨就會了解嗎？
+
+不只是這樣；等到正確的時機到來，準備受到啟發的人就會得到啟發。如果人們還未準備好進行量子跳躍，那麼資訊就不會給予人類。不過等你提升自己的振動，更多的靈性禮物便會降臨。
+
+例如，偉大的科學家特斯拉（Tesla）導入許多關於免費能量的資訊，他也向人們示範如何透過地底磁場來獲得永久的能量。不過他不能將之實現。為什麼？靈性階層阻擋了他，因為這些發明可能會被軍方當成武器使用。人類還未準備好要運用這個來行善，因此它就被阻攔下來。
+
+## 是否可以說，我們現在正準備好要能夠獲得免費能量？
+
+再過四到五年。你將看到越來越多相關的新資訊出現。隨著意識提升，你將看到越來越多技術和科技被下載，因為更多人類已經有意識地準備接受。
+
+以下是個具體而微的實際運用。過去，橋樑建築者需要許多支柱來支撐。在印度、西班牙和歐洲，支柱已經不再需要。橋樑透過張力索來支撐。為什麼這會在過去十到二十年間發生。為什麼不是在 1940 或 1950 年發生？
+
+## 因為我們還沒準備好？
+
+正是。這也是一樣。所以等到人類準備好，有越來越多的科技就能被下載。不過我們必須先確認這個科技不會落入想製作大規模毀滅性武器的人手裡。
+
+## 科學是否將能偵測並測量 DNA 的能量或意識層面？
+
+至少得再等四十到五十年，不過科學最終會開始接受人類遠遠不只是他們在物質層面所見到的。他們不會用跨次元的說法，不過他們會說人類遠遠超過物質身體所能偵測到的。這一點本身就將是量子跳躍。他們或許不會說跨次元，但是他們會說人類除了物質身體之外還有更多更多。
+
+## 宇宙能量以及與之保持連結的效應
+
+## 您能否討論過去十或二十年間以及更長遠的未來宇宙能量對人類 DNA 的影響？
+
+宇宙能量包含更高頻的振動。當你在大師和指導靈協助下透過內在矩陣（inner matrixes）來吸納高頻能量，自然你的意識就會提升。
+
+## 所以地球是否承受著能量的轟擊，而能夠吸收並結合的人就能提升？
+
+能夠了解這正在發生、也願意與之合作並接受的人就可以。並不是每個人都在接收這樣的能量。不過有多少人知道這正在發生，又有多少人願意與它合作呢？
+
+去年（2012），我們看到金星凌日（transit of Venus）。這是非常重要的事件，因為距離上一次金星凌日只隔八年。這通常每 130 年才會發生一次。這是非常意義深刻的事件。考慮全地球人口，你認為多少人知道金星凌日呢？
+
+宇宙意識隨時都在，現在也正在下載，不過有多少人願意與它合作，即使他們知道？宇宙能量垂手可及，但是人必須經常且持續地與它一同工作。耶穌大師就是這麼做的。他每天祈禱，能直接和造物主溝通，並持續地和自己的更高自我溝通。儘管他因為物質界的職責而非常忙碌，但是他的內在仍持續保持連結。親愛的各位，那就是大師，而且你也必須做同樣的事——要持續保持連結並運用你所接收的能量。要有意識地「選擇」保持連結。你能做到嗎？
+
+我會嘗試。
+
+## DNA 為無限迴圈與生命之花
+
+我們通常認為 DNA 是雙螺旋，像一座階梯。不過某些研究顯示它不是階梯而是迴圈，而能量的導入或創造是在這些交錯的迴圈中產生的。那樣的說法是否正確？
+
+那是真的。事實上，DNA 會改變，而所有的 DNA 此刻都在變成迴圈，就像無限大的符號（∞）。
+
+## 所以原來 DNA 像個有兩端的階梯，但現在它已經彼此連接並轉變成迴圈？
+
+它從來不是完全像座階梯，而是彼此交錯。我們知道你在問什麼，不過此刻它真的正在變成迴圈。最終它將變成生命之花，迴圈則在它四周圍繞。
+
+## 那是否在更多 DNA 束活化後就會發生？
+
+是的。當你將自己的意識提升得更高，你就能命令自己的 DNA 活化。DNA 乃是資訊，而你需要去命令它。現在時機已到，該讓人類接受自己是十二束 DNA 的生命。如果人類不相信自己是量子生命，那麼什麼都不會有用，不管我們給他們什麼樣的教導都是一樣。
+
+人類仍將視自己為完全的物質生命。不過，等到人們相信自己更加巨大，那麼巨大的轉變將會發生。此刻，在你的日常生命中，你是否相信自己是量子生命或只是羅伯？在意識層面，當你開車上班，你是否由量子意識出發或者你只是凡人羅伯？
+
+我會說我是由所有的我、由羅伯出發。
+
+說的好。在你做的每件事中，試著看到自己由自我的所有層面出發——你是量子或者說多次元的存在。慢慢納入這個觀點，直到那成為自然而然的事。下次我們對談時，請試著讓問題出自於你十二次元的自我。我保證問題會大不相同。
+
+## 靜心技巧
+
+## 您可否傳授我們某些靜心技巧讓我們練習？
+
+你可以試試這個簡單的技巧：觀想你在金字塔內，在你身處其中的金字塔上方還有另一個上下顛倒的金字塔。你的十二束 DNA——或者說你那力量強大的「我是」存在——就在那上下顛倒的金字塔上方。經由呼吸將那個存在吸入你的存在，慢慢、慢慢地將它和你自己結合。我們建議你試著這麼做，因為這能提升你的振動。
+
+另外一個技巧是想像你的心有一圈光，十二束 DNA 經由你的喉嚨和身體航行，像無限大的符號。想像你是生命之花，十二個無限大的迴圈彼此交錯成為十字形狀。
+
+## 十字交錯的中心是你的心嗎？
+
+不，這裡沒有心。這是你全部的存在；你是生命之花。你在圓圈的中心，十二個無限大的迴圈在你四周環繞。你是能量身體，而這十二個迴圈透過你的能量身體穿過你。你會開始結合這個能量，將之合併，最終你會變成生命之花。
+
+## 所以重點是觀想自己出在這十二個無限大迴圈的中心？
+
+正是如此，而且如果你想更刺激一點，可以想想這十二束有十二個不同的粉嫩顏色——七脈輪的顏色〔紅、橘、黃、嫩綠、淡青色、靛色和紫羅蘭色〕再加上金色（8）、白金色（9）、土耳其藍（10）、淡粉紅（11）和紫紅色（12）。
+
+沒有一個技巧可以適用所有人。你必須相信自己是量子存在——相信自己能提升自己的振動——能活化你的十二束 DNA。即使你不去修練 DNA，你也必須知道總有些你能做的事。
+
+在新世紀社群中只有極少數人討論到 DNA。我們的職責是將 DNA 的概念帶給更廣大的聽眾，因為如果你不認為那會發生，或許就真不會發生。
+
+## 災難性的死亡對 DNA 的影響
+
+## 我覺得美國累積了許多業報。
+
+許多國家都累積了業報。許多國家也能透過行善來轉化業報並加以療癒。當你行善，你會療癒許多業報。在 911 之前，美國的心胸更為寬大。政府接受數百萬人移民。如果一個國家開放邊界並從世界各地接納人民，它的心輪就會完全開啟。美國人曾經心胸寬大，會慷慨地接納人們進入自己的國家。無論何時，世界各地若發生天然災害，美國人總是最先抵達，解囊支持。不過現在他們不這麼做了。當美國人關閉邊界，他們也關閉自己的心。
+
+你認為美國人為什麼如此粗獷且充滿侵略性？加拿大人相形之下更為溫和，與自然有更強的連結；他們的土地更加純淨，人民也是如此。除此之外，美國有許多人擁有槍枝。
+
+## 所以還有很多工作得做。
+
+不過會有新的導師和新的大師來臨，他們會協助療癒並修復這些過去的生命，尤其是尋回種種因折磨和創傷而失落的靈性教導。那將是我們能贈予人類的最大禮物。這是個非常廣泛的主題，需要在不同的層次努力，不過現在也可以進行。
+
+我們隨時為各位服務。我是聖哲曼，你的朋友。
+
+---
+
+## Chapter 4 運用能量提升 DNA 等級
+
+2013 年 6 月 24 日
+大天使麥達昶、聖哲曼、DNA 大師、耶穌的祖母安娜
+
+早安，我是大天使麥達昶和聖哲曼大師。讓我向你獻上問候和愛。你正以自己的方式在這個全新的時間軸上快速移動。你將獲得的許多禮物之一將是能跨越許多時間軸並進行次元旅行，獲得次元經驗。這項禮物是來自你自己的靈魂，因為你已經做好準備。你將能前往其他次元實相。你或許想稱之為某種形式的旅行、星際旅行或其他名字，不過我們將稱之為「彼岸」（beyond）。
+
+## 創造能量儲備
+
+我們請你考慮的事情之一就是可不可以在你感覺良好時，在居家某處儲存好的能量。當你感覺不佳時，你就能前往自己儲存好的能量的地方，如此便可立即感覺提升。這稱為創造能量儲備。
+
+> 大天使麥達昶：有時候你會感覺非常好。你掌握事物的流動。一切都很完美。你感覺很棒，能量充盈。這時前往你在家中挑選出的某個房間角落，坐下來靜心，將這些額外能量導入這個角落。你也可以使用某個物件：一塊水晶或石頭。
+
+人類並非每天都處在同樣的流動中，並非每天都有同樣的能量和熱誠。在能量低落時，你可以前往這個角落，藉由吸氣吸入你之前留下的能量。這就像去銀行提出你過去存入的款項。你只要在呼吸中將之吸入即可。
+
+另外，你也可以將那些能量植入水晶。將水晶放在身體不同部位，特別是脈輪位置。深深吸入這些能量，你將充滿自己當天所需的能量。這是非常好的修持，可以每天做。我們也建議將一些額外的能量傳送給大地母親。
+
+假設你這天過得很好。能量經由你流動。你有額外能量，感覺連結非常緊密。將這些額外能量儲存在你家特定的區域。日後，你或許感覺不佳，或許心情不算愉快，或許思緒不怎麼清明。這時就去你儲存好的能量的地方，不用一小時，你就會取得你的好能量並且開始感覺好過些。
+
+所以開始在你家創造能量儲備吧。同樣的，你也可以將好能量儲存在植物儲藏所內，並且在需要時領取。你創造的是讓你能儲存能量的電池，那麼在需要時你便能夠取用。這是個禮物。我們希望你能開始檢視這點並付諸實現。這是此時要提供給人類的新的工具。
+
+這就像月底如果還有閒錢，你會存入銀行以備不時之需。如果你有多餘的能量，將它存入你住家的銀行，那麼當你感到低落，你可以提取這些額外的能量。我們希望你開始這麼做，因為這可以在很多方面提供支持。我們不可能每天都處在生命順流之中，除非我們到達如此的高度——能有意識選擇要如何進入生命之流。所以請儲存這樣的能量以備不時之需。
+
+植物也能儲存額外的能量。昴宿星人儲存了額外的能量。每個文明都儲存了額外能量，而我們可以回到這些能量在不同次元實相的儲藏所，取用這些額外能量。儘管他們此時並不在地球，他們儲存的能量還在，放在你能取用的時間鎖內。你能將這些能量存放在你家中，不過我們請你也要將大約百分之五的能量存放在我們所謂的集體銀行內，好讓他人也能取用這些能量。
+
+> 〔大天使麥達昶：當一群人聚會，彼此和諧共存，那麼他們便能憑藉自己的意圖來創造光之柱、光之三角、甚至光之城市。他們可以集體地將這些能量存放於某處作為集體的能量銀行。因此，當某人前往該處，他們將感受到好能量。〕
+
+## 能量是否也能存放於水晶？
+
+你不需要這麼做。水晶只是工具，是達成目的的手段。我們現在處在更高的次元，而這些能量只要透過你的意圖便能儲存。
+
+## DNA 的跨次元層面
+
+我親愛的家人，我們是和 DNA 本質相連的存在。我們之前曾經說過話。DNA 遠遠超乎你的理解。幾世紀來，導師和大師所提供的諸多詮釋都未能完整解釋 DNA 到底是什麼。此時它仍超乎人類的理解。DNA 是你為了這個次元和其他次元實相所做的完整能量儲備。
+
+即使 DNA 在第三次元已經完全活化，但是 DNA 還有許多其他次元實相。根據你希望穿過十二束 DNA 的意圖，這可以帶你進入 DNA 更高次元的實相。所以，從我們的觀點來看，DNA 不僅是 12 束，不是 144 束，而是更多更多。要不要說 144,000 束 DNA？親愛的各位，正是如此。
+
+你不需要思考這點或嘗試思索這是什麼意思。我們希望你能發揮自己的想像力，告訴自己：「我還有遠超過我能想清楚的部份。」你必須擴展自己的心智才能成長。
+
+## 提升自我振動的方式
+
+某些特定的水晶能用來輔助你提升自己的振動，進而活化額外的 DNA 層級。你必須自己去找到它們，不過你能運用的水晶之一就是捷克隕石（moldavite），它能幫助你提升自己的意識和 DNA。還有些其他的水晶也能支持你。試驗看看什麼對你有用。
+
+我們也想提醒你注意自己與生俱來的支持系統。每個人都有與生俱來的支持系統。其中之一就是龍。每個人都被指派了一條龍，這是一種特殊的光之存在，會幫助你提升自己的 DNA。某些龍相當獨特，例如玫瑰龍（Rose Dragon）和靛藍龍（Indigo Dragon）。
+
+你也擁有一顆星星的支持，因為每個人出生時都被分配了一顆個人的星。要去找到那顆星被指派給你，並且汲取其振動。
+
+你們每個人也都被分配了一顆巨大而美麗的樹木。要去找哪棵樹被指派給你，並且汲取其精華以活化你的 DNA。此外，尋找某個顏色、動物、還有聲音。研究它們，因為它們每一個都能活化你的 DNA。呼喚你的支持系統，你將了解自己為何有不同的觀念和不同的思維程序。藉由這些思維程序，你的 DNA 能量意識將會自然地開始行動。
+
+某些特定的日子也能支持更高意識的活化，其中之一就是你出生的日子。你的生日是個非常特殊的日子，因為你有機會與你當天帶來的、全部的本源能量（source energy）連結。如同一顆小種子包含了最高的潛能精華，能成長為一棵大樹，你出生的日子也包含了你最高的潛能。你的最高潛能將會活化你的十二束 DNA，並幫助你成為啟蒙的生命。所以進入靜心的狀態並取用這些層面。
+
+我們提到，在你出生時，你是靈性孩子，帶來自己全部的精華。如今你是靈，不過你帶來自己全部的意識和全部的覺知，因此你此刻便能經由靜心狀態來取用這樣的覺知。
+
+## 全靈魂整合：與你的過去和未來連結
+
+我們請你開始走向過去和未來——回到過去你出生的時候，當時你是百分之百的靈，也完全意識到自己內在的靈。你的內在仍有靈，不過通常你不會意識到它，也不知道該如何觸及你的靈性自我。但是，在你還是孩子時，尤其是你剛出生時，你完全意識到這個靈性本質。孩子非常有覺知力，他們知道靈只要願意便能創造魔法。所以在靜心狀態前往過去，也要# Chapter 4 運用能量提升 DNA 等級
+
+前往未來。
+
+〔大天使麥達昶：當你處在自己的心之空間，問道：「我現在準備好要釋放什麼？」那可能是個念頭、是個信念、一種悲傷或一次傷痛。接著問道：「到底發生了什麼才會在我的 DNA 中造成這個扭曲？」請求自己能看見這種失調是何時發生的。你可以在時間中逆流而上，回到你曾經擁有此刻你所尋找的正向特質的那一世生命。你的靈魂清楚知道你正尋找的天分是什麼。
+
+你也可以在時間中順流而下。幾乎地球上每個人類在三百到五百年內都將成為揚昇大師。既然時間並不存在，那件事已經發生了。在某個實相中，你是個揚昇大師。在觀想這個實相的同時由你的心呼吸。或許你想要某件事能夠發生；你想要寫一本書。想像那本書已經寫好了。每一天，都會更加清晰。
+
+由你的心傳送一道光到那個實相並且——就像用個鉤子鉤住那個實相——藉由呼吸將它帶回你自己。你正透過呼吸將一個未來的實相吸納進你自己。如果你這麼做，在三到五個月後，你將發現那個若沒有支持可能需要五年才能完成的實相已經實現。這稱為搭橋，也稱為挖掘阿卡莎檔案（akash）——回到過去但也進入未來的時間軸。親愛的各位，做這個修持。這非常有益。〕
+
+未來你將是個揚昇大師。你已經獲得啟蒙，已經活化全部的 DNA 束。在地球層面，你能活化超過 5,000 層次的 DNA。發揮你的心。你要意圖取用這一點。
+
+摩西就是最好的示範。摩西不知道自己有轉變的能力。不過他的靈魂敦促著他，所以他放下一切，在荒野中漫遊。他開始尋找，終於領悟自己真正的潛能，並且能夠納為己用。
+
+同樣的，親愛的兄弟們，你也能深入未來，到達你和造物主完美和諧的時代。那時你所有的 DNA 束均已活化；在此狀態中深呼吸，將它們導出。藉由呼吸技巧，將未來的實相融入你自己。
+
+我們也要請你回到過去的時間軸，當時你已獲得啟蒙，以大師和偉大導師的身份活躍。請回到那些時候，那時你仍擁有最高的智慧和最高的意識。我們不能告訴你該怎做。我們只能告訴你要從靜心和冥思的狀態去取得。由你的心傳送能量到那個部分的你。
+
+讓我給你一個例子。想像你有 144,000 單位的能量四散在這個銀河系、這個星辰系統、其他次元實相、這個宇宙還有其他的宇宙。所以在靜心的時候，呼喚這 144,000 單位的能量回到你身上。
+
+你可以稱之為「全靈魂整合」。因為 DNA 活化到底是什麼？不過就是將你全部的意識或能量整合回到你身上，讓你記得掌握它、也能夠掌握它。每天導引你這 144,000 單位的能量，與它們合作，那麼讓我告訴各位，親愛的各位，你將提升 DNA 束許多許多等級。這可能需要一點時間，不過正如麥達昶經常說的，靈性工作只適合那些準備好採取行動並絕不休息的人、只適合那些擁有意圖要和最高泉源連結並絕不放棄的人。他或她或許會暫停一會兒，但絕不放棄。
+
+我們是本質，或可稱 DNA 存在。現在我們接受發問。
+
+## 運用你的氣場
+
+我們氣場的頻率和 DNA 兩者是否有相互關係？
+
+當然。各位必定記得，你的氣場不只是你此世的能量場。它還包含了你的阿卡莎檔案——你曾經有過的每個經驗和每個想法都紀錄在你的阿卡莎檔案內。阿卡莎是氣場的一部分。所以當你每天活化並淨化氣場，你就是慢慢地活化你的 DNA。
+
+如果你每天修練你的氣場，這就完成了一半的工作。你的氣場是你進化的另外一部分。它包含構成你的整個歷史。當你活化你的 DNA 束，你將清楚知道自己是誰，並且將之與你的氣場結合。
+
+## 脈衝
+
+我教導一種簡單的振動，用的是 M 這個字母的聲音，例如「麥」達昶、「摩」西、「米」迦勒，或是 shalom 或 Om 結尾的 M 音。那個 M 的聲音會增加自身氣場的頻率。
+
+你想說的是，重點不僅是聲音還有額外的脈衝（Pulsing）。氣場應該以光和聲音賦予脈衝。這會提升你的意識以活化你的 DNA。許多人類每分鐘無法超過 200 到 300 脈衝。每天都要努力提升脈衝週期，要將脈衝週期提升到每分鐘 800 到 1,000 脈衝。以揚昇而論，脈衝必須達到每分鐘 3,000 到 5,000。你要努力將蒸汽引擎轉變成柴油引擎。這也是以下要談的一部分。
+
+你必須每天努力修練脈衝能量。DNA 活化是一門發展迅速的科學。每天你都必須設定意圖要讓氣場能量的脈衝加速，讓脈衝帶著光，將你的脈衝提升到此時你能維持的最高水準。每天都要增加。舉例來說，假設今天你的脈衝是每分鐘 150 脈衝。那麼你要意圖達成每分鐘 200 脈衝，並且用一整個星期來努力。下個星期，練習達到 250，接著是 270，接著是 300，這樣你能將自己的氣場能量提升到很高的狀態。你會提升自己的振動到很高的狀態，進而讓你的 DNA 更加活化。修練自己的氣場乃是活化 DNA 的主要關鍵之一。
+
+## 我們如何修練自己的能量達到每分鐘 200 至 250 個脈衝週期？
+
+想像你的氣場充滿閃爍的光，就如同閃光燈一樣。如果你去迪斯可舞廳，你在舞池跳舞時會有閃光燈閃爍。想像你的身體和氣場帶著光的脈衝。讓脈衝越來越快。你或許會覺得不舒服、頭痛、或者精神恍惚，不過你應該繼續。盡可能越快越好，增加脈衝頻率。設定意圖，然後有意識地練習提升脈衝頻率。當你命令自己的身體，它便會開始脈衝的工作。等到你發號施令，這個程序將自然開始。
+
+這會快速提升你的意識。DNA 活化不是按下開關就好。這是要提升你的振動，因而自然地活化你的 DNA。其真實意義在於給予你的物質實相更多的靈魂能量。這是透過脈衝而完成。
+
+DNA 本質所淨化的不僅是一個聲音而是許多聲音、意圖、振動、以及由指導靈和天使所構成的支持系統。其累積效應才是真正提升 DNA 的原因。試著與你的指導靈連結——他們擁有更高頻的振動能量。如果你能每天與他們連結，你便是在提升你的意識和振動。
+
+要讓真正的揚升能夠發生，就必須有煉金術式的轉變。這就像放下你物質身體的一層。讓我舉個例子。火箭發射前，許多能量會蓄積在火箭內。在發射之後，火箭會進入大氣層，接著便拋棄火箭的一部分。你身上也必須發生這樣的事。你必須收集所有的能量，接著釋出自己的一部分，好讓你能前進，減輕負擔，前往更高的振動存在。這是一種煉金術的變化——就像鉛轉變成黃金。
+
+大天使尤瑞爾（Archangel Uriel）教導如何提升內在金色和黑色的蛇。金色的蛇代表你已獲啟蒙的部份。黑色的蛇代表仍處在黑暗中的部分。當兩者結合，煉金術轉化會發生，新的實相便應運而生。
+
+## 與你的支持系統建立更多連結
+
+我們試著要建議你該如何每天提升自己的振動：運用脈衝方法、與星辰能量連結、與龍能量連結、與樹木能量連結、並運用你全部的支持系統。你的支持系統不僅是你的指導靈。你們每個人從出生那一刻起都有自己的支持系統，包含星星、龍、星球、樹木、色彩、動物、氣味等。
+
+與仙子連結、與元素存在連結、因為他們才是讓魔法為你發生的存在。要每天與魔法連結，你必須與元素存在連結，因為只有他們才會轉化魔法。而且他們會支持你。呼喚這些存在、呼喚彩虹之龍、呼喚玫瑰之龍，因為這些就是你的支持系統。
+
+如果你要求，他們就會協助你。必須向他們要求。他們就像天使。他們是來支持你的，不過你必須先敲門。他們不會自己開門。在 2012 年 12 月 21 日之後，每個人類都被指派了三到五位個人天使，而他們唯一的工作就支持你提升自己的振動以便輕鬆地進入第五次元。不過此刻有多少人和天使合作呢？極少。他們想像天使是長了翅膀、要來幫人賺錢的，不知道他們來這裡是為了提升你的振動，好讓你能觸及更高層次的 DNA 並進入更高層次的實相。
+
+修練不同層次的 DNA 時，絕對不要一次針對一個層次。要同時修練所有層次。DNA 是一鍋量子湯，你不能說那個層次需要活化。當你提升自己的振動，你的靈魂便會這麼做。某些人會說：「我想修練第六層，『我即是我』層。」不過這並不是這麼運作的。
+
+## 這就像量子自燃機！
+
+正是！讓我們再說說火箭。一切都必須共同運作來造成內燃作用，這樣火箭才能擁有如此巨大的力量。許多人都犯了這樣的錯，就是只修練一個層次，尤其是第六層，好讓自己能像神一樣。每個層次都相互支持，而所有層次都支持著完整。
+
+## 維持高頻振動
+
+上一次議程中，聖哲曼談到重點為何在於維持高頻振動。請您分享更多維持的技巧。大師能夠維持高頻振動。我們一次能達成片刻或短暫時間的高頻振動，不過大師能夠維持下去。
+
+這是多層次的問題。人類來到這個星球是要完成自己的功課。如果他們能長時間維持在高層次上，他們就不會還在這裡，得繼續往前走。我們允許靈魂犯錯，因為透過錯誤才能學習。他們會逐漸領悟到，他們的錯誤無法支持自己的能量場，也不會提升自己的振動，所以他們自然就會進步。如果沒有功課需要學習，地球上就不會有人類了。大師已經完成他們所有的功課。
+
+你能如何提升自己的振動、保持高頻、並且努力來提升到更高層級呢？只要我們無法看見生命之美或他人內在的神聖，我們的振動就會降低。只要我們聽見任何基於恐懼的資訊，我們全體都會受到影響。
+
+讓我舉個例子。許多人說：「我真希望我只靠空氣、只靠生命能量（prana）生活。我不想吃東西！不過我做不到！」瑜伽士能夠做到，偉大的靈性大師也能做到。不需食物還能生存並維持良好能量場的秘訣是什麼？答案就是維持 DNA——維持高頻思緒。如果你在生活中沒有匱乏的念頭，你就不需要吃東西。你可以為了享受飲食的樂趣而吃，不過你將不需要吃。
+
+同樣的，你可以藉由保持在喜悅的狀態來維持你的 DNA，無論你的外在生活發生了什麼。達賴喇嘛、過世的泰瑞莎修女、還有世上偉大的導師們都能長時間維持自己的高頻狀態，因為他們能夠只看最高的神聖。
+
+正如大天使麥達昶所問的：「聽到鳥兒歌唱時，你有什麼感覺？」這會將喜悅帶到你的心中；這會將愛帶給你。看看花兒開放，這會帶來美和愛的感覺，也會維持你最高的振動。一旦任何負面事物進入你的心中，你的振動會立即跌落。你必須訓練你的心去有意識專注於選擇，並投入帶有最高振動能量的思緒，好為你帶來美和喜悅的能量。
+
+## 活在全然的本質中
+
+除了前述的建議外，還要保持恰當的呼吸。多數人類並未恰當地呼吸。我請你此刻就將右手臂放在鼻子下方並且呼吸。你是否同時由兩邊鼻孔呼吸？如果你能恰當地呼吸，你將能帶著感恩和愛來維持生命之美。
+
+何謂恰當呼吸？你經由雙邊鼻孔吸氣並經由雙邊鼻孔吐氣。百分之八十的人只用一邊鼻孔吸氣，並用另一邊鼻孔吐氣。不過恰當的呼吸乃是經由雙邊鼻孔吸氣和吐氣。唯一會這麼做的人是未滿三歲的小孩，因為他們能夠維持高頻振動並且記得自己是誰！
+
+## 就這麼簡單嗎？是否有什麼技巧，例如脈衝那樣，要講究某個數目的呼吸？
+
+在瑜伽傳統中有許多不同的呼吸方式，不過如果你明天開始練習這樣呼吸，就說每天十分鐘好了，你將會看到生命的不同。你的心會變得非常清晰。清晰將會來到，生命力也會提升。回到內在，有意識地將呼吸導向身體的不同區域——你的松果腺、腦下垂腺、頂輪或胸腺等區域。
+
+一切都是可能的，不過首先你必須具備根本的基礎，知道如何深度且恰當地呼吸。你可以透過一邊鼻孔吸氣，數到十，接著從另一邊鼻孔吐氣，但首先你必須掌握這個基本的技巧。從那裡開始，你可以將呼吸導入身體的不同部位。
+
+這兩個簡單的技能力提升你的振動，因為你將處在至福（bliss）的狀態；至福意味著每個時刻都感到喜悅。重點是要正確地呼吸好讓你的本質最大化。
+
+人類的潛能何在？完整的潛能是人能以自身存在的完整本質生活，DNA 束均已完全活化，生命之花也在內在活化。要記得一件事：你的腎臟包含生命之花，你的心臟包含生命之花，你的雙手也包含生命之花。
+
+你的脈輪也稱為鎖印（seal）。揚昇的鎖印是什麼？人們詢問他們該如何破開揚昇鎖印。那指的就是他們的脈輪。有許多方式來描述脈輪。描述脈輪的方式之一就是說它們是能量鎖印。
+
+在每個脈輪內有蓮花花瓣；下方則是生命之花的不同顏色。想像你的身體充滿數百萬朵生命之花。你的手掌有生命之花旋轉著，你的前額、喉嚨、胸腺、太陽神經叢、第二脈輪、第一脈輪、肩膀、腳底、後背、膝蓋下方——到處都是。
+
+## 運用性來提升你的振動
+
+## 就提升或下降人的振動而言，性扮演了什麼角色？
+
+什麼是性？這是造物主賜與的最佳禮物，是你從身體上所能獲得的最大樂趣，而且還是免費的！所以盡情享受性吧！人在結合時，如果是聖潔且神聖的性，便會產生爆炸般的能量。那樣的能量多數都能獲得控制並可導引。這稱為運用奧剛（orgone）能量。偉大的導師威廉·賴希（Wilhelm Reich）教的是什麼呢？這個可憐的人是來自另一個星球——眾人都覺得他瘋了。他教導關於奧剛能量的事，在美國成為階下囚，最後死在獄中。他遠遠領先其他人。他曾提過一種能量的爆炸，出於兩種力量的聚合並產生出第三種能量，一個大爆炸。
+
+〔大天使麥達昶：奧剛能量是人類內在最強大的力量。這是你的性能量。這是你力量最大的能量。正是它創造了揚昇程序。它也包含了生命自身的本質。生命是創造而來，正是透過這個創造過程，你才會找到內在的金色蛇。奧剛是你內在可以擁有的最大力量，結合了愛以及你與生俱來的創造之力。性的特質乃是創造——前提是你須明智地使用。有朝一日，奧剛能量的重要性將會在學校內傳授：如何引導這種能量，如何用它來創造美好、平衡、神聖的生命。美國作家威廉·賴希教導奧剛能量，結果因此入獄。他所說的是如此真實。〕
+
+盡情享受性吧，不過要確定是神聖的性——是對另一人的尊崇。尊崇神；尊崇女神。在做愛時，你是否能視對方為男神或女神，視對方為男神／女神能量的湧現？這就是所謂的密宗性愛（tantric sex，譚崔）。性交只是密宗性愛的最後一部分。這是兩人之間的遊戲，或許赤裸，但卻是帶著虔誠和神聖感的遊戲，尊崇兩人內在的神，並且與他們的身體遊戲。
+
+其中沒有粗魯不文。不過，只要你帶來了粗魯或任何非神聖形式的肉慾——非來自神聖秩序者——那麼性就只成為活動。請享受性。如果神不想讓你擁有性。那麼神為何將這些器官給你？這是你能擁有的最佳樂趣。所有宗教都說性是壞的：「金錢不好；性愛不好。」金錢是好的，性愛也是好的。享受一切。性是你能由人類身體上獲得的最好的樂趣。所以請將性帶入神之內。
+
+## 拙火不就是這樣嗎？帶著意識和意圖？如果你提到魔法時刻……？
+
+正是！而那魔法時刻就是轉變時刻。你認為人們為什麼想要更多的性愛？因為在那魔法時刻，人們感覺完整。你覺得自己完整、找到了重心。人們想要從事更多的性愛，因為他們想捕捉那一刻。這就是陰陽調和、男神和女神結合以創造令人驚異的力量。性愛會讓人上癮，因為人們希望捕捉完全合一的片刻；這一刻分離並不存在。這是否回答了你的問題？
+
+## 換句話說，做就對了？
+
+不，不要就這麼去做。要帶著最高的崇敬、神聖和莊嚴去做愛；要將對方看成女神或男神。性愛必須獲得尊崇。這是兩種力量莊嚴神聖地結合，以創造美好、驚人的煉金術能量。這種結合背後的意圖為何？意圖最重要，是提升個人振動的關鍵。假設你想興建學校，你渴望興建學校背後的意圖是什麼？是為了節稅，還是發自內心？在新的意識中，意圖就是一切，因為當你確認意圖，你便對宇宙、對神發表宣言。在你祈禱時，你就是在塑造意圖。
+
+## 與動物及其他型態的生命連結
+
+這個問題是接續上次和聖哲曼談到與動物連結以強化意識。第一個問題是：我們如何與動物連結以強化意識？第二題是：我們如何能去理解不同動物帶有什麼特質，好藉此讓人們能理解動物界運作的方式，並且知道該如何進行連結以強化自己的意識？
+
+當你看著一隻動物，當你透過神的眼睛來看牠，你看到了什麼？你是看到一隻巨大的生物，身上還有很大的腫塊，或是你看到一個美麗的生命在大地母親的身上爬行同時也和大地母親連結？烏龜擁有美，牠們擁有聰明才智，牠們也支持人類。如果地球上沒有動物，人類可活不過三十五歲！動物為人類保管能量。請尊崇這些驚人的光之生命。牠們支持人類，所以要尋找並看見你所連結的每隻動物的美。
+
+當你看到海豚，難道這不會為你帶來喜悅？當你看牠於水中滑行，難道這不是至福的片刻？難道這不會讓你微笑嗎？請和牠們的意識連結，因為海豚有能力帶給你孩子的純真和純潔。與鯨魚連結，與蝴蝶連結，與蜜蜂連結，因為蜜蜂小小的頭部攜帶著人類的進化史還有我們的目的地。如果蜜蜂消失，人類將遺忘自己的道路，因為蜜蜂攜帶著那樣的指示。與蜜蜂連結，你將知道自己將去哪裡，如何前去。牠們就像路標，告訴你：「現在你在這裡，你可以再往前 100 公里。這是你靈魂道路的一部分。」蜜蜂可以帶你走得很遠。
+
+如果蜜蜂消失，多數的人類就會卡住。邀請牠們回到你的實相，因為他們是如此遭受惡意對待，因此它們已離開地球層面。呼喚能夠支持你的動物，尤其是那些你喜歡的動物。與牠們說話；用心與牠們溝通。
+
+以貓為例。貓是跨次元的生命。牠們總是在與更高存在溝通，尤其是貓星球上的更高存在。如果貓坐下來，開始呼嚕呼嚕叫，牠就是在與他的主人溝通，牠那來自牠的星球的指導靈。即使在貓兒夜晚出門時，牠們通常會在戶外群聚，開會交談，坐在一起討論自己的問題和該往哪裡去。牠們在和牠們的貓星球連結。牠們是前來當我們的導師。
+
+當你凝視狗的雙眼，你看到什麼？你會看到純潔、純真、深刻的友誼、忠誠。那就是狗能教你的：無條件的愛。
+
+每種動物都帶有特定的振動特質。母牛能教你什麼？母牛說：「取走我吧；擠我的乳汁。」等到母牛泌乳的時候過去，牠們還貢獻牠們的肉。母牛總是給予再給予。母牛知道自己是永恆的存在，永遠無法殺死。牠們可以在物質層面被殺死，但牠們無法被摧毀。母牛是真正的大師。你認為為何古老的瑜伽士尊崇母牛？因為他們知道母牛是走在這個星球上的靈性大師，向人類示範不執著於物質事物。
+
+耶穌還在地球上活躍時，你認為他是否有能力在遭受逮捕時甩開衛兵？身為真正的大師，他「允許」自己被逮捕。你也可以如此。當你與母牛連結，你那永恆、自然的部分將會凸顯。
+
+大象帶著智慧和力量。為那些在團體生活上遭遇困難的人，牠們帶來群體意識。當你與任何動物連結，請連結牠最高、最慈愛的能量。
+
+動物活在第三次元實相中，而且牠們遭受很糟的對待。許多動物不信任人類，因為我們對牠們並不好。與那些你感覺到連結和共鳴的生命連結，在你靜心的時間與牠們說話。你能取用牠們的能量，不過你要時時要求只和牠們最高、最正向的層面連結。牠們的基因由於所遭受到的對待而改變，而且牠們無法信任人類，所以永遠要呼喚牠們的最高層面。
+
+〔大天使麥達昶：與動物連結非常簡單。一切都是能量——包括你、動物、樹木、石頭等——一切都是能量。唯一的差異在於他們在不同的層級振動。僅止於此。在萬物內在〕
+
+## Chapter 4 運用能量提升 DNA 等級
+
+川流不息者是光之力量，此光之力量乃是由呼吸所支持。你知道山脈會呼吸嗎？河流會呼吸。樹木會呼吸。甚至連彼岸的大師們也會呼吸，只是方式不同。所以呼吸會讓你與萬有——包括本源（Source）——建立連結。你認為為什麼所有古老的靈性修持都強調呼吸呢？這是解脫的關鍵。
+
+如果你想與動物連結，請由你的心傳送呼吸。建立橋樑。由你的心傳送呼吸給那動物的本質，你將看到一股美麗的能量像無限大的符號那樣向你回傳。在雷的通靈工作坊中，他教導如何與石頭、木頭、植物、流水、黃金、音樂、動物、以及大師連結，都只是透過簡單的呼吸技巧。由你的心傳送氣息，你將看到美麗的能量由動物、樹木或石頭回傳到你的心。如此練習幾分鐘，可以提升你的能量連結。
+
+你如何與造物主連結？方式之一就是透過呼吸。呼吸是關鍵。呼吸能讓你自由。
+
+春天來了，外頭有許多生物，像是蚱蜢、蜻蜓、瓢蟲等。看到蚱蜢就跟它打聲招呼。由你的心傳送一道光柱進入蚱蜢，我保證它會停在那裡。接著你由你的心再傳送一道光柱進入它，對它說：「我想與你溝通。」你不需要說話。由你的心傳送愛和光，繼續以呼吸進入它，你將看到它將光回傳給你，除非它很忙。
+
+它幾乎一定會在那裡等你進行對話。只要他們感到安全，他們就會喜歡與你溝通。等到這個信任建立起來，他們便會分享自己的智慧。古老的武術就是如此傳播到世界。許多武術動作都是源自臺灣和中國，是由蚱蜢和其他動物所傳授。蚱蜢教人如何採取動作、如何攻擊、如何防禦。
+
+對待花朵也是一樣。呼喚花朵界的最高層面，請它將智慧傳授給你。以呼吸進入花朵。明天，我請你走進自己的花園，花三十分鐘凝視一朵花，只需隨著呼吸進入那朵花，以百分之百的專注進行完全呼吸。由你的心呼吸並進入那朵花，並且將那朵花吸入你的心。在三十分鐘之內，你和那朵花將合而為一。你不僅是用鼻子而是用全身來聞那朵花。你和那朵花將合而為一。它會帶你進入更提升的意識狀態。
+
+麥達昶最近提到美洲杉這種樹有能力將人傳送到諸神和跨次元的存在。美洲杉會創造出最高程度的氧氣量。如果你在這些樹木附近停留一段時間，它們會在幾分鐘內把你傳送到更高的次元實相。
+
+一切都是團體，不僅是個體。一切都會支持你提升自己的振動。維持純粹的氣場和純淨的思維型態也非常重要。
+
+在進入下個問題之前，我想要說一句話：有時候問題沒有直接的答案。那可能是你要自己去探索的問題。
+
+## 你的星辰遺產
+
+## 人的星辰遺產對 DNA 有什麼影響？
+
+這個問題很好。星辰對我們有很大的影響。對許多人而言，曾經在特定的一世轉生中，他們前往其他星球、其他的星系，去修練純粹的能量並學習課題。星辰也帶來星辰業報，所以我們和星星有許多連結。你認為人們為何如此熱衷於觀星呢？人們看著星辰，不過他們從未探索星辰能量。這個星球上的每個人都來自星星。你知道嗎？
+
+你能否擴展自己的心，看見自己是來自星辰的星子？擴展你的心，想著自己有可能是個星子，而且你也繼承了一顆星。這在你的心中喚出什麼影像？
+
+> 出現的第一個影像是一種純淨及來自源頭的感覺。
+
+是的，所以這是你來自星辰的真正本質，這就是你由自己的星所帶來的能量。現在你可以問：「我和什麼星連結，我來自那顆星的遺產又是什麼呢？」再提醒一次，你必須發自靈魂提問，請求你的靈魂開啟那部分的自己，那個和星辰連結的你。
+
+> 我似乎與中央太陽（Central Sun）的能量連結。
+
+這位在你 DNA 的分層。第九層直接連結到你的星辰遺產，所以你必須修練 DNA 的第九束，藉此與你的星辰遺產連結。我們請你與自己的星連結，因為你的第八層和第九層都與你的古老遺產連結。等到你記起自己的星辰遺產，你便與自己真正的遺產連結。
+
+昴宿星人將自己的 DNA 給予當前的世代，不過許多人已經具備許多星辰連結，並且在許多其他的星系被撫養長大，因此你必須建立那樣的連結。這就像一柄大傘。傘的下方有許多枝傘骨，其中一枝傘骨連結到其中一個星系。你必須將那個星系的能量與你中軸的昴宿星能量連結。想像雨傘尖端是昴宿星 DNA，不過這柄雨傘有十二枝傘骨，它們共同構成你的星辰能量支持系統。你還有其他問題嗎？
+
+## 淨化你的氣場
+
+我們如何連結不同層次的行星、恆星、銀河系、宇宙、寰宇、以及多重宇宙的意識？它們和 DNA 有什麼關係？
+
+這個問題很簡單。這些層次全都攜帶不同的振動能量。彼此並無高下之分，但是其本質均不相同。銀河系能量的本質和恆星、宇宙、多重宇宙能量不同；每一個都不一樣。當你開始和這些不同次元的能量連結，你自然就會提升自己的振動。
+
+所以，在靜心時，我們該請求與這些層次分別連結？
+
+正是。例如，恆星大師如今是佛陀（Lord Buddha）以及山納·庫瑪拉；你可以與他們合作。接著還有銀河系大師麥喬爾（Melchior）、恆星之母（Solar Mother）以及恆星天使（Solar Angels）。主墨基瑟德和主瑪哈特馬是宇宙大師。多重宇宙大師是大天使麥達昶。當你開始與這些光之存在連結，你自然會提升自己的振動。你必須每日和這些大師合作。
+
+麥達昶多次向雷強調，時時提升自我振動的方式之一就是每日規律且持續地清理並淨化你的能量場。
+
+## 我們該怎麼做？
+
+與你需要的一切配合，藉此淨化你所沾染的一切，運用金色光或紫羅蘭光並淨化你的靈性能量。你可以與納達女士（Lady Nada）合作；她專門致力於淨化你的靈性能量。你能與觀音女士（Lady Quan Yin）合作，她是第九道光的導師，教導平衡。仙后座之主與夫人（Lord and Lady Andromeda）在第十道光工作。你也可以呼喚大天使麥達昶或聖哲曼，藉此淨化你的靈魂能量場。你的靈魂能量必須規律地清理和淨化。
+
+## 揚昇
+
+我是大天使麥達昶，在大角星系這顆行星上的揚昇之門擔任守門人，或者說守護者。你可以請我鎖定造物主的更高振動能量。例如，第一天你可以說：「請鎖定造物主能量。」第二天，你可以說：「請鎖定比昨天更高的振動能量」，你可以日復一日持續這個程序。你可以呼喚我將雙手放在你的肩膀上，放在你的額頭上，或放在你的心之中心，並且請我傳送更高的振動能量，也就是我的能量，給你。
+
+我是這顆行星上的揚昇之門的守門人或者說守護者。你認為為什麼我被指派擔任這個工作。我曾是以諾（Enoch）²，我曾體驗身為人類以及身為天使，所以我對人類能夠感同身受，因為你們骨子裡全都是天使。
+
+> 註：以諾為亞當後裔，諾亞的曾祖父；聖經創世紀5章22節：以諾生瑪土撒拉之後、與神同行三百年、並且生兒養女。
+
+您說氣場和 DNA 之間有著相互關係。所以，換句話說，DNA 在每次轉世時都保持一致囉？
+
+是的，它在不同轉世間都保持一致。我們的基因或許會改變，但我們的 DNA 都是一致的。
+
+> 所以，事實上，您是否會說 DNA 就是靈魂的身份證？
+
+正是！你的認知完全正確！你的說法也相當美好。現在我要請你保持不動，我會將雙手放在你的頂輪上，傳輸能量。每天晚上，你可以呼喚我，請我傳送造物主能量的更高振動來清理並淨化你的靈魂能量，好讓你的感覺、情緒、心智都得到清理和淨化。
+
+> 〔大天使麥達昶吟唱美好的嗡聲三次。〕
+
+深受祝福的光之存在，你已經獲得來自大衛之星（Star of David）能量的活化。祝福你。我是大天使麥達昶。此時我們向你道別。
+
+## 擴展我們的世界並且過著服務的生活
+
+我親愛的家人，我是安娜。你們許多人都聽過我，有些人讀過我的故事，心想：「我真希望能像她一樣。她活了 600 歲耶！」話說回來，我希望由那本書〔克萊兒·哈特頌（Claire Heartsong）所著的《安娜，耶穌的祖母》（Anna, Grandmother of Jesus）〕所提出的是，你們每個人都有這種可能。將這些想法收集成書的意圖在於為眾人勾勒出每個人可以完成的事。
+
+這是你與生俱來的權利。
+
+如同大天使麥達昶所說，我們要你擴展，要你擁有最高可能的渴望。對多數人而言，他們所能企及最高想法是什麼？「我想要賺很多錢，那樣我就會快樂了」或是「我想要知道這點」。他們從未真正企及自己最高的可能性。要選擇創造一個眾人都能活到 150 歲的實相。那是你們在這個時代所能擁有的最崇高想法之一：能以比過去更快速的步調讓自己重新回春，相信這點並朝之邁進。對其他人而言，也許是只在想要進食的時候進食，也許是傳送或同時身處兩地。要不要在此刻離開你的本質並前往南非，有意識地將一部分的你重新組合好讓你身處兩地？現在這是有可能的。在這個新的實相中，這是有可能的。
+
+這些是我們希望你們保有的量子思維。對所有人類而言，這些是有可能的，尤其是光之工作者，因為他們已做好準備。這些是你此刻可以獲得的天賦。在接下來幾天，我們要你想像自己這一世生命在所有可能中最崇高的結果——你能成為什麼。如果你不知道什麼是可能的，你又如何能思維它呢？這點非常重要。
+
+〔大天使麥達昶：並沒有最好的時機，不過，對新手而言，能在睡前做這件事總是好的。你擁有一位專屬的天使。呼喚你的個人天使出現，請他傳導放大的能量給你。不要對自己為何需要這個能量懷有任何目的。指名要放大的能量以及全面擴展的能量，直到你身體能夠容納的額度為止。
+
+其次，對你的元素說話，請它們擴展你的身體，以便容納來自天使存在的更高能量。你也可以請求天使支持你擴展自己的非物質身體，好讓它們能容納這樣的高等能量。這些都是非常好的技巧，適用於每個人。你將看到偉大的擴展、心靈的開啟、並且有更偉大的智慧降臨到你身上，因為你並未陳述為何你需要這些。你只是要求獲得擴展的能量。當你擁有更多能量，你便能完成更多事。〕
+
+如果你每天要求獲得擴展的能量，並且把握這些能量，你將在能量層面擴展，古老的神祕學院也會提供你許多新的工具來協助你完成回春、身處兩地、傳送等程序。
+
+〔大天使麥達昶：這個星球上有許多神祕學院。它們位於希臘、以色列、埃及、印度、西藏、法國、愛爾蘭、以及蒙古。它們全都不同，但其核心教導為將鉛轉變為金。有些修持乃是由所有神祕學院的共同修持。有些今日仍然實踐著——神聖幾何、聲音、水、數字。今日，你就是自己的神祕學院。關於自己，還有許多可以知道的。你是個神祕的存在。所以去解開那個奧祕，你就能將自己內在的鉛轉變成金。
+
+這些新工具包括如何有意識地修練自己的身體以增加壽命。另外還有要意識到自己當前生命契約的退出點（exit points），好讓你能夠透過意圖和靜心來加以改變。第三就是在自己的生命中開啟新藍圖和新契約的能力。第四，也是最重要的，就是改變並重寫自己阿卡莎檔案的能力。〕
+
+要不要擁有這樣的想法，知道到自己能看到遙遠的未來，例如在據今二到三年之後，能看到企圖用惡作劇行為來打亂這個世界的個人或團體？你可以前往那裏，療癒那樣的能量，因為他們已經設定了這樣的能量，而這樣的能量可以從內部攔截並加以處理並完成轉變。
+
+舉例來說，2013 年 6 月 13 日，埃及可能發生暴力衝突，有兩個團體正規劃要舉行團體集會。要不要前往這個地方去轉變其能量，好讓當地發生的是對話而非暴力？或許某人企圖製造炸彈或是有個男孩在學校遭受罷凌。你可以前往該處說：「要不要轉變這個？」你此刻就能辦得到。
+
+美國即將進入颶風季節。可能會出現颶風並摧毀許多人的生活。你可以注意颶風來臨的約略時間，注意它可能會登陸哪裡的海岸，思考身為光之工作者的你能做些什麼來改變。這就是此時的潛能。這些都是你們每個人所帶有的可能性。要敢於做夢——做最龐大的夢。
+
+你也必須敢於夢想要療癒這個星球，療癒大地母親。此刻我們需要你在這裡！我們不要你離開。你們已經如此努力，經歷許多世生命來提升自己的振動。為什麼此刻你要離開？我們要你在這裡，成為下個世代的錨和光。你們有許多人會說：「這好困難，我要走人了！」親愛的諸位，我們需要所有像你們這樣的靈魂，用自身明亮的光成為這顆星球的光之錨。所以要敢於做宏偉的夢，夢想你們可以擁有的最大可能。我是安娜。
+
+## Chapter 5 提升個人振動的方式
+
+2013年6月28日
+耶穌
+
+我是耶穌，又稱薩南達。
+
+可否請您和我們談談 DNA 和生命靈數（numerology）的關係？
+
+這是個非常有趣且深刻的問題。生命靈數和 DNA 有非常直接的關係。你覺得人類為何如此喜歡數字？許多人，無論是基督徒、印度教徒、穆斯林、猶太教徒、或天主教徒，他們全都深深對數字著迷。這便是所謂的生命靈數。數字令人著迷，因為數字能打動內心。數字能打動 DNA。DNA 的每一層次均有獨特的振動符合生命靈數，而生命靈數直接連結到你出生時星辰的構成特徵。你與星辰的連結、你的生命靈數、你的 DNA 全都彼此關連。
+
+當然，這是個廣博的主題，不過我們請你觀察數字如何影響你。例如，你們都有誕生數字。你的誕生數字取決於你為了成長而前來這裡要學習並掌握的生命課題。然而，你能強化自己的誕生數字；你可以為它添增一個數字。
+
+〔大天使麥達昶：只要為你的名字增加一個字母，你將能夠立即改變某一特定振動，並且創造出一個新的振動。這能帶你更貼近自己企圖創造的真理。這是個非常強大的工具，所有神秘學院都會使用。當你進入神秘學院，你會獲得一個新的名字，能接受啟蒙而融入這個名字。你成為一個新的人，有新的、更高的振動。
+
+在靜心時，請求你能使用的最高頻的字母，藉此在你企圖創造的新實相中支持你，因為從此開始，你就是自己的主人。心中出現的第一個字母就是那個字母。如果你仍然懷疑，請將該字母寫下，手放在它上方，看看你是否感覺到任何能量頻率。接著你能觀想一個來自造物主的美麗金色光柱，為你新的名字充滿能量。這是個很好的練習。你會看到很大的益處。
+
+你也可以為了特定目標而選擇一個字母。等到你完成那個目標，你可以選擇其他字母。好好玩吧。這無非是一種支持。
+
+你無須改變自己的名字。只要在接下來的二十一天內，在靜心時想像這個字母在你名字的前面，直到你的能量體接收到這個訊息。這是相當有益的技巧，在古代經常使用。〕
+
+這就像強化你的名字。你可以增加某些字母來改變自己的名字。同樣的，儘管你出生時帶有特定的誕生數字，但是你可以強化這個數字，只要在靜心時設定意圖並增加某個數字即可。如此一來，那個誕生數字可以變得更加強大，並將自動影響到你的 DNA。這是你擁有的天賦，這也是我的祖母安娜所使用的技巧之一。
+
+你可以運用 www.healing.about.com 網站所提供的「誕生歷程靈數公式」（Birth Path Numerology Formula）來計算自己的誕生數字。以下提供的範例是針對 1973 年 11 月 26 日出生的人：
+
+月份: 11
+日期: 26 (2+6=8), 8 為主要誕生歷程數字
+年份: 1973 (1+9+7+3=20; 接著 2+0=2)
+月份+日期+年份 (11+8+2=21; 2+1=3), 3 為次要誕生歷程數字
+
+注意: 主要數字 11 和 22 是獨立的, 不可以相加。單純數字為 1 到 9。主要數字為 11 (是 11 而不是 2) 和 22 (是 22 而不是 4。)
+
+| 數字 | 類型 | 特徵 |
+|---|---|---|
+| 1 | 成就者 | 天生領袖、有野心、自助者 |
+| 2 | 理想主義者 | 關愛、維護和平者、樂觀 |
+| 3 | 藝術家 | 有創造力、想像力、充滿喜悅 |
+| 4 | 實用主義者 | 有組織、努力、以實用為考量 |
+| 5 | 機會主義者 | 喜歡社交、個性海派、敢於把握機會 |
+| 6 | 照顧者 | 可以依靠、心懷慈悲、照顧他人者 |
+| 7 | 尋找者 | 靈性、凡事懷疑、離經叛道 |
+| 8 | 富裕者 | 有錢、成就斐然、學識豐富 |
+| 9 | 哲學家 | 有分析力、能啟發他人、直覺力強 |
+| 11 | 遠見者 | 已獲啟蒙、思考不落俗套、思維有未來性 |
+| 22 | 全球思想家 | 目標導向、以事業為念、國際利益 |
+
+假設你得到的數字是7。七是你的靈性數字、三是觸媒數字、八是完成數字、九這個數字代表導師、十一代表主要導師、二十二代表世界導師,諸如此類。
+
+假設某人得到的數字是5。這個人和數字5之間有非常獨特的振動關係。此處的生命課題為何?五可以被成就,而數字五的效應可以增加,只要搭配上其他數字。如此一來,他的生命便能改變甚至改善。這並不是說它能百分之百改變,但假設他有個壞習慣。只要改變這個數字,他將能清楚看見這個壞習慣在什麼地方妨礙了他,如此一來他便能採取步驟加以改變。
+
+再以數字3為例,這個數字代表觸媒。誕生數字為3的人能促成改變。不過,這個數字或許會讓人改變太多。如果為它增加一個數字,那麼他們就會發現自己如何參與了自我生命的改變以及每個他們接觸到的人所遭遇的改變。
+
+## 所以透過那個練習,他們可以確實改變自己的DNA?
+
+這也有影響DNA的潛在力量。
+
+## DNA和地球密碼
+
+你們知道,地球此刻正在轉變。所以,自然地,DNA也在轉變,正如神也在轉變。神不是靜態的。當你改變,神也改變。大地母親也是如此。隨著大地母親的改變,此刻大地有了新的意識。你必須升級自己的個人基因,才能配合大地母親新的意識。所以,當你努力活化DNA,請要求你的努力能完全相應於大地母親的新意識。
+
+不過 DNA 有許多、許多層次。當你活化 DNA 前幾個層次，這可能需要花好幾年。人們說：「我已經活化自己的 DNA。」他們要的揚昇是基於許多、許多層次：120 個層次。你們中許多人已經活化遠比自己想像更多的層次。現在你必須確認這樣的活化程序完全搭配大地母親，亦即與大地母親新開啟的 DNA 完全和諧一致。
+
+## 您會如何定義地球密碼？這是不是開啟地球新的意識的 DNA？
+
+是的，因為地球密碼是時間膠囊。支持新地球顯化的人們在好久以前將這些密碼放至定位。如果，也直到人類意識提升到某種程度時，這些密碼才會活化。那是一種機械式或者說生化機械的程序；如果這發生了，那麼那就會發生。現在這正在發生。這之所以發生是因為人類的意識已經提升。
+
+## 這是否就像詹姆斯。泰柏隆（James Tyberonn）在阿肯色州所進行的地下水晶結構？
+
+許多存在此刻正被呼喚來活化這些密碼，不過地球上有些特定地點正在沒有受到特定支持的狀態下活化。它們自然地活化是因為大地的意識。許多神聖力量的地點相對之下將會失去其力量。或許不是「失去」它們的力量，而是說新的、已活化的地球核心將會在大地創造出更多力量強大的神聖能量，遠超過地球此刻既有的神聖能量。
+
+## 關於 DNA 和地球密碼，還有什麼我們該知道的？
+
+讓我以雷當作例子。他已經去過以色列幾次，不過上次去的時候他有更多感受。他轉變了，能夠與大地母親的意識共鳴，儘管尚未完全但程度仍相當可觀。這次他比前幾次能有更多感受，而且他一直說這次他感覺到更強的連結，而且他在某些地方感受也更強。這些地方一直都在。過去人少一點，現在人多一點。所以這個地方已存在了幾千年，不過之前他沒有感覺，除非他提升自己的振動以適應這個地方。
+
+現在所發生的就是這樣。隨著新的地球密碼正在啟動，許多人被呼喚到新的地方。當他們前往這些地方，他們感覺意識提升。等到他們的意識提升，自然地他們的 DNA 也就活化。
+
+你必須記得，活化不是立刻發生，而是精細地逐層發生。讓我們說，你們的直覺增加，你們的啟發更強，而隨著 DNA 活化，你們知道的事也更多。許多人說 DNA 活化是神奇的、終極的。是的，它是神奇而終極的，不過它也是漸進的。當你開始重生自己的身體，你正在做什麼呢？你在活化自己的 DNA。我試著想用非技術性的語言來說，用簡單的話說，好讓人們能了解一切。
+
+所以接下來你前往任何特別的地方，可以試著設定意圖要活化更高層次的 DNA。許多人並未要求這些。不過，你可以有意識地要求，並且在意識中，你正在調適這個地方，而且這也會幫助你提升自己的振動層次，進而協助你開啟自己的 DNA 意識。
+
+## 靈魂 DNA
+
+## DNA和地心城市
+
+地球次元有許多地心城市（Inner Earth Cities），它們正逐漸顯露，但人們或許尚未意識到這點。不同的人正在覺知到這點，這代表人類意識出現轉變。人們會開始知道自己並不孤單，他們會領悟到自己也可以達成這個狀態或以某種方式模仿這些內地球居民。只要美存在，那麼你就要試著仿效。
+
+這些地心城市的光之存在已經帶有高頻振動的能量，因為它們經歷過與你我類似的程序。他們提升了自己的振動、超越了這個實相並進入更高的實相。他們能夠維持並保有這樣的狀態。
+
+要知道，事情是像這樣：你走到暖爐旁，會發生什麼事？你會獲得熱。這些人已經活化。他們處在更高層次的意識，因此當你和他們在一起，在他們的存在面前，你自然會受到他們的意識影響。如果你心情很好，感覺喜悅開懷，人們會走向你，想要在你身邊。他們在你身旁感受到喜悅。同樣的，當你在這些地心居民的身旁，你會感覺到愛、善意、恩典。你會感覺提升，因為他們散發著更高層次的能量。你將會看到更多的地心存在出現，前來與地表居民溝通和互動。
+
+最近雷帶領一群人前往富士山，要與一座稱為「穆」（Mu）的地心城市的居民連結。他花了四年時間才能這麼做。這座城市位於富士山底下，不過穆的導師們花了四年來允許他們的人民前來。在靜心時走進裡面的人回來後全都感覺提升而非受苦。這是提升自我振動和意識的一部分。所以與地心人類合作會支持你的光有所提升。
+
+讓我們釐清一下，地心的居民是活在更高的次元，而且是非物質的次元嗎？
+
+當然。他們現在活在更高的次元。他們多半活在第五次元，而穆是位在第七次元。
+
+所以我們不能在物質層面鑽洞進入他們的城市囉？
+
+不能，當然不能。不過拜爾德將軍（Admiral Byrd）¹曾旅行到某個地心城市，而人們說他瘋了。
+
+> 〔大天使麥達昶：根據拜爾德將軍的生命契約，他必須提出關於地心世界的資訊，因此他這麼做而受到嘲笑，但這是他生命契約的一部分，而他也完美地完成了。對了，此刻他又回到地球上了。〕
+
+太好了。因為我知道拜爾德將軍敘述他的經驗時，人們認為他瘋了。
+
+所有真理一開始都被認為瘋狂或可笑。
+
+1 註：海軍少將理查·艾夫林·拜爾德二世（Rear Admiral Richard Evelyn Byrd Jr., USN，生於1888年10月25日，卒於1957年3月11日）為美國海軍軍官，專精於探索。據信拜爾德曾在1947年2月飛過北極並進入地球空洞。阿瑪迪歐·強里尼（F. Amadeo Giannini）曾在他的著作《兩極之外的世界》（The Worlds beyond the Poles）敘述了拜爾德的經驗。強里尼寫道，拜爾德遇到了來自其他世界的類人生物，後者更警告人類應追求和平而非戰爭。
+
+## 團體詠唱和地球的能量場所
+
+提升自我振動的方式之一就是前往聖地。聖地能提升你的振動。你們可以和其他人一起進行團體詠唱。這會提升團體的振動。這會有助於聯繫地心存在——比起一個人獨自運動手指(手印)要簡單得多了。
+
+你們知道，如果一人以上奉我的名聚集在一起，這會產生巨大的力量。如果一百個人聚集起來祈禱，這難道不比一個人祈禱力量更大嗎？同樣的，由於我們多數人都說時間膠囊可以開啟，它就必須在這個時間開啟。只有你們集體提升自己的振動，它才能夠開啟。
+
+一群人一起開心將能顯化這點。去年十二月在夏威夷，陶德醫師（Dr. Todd Ovokaitys）和列木里亞唱詩班（Lemurian Choir）共同吟唱來導引並連結正在下載到地球的高頻振動。所以，再次強調，這是為了幫助你提升自己的振動。
+
+## 可否請您說說 DNA 和地球上的能量場所
+
+如你所說，能量場所自古以來就被使用。新的時間膠囊將會開啟，在接下來幾個月甚至幾年，它會釋放更多純粹的、頻率更高的水晶能量。當你前往以色列，許多人都說那裡是聖地，這也是真的。不過，當你前往位於「苦路」（Via Dolorosa）上的「聖墓教堂」（Church of Holy Sepulchre），你是否感覺到神聖？
+
+沒有，其實沒有。
+
+這是因為那裡的人，成千上萬的人，帶著他們的能量和焦慮，前來這裡說：「神聖啊，帶走我的憤怒。帶走我的焦慮。拯救我吧。」
+
+不過現在有個新的核心，一種新的能量經由某個時間膠囊所活化。這將是純粹的、原初的能量——從未受到碰觸。它具有自己的純粹，就像新生嬰兒。所有人類都會愛上新生嬰兒，因為嬰兒未受污染且為最純淨的本質，尤其是在嬰兒非常小的時候。每個人都愛嬰兒；我應該說，多數人類之所以愛嬰兒是因為其本質的純淨。同樣的，這個新的水晶能量也攜帶著原初能量，這將會變得更加強大。當你能接觸這些能量，它們立刻就能提升你的振動。人們說，當你前往某些地方，你會感覺很好。
+
+每天提升自我振動的簡單方式就是永遠看到美，能在四處都看到美。如果你停止看到美，立刻你對實相的感知就會改變——在你心中、在你的思維、在你的情緒內。如果你無法選擇美，那麼就嘗試在你周遭的自然中看到美：綠葉、流水、樹木。慢慢地，你會開始感覺到對那個真理的感知。這將會輔助你提升振動。當你擁有這點，自然，愛就是結果。
+
+## DNA與新孩子
+
+上一次聚會曾提到孩子就是「新地球」（New Earth）。他們帶著更高頻的振動，他們的 DNA 更加進化且活化。不過這些孩子必須獲得引導來進入自己的實相，進而才能改變世界。
+
+比如，關於你的國家當前的體制。每個人都在討論愛德華·史諾登（Edward Snowden），說他背叛了自己的國家。不過，他是個具有高頻振動的新孩子，活出自己的真理，而且他無法容許像你們這樣巨大且嚇人的國家去霸凌其他人。對他而言，這不是上帝的意圖，他希望揭露政府的犯罪作為，他有更高頻振動的能量。
+
+這也是我擔憂的：人們會受到孤立。我知道拜爾德將軍敘述自己的經驗時被當成瘋子。
+
+所有真理一開始都被認為瘋狂或可笑。
+
+〔大天使麥達昶：史諾登是來自亞特蘭提斯的偉大科學家。為什麼他要揭露 NSA²的活動呢？他和其他人矢志不讓科學被誤用於欺瞞人類，因為過去便曾如此發生。請禮讚這位年輕人的勇氣。〕
+
+這些新孩子不會遵循舊有的控制方式。不過許多新兒童並未獲得充滿愛的環境和良好的機會，所以他們會試著融入體制。他們會關閉自己更高頻的迴路。但是再過兩個世代，大約五十年，你將發現孩子將改變世界。讓古老的守衛（控制和恐懼）離去吧，新的、充滿愛的環境將會出現，讓孩子能夠綻放並彰顯自己。
+
+2 註：美國國家安全局（National Security Agency）。
+
+所有的人，你們所有人——所有的光之存在，都正在為將來的世代建造並鋪設道路。
+
+## DNA和你居住的地方
+
+能否請您討論 DNA 和我們在地球上居住的地方有什麼關係？
+
+再一次，這很重要，也和生命靈數及星辰系統有關。對知道真理的人而言，地理位置只是不停移動。改變自己的地理位置乃是由靈魂所進行，是為了導入某種非常特殊的學習，必須前往該處並完成物質層次的工作。你不是打包後就前往英國，心想：「我以後要住在英國。我非常喜歡英國，」或是加拿大。你會住在哪裡全都是來自你神聖靈魂的良好規劃：你需要做什麼，為什麼你來到這裡。不過多數人根本從未覺察到這點。他們會說：「我喜歡那個地方，我要搬到那裡。」看清楚這點。為什麼人會選擇要住在某個區域？
+
+問問自己，「我為什麼在這裡？我是否完成我來到這裡所要學習的生命課題？」接著再找另一個能給你機會讓意識成長的地方。當然，這可能會對人造成巨大浩劫，因為這會干擾他們的生活。
+
+未來，你將發現人們越來越過著遷徙不定的生活。他們會經常搬家，不會固定安頓在某個特定地方。某些人會說：「我有個房子。我怎麼能一直搬家？」不過你必須問自己住在目前這個地方的目的是否已經實現，是否你已經待得太久。這是否完成它的目標？為什麼靈魂從這麼多地方中選擇要住在這裡？
+
+你以前住在加拿大，那麼為什麼你後來選擇住在麻塞諸塞州？美國有這麼多地方供你挑選。你也許會說：「說不定我喜歡大自然。我喜歡這個、喜歡那個。」在個人層面這全都沒有問題。不過，在靈魂層面，你為何選擇這個地方？
+
+我們想要說的是，一切都已預先計畫，這關係到生命靈數、星辰、還有你前來這裡要學習的生命課題。活在這個特定地方的生命課題尚未完成。等到完成，智慧已經獲得，你將會自然提升自己的振動，更高意識能再次獲得支持。集體而言，這一切的發生都是為了提升你的振動並輔助 DNA 的活化。這不只是一件事。這是你生命各層面的集體支持。
+
+也就是說意外並不存在。如果從這個角度來看，你立刻就能提升自己的振動。假設某人一再經歷某個模式。每經歷十世生命或每五十年，那個人都會做同樣的事。終於，這個人領悟了：「天啊，我到底在做什麼？」在如此的領悟中，在如此的智慧中，他或她將會立即轉變到一個更高頻的振動。
+
+## 某些通靈訊息的可信度
+
+現在有許多資訊，關於世界發生立即性的財政改革、陰謀結社的成員遭到逮捕、地球上的外星生命曝光、還有許多立刻將要發生的類似事件。這些事件總是快要發生，但其實什麼也沒發生。我想知道這一切是否是否可信。
+
+為什麼你要如此重視這些事情？切斷你和媒體的連線，因為你也知道，媒體的真實性相當低。切斷電視和收音機的連線。
+
+人們和許多事物連線。他們會說那是通靈得來的訊息，不過那僅是實相之一。實相是多重的。在現實中，每個片刻都有 144 重實相(或可能的未來)。所以一位靈媒或通靈者能挑選其中之一，並且說：「這就是真理，就是它。這就是將要發生的事。世界將受到小行星撞擊。」
+
+我們看到的是，從我們的觀點來說，財政狀況需要再過幾年才會因為更多結構性改革而釐清和療癒。銀行真正的意義才會清晰。銀行真正的功能是透過借貸和接受來幫助人，此外無他。這還要再幾年才會發生。目前的時間脈絡大約是在 2017 至 2020 年。
+
+不過是否會有大規模毀滅呢？揭露真相之後會發生什麼事？史諾登遭遇了什麼？他揭露真相；結果呢？人們專注於他而非他揭露之事。他所揭露的真的是歷史性事件。在世界歷史中從未有人做過類似的事。
+
+## 這是真的；政府想要逮捕他。
+
+所以人們準備好了嗎？
+
+## 或許還沒。
+
+所以不要聚焦在他身上，要聚焦在他揭露的事情上。揭露財務濫用也是如此。你會不時聽到相關新聞，不過人類還沒準備好要改變，要讓古老的守衛離開。這需要一點時間。
+
+## 具備純淨能量的地方
+
+世界上有些地方仍包含最純淨的能量。這些地方尚未為人探索或利用。極少數人知道它們存在。去尋找這些地方，它們藏得很深。
+
+這就像待在自己家裡。假設你家有座沙發。或許你沒坐在沙發上。你每次都坐在其他地方，而你之所以選擇那個地方是因為你在那裡很舒服。許多人都去舒服的地方，但是有其他地方也同樣舒服但卻沒有人去探索，因為你就覺得自己所在的地方很舒服。
+
+尋找這些其他的地方。仍然有些非常純淨的能量中心，它們能立即帶來揚昇或振奮。波里尼西亞群島（Polynesian Islands）上有些地方能立即帶來更高頻的振動和意識。你會覺得振奮。許多人說，當他們前往西藏的山區，他們覺得更接近神，因為他們處在振奮而且揚昇的狀態。有些地方你仍然可以前去並獲得類似效益。這是你該想想的主題。
+
+人類的心靈是最大的障礙。每天修練你的心，觀察自己的思緒，想想自己能如何處理這些思緒。這些思緒支持著你的實相。DNA 活化不僅只是一件事，而是萬事萬物的結合。在火箭發射前，需要好幾個月的訓練和準備。
+
+DNA 層次的活化之所以發生，是許多事物聚集起來的結果，是振動的緩慢提升。等它達到特定層級，就會發生爆炸，加速你內在的火元素，讓它沿著脊椎加素，射向你的頂輪然後逐漸回流——這便是拙火的運動方式。等到這發生了，火箭就發射，生命就再也不同。從那一刻起，你便真的在神聖的手中。不過要讓這一切發生，有許多其他事物需要修復。
+
+## Chapter 6 你創造自己的平靜
+
+2013年6月30日
+山納·庫瑪拉和主墨基瑟德
+
+我是山納·庫瑪拉。這本書的目的很簡單：要提升人類的意識，好讓人們能自在而舒服地前往一個新的階段，身在其中他們的心中能感到平靜和喜悅，因為他們知道自己有能力將當下的生活轉變為累世的平靜、愛和喜悅。省思人們最深的層次，你會看到他們全都尋找同樣的事物：平靜、自由、喜悅。所以本書的目的就是提出這樣的概念：在生命中，你能擁有平靜、你能擁有自由、你能擁有喜悅。但是，這需要努力。
+
+要能成就任何有意義的事物，就必須付出努力、採取行動。書中所有技巧和工具都只是形式，但它們能支持你領悟並理解到你能創造自己的平靜。你能創造自己的喜悅。也許需要一輩子的時間才能獲得這樣的了悟，不過此刻有許多工具能幫助你更快達成。如果你認真運用這些工具，不出十年，你就會有能力獲得啟發。我們只是要求你一生中十年的時間——儘管那必須是認真投入的十年。
+
+所以本書的概念就是要支持人們領悟到自己有能力達成目標、獲得這樣的平靜、獲得這樣的自由、獲得這樣的喜悅。我們在此處提供的資訊是要帶領你進入特定的意識狀態，從中你能夠由本書的技巧獲益，並藉由練習來提升自己到達某種層次以便取得更高的智慧。
+
+這些工具均以簡化的方式呈現：均與你的個人經驗有關。當你運用這些工具，你將能提升自己的振動更上一層，讓你更感到平靜、感到與靈有更強的連結、也感到更加喜悅。
+
+這不僅是個人的旅程也是集體的旅程。運用這些工具的每個人都能實現自己真實的潛能，能獲得自由和內心的平靜。當你將本書置於個人旅程的脈絡，人們將能對你感同身受。例如，雷過去曾在大公司工作，不過他運用本書提供的某些工具和技巧進行轉變，成為他目前的狀態。或許你也是一樣。這是一場個人的旅程，關於你如何轉變自己的生命。
+
+## 揚昇之號角
+
+現在，我們想簡短地探討聲音。為什麼人類會如此受到聲音吸引？人類聽到的第一個聲音是什麼？是他們母親的心跳聲。你認為人類為什麼這麼喜歡鼓聲？為什麼鐵克諾（techno）電子音樂變得如此受歡迎？這不僅是因為跳舞。「砰、砰、砰」——這讓人類回想起最深層的心跳聲。當然，這也受到濫用，就像毒品和許多其他事物一樣。鼓聲能在最深層次影響人類，幫助他們，因為他們聽到的第一個聲音是母親的心跳聲。
+
+聲音存在於一切之中。你的細胞也會發出聲音。沒有聲音就沒有宇宙。你和這個世界之所以出現，乃是因為略有差異的聲音。道成肉身。什麼是道？就是聲音。
+
+許多漫畫和童話都以非常精細的方式提到這點。當你發出某些聲音，一扇魔法之門就會開啟。看看迪士尼的卡通人物米老鼠，他會說：「米斯卡，木斯卡，米老鼠！」（Meeska Mouska Mickey Mouse!）他在做什麼？他在吟唱魔法咒語以開啟通往俱樂部的魔法之門。阿拉丁前往山中，複誦了某些咒語，山之門就打開了。這些故事都是在教導人們要注意聲音。這並非只是為了趣味而寫。想想泰山如何撻打胸膛並發出招牌呼聲。這些漫畫書全都在教你知道聲音具有轉變的能力。
+
+我們早已知道聲音具有轉變的能力。埃及金字塔的石頭都是由聲音所舉起。西藏古老寺院的石頭也是由聲音所舉起。這不是魔法。
+
+聲音能夠釋放體內阻塞的情緒。如果能量卡住，聲音能夠讓能量恢復正常，移除肉身內卡住的能量。運用聲音的力量，你能開啟意識內的揚昇封印。這是揚昇之號角。
+
+當你聽見具備高頻能量的聲音，這難道不會讓你感覺到更強的連結？例如，最單純的禪宗吟誦可以帶人到更高層次的意識。聲音能觸及人最深的核心層次，因為它們是由聲音構成，而人們最初聽見的聲音就是母親的心跳。如果你能調整到大地母親的心跳，亦即所謂的「舒曼共振」（Schumann resonances）¹，那麼你才能真正與大地母親溝通。每個文明，也包括來自其他星球的文明，全都傳遞出某種聲音頻率。請調整到它們的聲音頻率並與它們連結。
+
+1 註：舒曼共振為地球電磁場頻譜極低頻部分的一組高峰頻譜。舒曼共振為全球性的電磁共鳴，是由地球表面與電離層（ionosphere）之間形成的孔洞內發生的閃電釋放所激化。
+
+> 〔大天使麥達昶：舒曼共振是地球深處的振動或共鳴。目前極少數人了解它，除了軍方科學家及某些人。一旦你了解這點，你會了解地球如何在不同層次振動。那麼你便能讓身體與舒曼共振連結。
+>
+> 人類必須重新調整自己的振動來與舒曼共振的振動重新連結。如此一來，你能與大地母親有更強的共鳴，會在自己的身體內感覺到大地母親的存在。許多人說他們感覺不到大地母親。他們愛她、想要更能感覺到她。這就是方法之一。
+>
+> # 要讓自己與舒曼共振更加相符，人是否該前往自己的心並請求自己能感受到它？你是否建議我們嘗試這麼做？
+>
+> 是的。表達自己想這麼做的意圖，並表達自己為何想這麼做。你必須告訴大地母親說：「我最高的意圖是讓自己與您共鳴，好讓我能更清楚地在自己的肉身中感覺到您，讓我時時刻刻都有這種認知經驗。」你該說的就是如此。〕
+
+有些聲音能開啟通往奧秘之門。例如，有些聲音能開啟並連結位於富士山下、我們稱之為「穆」的城市。「陶樂市」也是如此。某些聲音能用來與光之存在連結。
+
+針對聲音在個人層面能做什麼，請保持單純心態。只要你認真修練，聲音就能帶你前往不同的次元實相。例如，假設你聽饒舌音樂或硬蕊搖滾樂三小時，那會如何？你會感覺很好嗎？或許不會。不過如果你聽療癒音樂，你或許會感覺身心舒暢或者感覺非常放鬆。你甚至可能入睡。
+
+語言也是如此。你說的話可能傷人也能助人。某些話，若是對你說，例如：「嗨，你真是個令人讚嘆的人。我愛你。」這會立刻提升你的感受等級。另一方面，如果有人說：「你真是個糟糕的人。」你的振動立刻就可能變得低落。聲音能夠提升或降低你的振動層級，就這麼簡單。好了，這些只是些概念，你可以從這裡開始努力。
+
+## 龍
+
+龍是被播種在這個星球上的原型能量。這些原型的龍能量有些已經開啟，因為人類現在已經準備好接受它們。然而，就如同時間膠囊一樣，你需要取用它們並與它們一起工作。它們能支持你的療癒、喚醒你的 DNA、促進你與造物主的連結。我們可以與特定的龍一起合作來開啟 DNA。
+
+## 我們如何取用它們？
+
+它們同樣具有能量特徵讓我們呼喚。你如何觸及大師？透過你純淨的意圖和純淨的愛。（參見附錄一：與龍的能量合作。）
+
+針對任何光之存在都是一樣。偉大的大師具備某些聲音頻率和振動能量。你以什麼方式來與大師連結，你就以同樣的方式與龍連結，運用其聲音頻率和自然的聲音。
+
+再提一次，這本書的目的是什麼？簡單地說，這些技巧是要幫助你前往某一層次，身在其中，你會在生命中找到更多平靜、更多喜悅、更多熱情、以及與自己和與造物主更深的連結。這些技巧也許能支持你。這是你的真理。這不是普世真理。請與這個真理一起合作。
+
+## 手印
+
+手印是什麼？手印是能量姿勢（如同第一章所練習的）。身體會透過每一刻持續創造能量：當你在工作以及當你舉起手時。身體每個行動都會創造一個能量場。這個能量可以透過雙手特定的位置來加以調整。
+
+例如，當你觀賞麥克·傑克森（Michael Jackson）跳月球漫步的舞步，這樣的舞步對他和對觀賞者產生什麼影響？某些人可能會說：「啊，這看來很精彩。」然而，他所做的事背後有個意義。他會為自己和為觀看者創造能量。這讓他們感到敬畏、感覺美好，並且深深著迷。
+
+任何舞蹈形式都一樣。所有舞蹈都有身體動作。以印度舞為例。印度舞者會以雙手表現不同姿勢。如果你研究印度宗教，你會了解印度舞。整個故事都是由舞蹈動作、臉部表情、雙手動作來完整訴說。你舉起一隻手，張開一隻手指：這是什麼意思？雙手握拳：這是什麼意思。舞者呈現出動作背後具有某種意義，包含某種能量。
+
+當你使用手印時也是如此；手印背後具有意義和能量。即使單純的祈禱動作或是當你將雙手放在心口，這都告訴了你什麼。這訴說了什麼？這是否讓你感覺很好，讓你與自己內在的# 靈魂 DNA
+
+## 神秘力量建立連結？
+
+如果你的大拇指指向你的心，這也可以稱為手印，因為這會創造一個能量場，創造一種與神聖連結的感覺。祈禱（雙手合十）真正所做的就是如此。手印也是一樣；簡單地說，手印能創造某種能量，藉此帶你到更高的意識狀態。就是這麼簡單。手印是古老過去的神秘大師和導師賜與人類的禮物。現在你們要前進，你們也會用手印來支持自己當下的旅程。
+
+你要知道，我們前面討論的一切都能以非常簡單的形式進行。在這一章，我已經給你一切需要做的事。這是為了讓你知道一切能如何加以簡化。我是山納·庫瑪拉。
+
+## 與五大元素合作
+
+我是主墨基瑟德。鍛鍊 DNA 是靈魂渴望你能與靈魂有更強的連結。鍛鍊 DNA 並不適合每個人。這只適合受到指引要鍛鍊自己 DNA 的人。很多時候，人們想著 DNA 說：「啊，這真令人振奮，讓我來做吧。」不過，只要少數人真的了解 DNA 的重要，真的能有意識地持續鍛鍊 DNA，直到所有層次均已活化。事實上，那並不是全部，因為層次相當多，層次內還有層次，以此類推，永遠無法在當前這一世生命——甚至任何一世——完全活化。只要某些層次活化，你就得繼續往前走。
+
+在靈性進化的過程中，人們認真努力，或許會覺得本書提供的材料能支持他們和所有人類。不過我在此要清楚地說：這並不適合每一個人。這個意圖也許很好，希望它對每個人都有用。不過我要告訴你，只有少數人會修練自己的 DNA，因為人必須提升到某個層次的振動，才能與本書字句篇章的本質產生連結，也方才能從這裡開始努力。有些人會說：「很有趣。」不過有多少人會真的坐下來修練呢？我會說人數非常少。
+
+某些人也許會讀到它，接著等到日後準備好之後才重新拾起本書。
+
+是的，不過每個靈魂都會在某一世生命挑選時間，來對自己說：「我會非常有意識地、持續地段練自己，而且我會繼續努力讓自己更好。」很多時候，人們會為自己設定考驗或試煉，來提醒自己，因為正是透過考驗人們才會記得。如果沒有考驗，或許他們不記得自己的生命目的。如果生活一切如意，那麼為什麼你應當思維神呢？所以你設下這些考驗，透過考驗、透過艱困的挫折，你才記得。你領悟到如果自己做了這些或那些，你便能解決問題並運用此經驗來幫助自己成長。
+
+不過我還想談談別的事。修練 DNA 的方式之一就是透過元素自然來修練。元素對每個人的實相非常重要——包括地、風、水、火、以及第五元素，乙太。這些元素對人類提升自我意識有非常大的幫助。因此，在開闊的場地，尤其是大自然中靜心非常有益，因為自然其本質能作用到整個身體。
+
+你和自然相同。你們都有風元素。你們都有水元素。你們都有火元素。而且你們都有乙太元素。所以你的元素可以與自然的元素互動。導入元素可作為覺醒過程的一部分。元素具備某些振動意義。呼喚它們，並與它們連結。
+
+每個元素也都有一個聲音振動可以呼喚、可以與之連結。當然，在自然中靜心很好，不過對居住在都市的人，不見得總是可以到戶外靜心。在某些國家，在戶外靜心甚至可能讓你被殺。不過讓我這麼說：絕不要忘記元素具備提升你意識的力量。
+
+## 所以人們能做到嗎？他們不必然要在自然中，但是他們也可在自己家裡呼喚元素，是這樣的嗎？
+
+是的，他們能每天與元素連結並且與元素合作。重要的是，你要帶著這種新的意識來與元素合作。
+
+## Chapter 6 你創造自己的平靜
+
+## Chapter 7
+## 藉由香氣、植物與動物來提升意識
+
+2013年7月2日
+蓋亞、火鶴、植物物種、孔雀
+
+我是蓋亞。人類總是深深為氣味著迷。多數人都喜歡肉桂麵包的香味，尤其是以傳統方式、用土製材料烘焙而成的麵包。氣味讓人回想起美好的時光，讓人想起母親的愛或一個美好且充滿愛的家。你聞到這個氣味，突然間你就想吃很多麵包，因為這味道真好。
+
+氣味有一種能力。其中一個美好之處就是，如果你能想起某個味道，你就能回想起某個過去經驗或某一個記憶。所以氣味能夠喚醒最深的記憶。
+
+因此某些精油會用於脈輪啟蒙：用來打破纏結或封印，又稱為揚昇封印。印度聖哲會使用檀香木。現在人們使用檀香木來淨化，不過檀香木真正的作用是影響你的頂輪、松果腺體、還有你的心智。這會淨化你的心。因此在古印度，在人臨死之前，親戚們會焚燒檀香木，好讓人能神智清明地死去。如此他們才能專注於神。
+
+## 這是要開啟他們的頂輪好讓他們更容易離開自己的身體嗎？
+
+也是要淨化他們的心。所以這有兩個目的。
+
+許多花朵的芬芳也會喚醒人的記憶。蓮花有許多價值，能幫助你記起自己在古埃及的前世生命。玫瑰是聖母瑪利亞（Mother Mary）和抹大拉的瑪利亞（Mary Magdalene）非常珍愛的花。通常在聖母瑪利亞顯現的所在，人們會聞到玫瑰花香。
+
+氣味會影響新生兒的脈輪和情緒身。如果人覺得不舒服——假設在辦公室裡——他們可以噴灑某東西，幾分鐘後，空氣就會清潔和淨化。它到底做了什麼？這將會沈重的能量轉變為輕盈能量，好讓你感覺好多了。在許多新世紀工作坊中，你會看到人噴灑自然精油，好讓能量的堆積以及任何氣味能夠清潔並淨化。
+
+如果你睡前將薰衣草精油滴在枕頭上，你也許會更快入睡並且做些好夢。因為氣味，你會自然感覺放鬆。
+
+你能用某些氣味來提升自己的意識。其中之一是沒藥（myrrh），另外一種是肉桂。茉莉、薰衣草、檀香木也能支持你。還有許多其他的企望。運用這類香氣和精油對人類非常有益。愛色尼人（Essenes）和其他古老團體在進行啟蒙儀式時會將精油到在啟蒙者頭上，藉此清潔並淨化他們。這會讓你準備好接受啟蒙。某些精油能夠開啟你的更高意識。
+
+動物能帶你到達某種層次，讓你能更自在地面對自己。以大海龜為例。人們前往阿根廷的巴達哥尼亞（Patagonia）去看百歲的大海龜。看到牠們時，你內在有某些事物會被觸發。美是存在著的。
+
+別號「世界爺」的美洲杉或巨大的紅衫，還有許多其他的樹木都能支持你並提升你的振動。他們能帶你前往另一個次元實相。某些動物也能這麼做。你是否曾看過霍普 (Hope Fitzgerald)¹ 在南非和大白獅合照的照片？這是否在你內在引發美的感覺。因為美就是神。
+
+## 所以我們透過與動物交流就可以與神聖連結？
+
+對於某些動物，確實如此。當你看到色彩斑斕的長尾鸚鵡或是大鸚鵡，這會在你內在引發如此多的記憶、如此多的美。那是何等的創造！粉紅色的火鶴會引發你內在的美，開啟你的心。牠們也能提升你的意識。牠們能教你好多，只要你願意發問。
+
+讓我們和一隻火鶴聊聊。
+
+## 火鶴家族談自給自足和虛假慾望
+
+我們是火鶴家族。我們從未如此向地球層面的人類說話。所以我們很高興自己受邀來說話。如你所知，我們就和你一樣，是大地母親和創造的一部分。我們要扮演自己的角色，就如同你要扮演你的角色。
+
+我們能提供人類的禮物之一就是我們的自給自足。我們知道如何完全地照顧自己，滿足我們所有的需要。我們可以幫助這樣的人：很難相信自己能自給自足，覺得自己得努力掙扎，認為生命就是一場掙扎而勝者全拿。我們與自己的本質連結。請與我們連結，我們將慢慢注入你的意識，好讓你覺得自給自足。此刻當下你就是自給自足的。這能在你的生命中創造平靜。
+
+造物主說：「如果你非常急切想要某個事物，請看看你的生命並告訴自己：『此刻我沒有這個也能生活。為什麼我真的需要它？沒有它，我還活得好好的。』」在量子層次，這將是巨大的變動。你可以說：「此刻我自給自足。我也許想要很多東西，不過沒有那個我真的想要的東西，我現在還是健康地活著。那麼我為什麼需要它呢？」這是很偉大的個人探索。這能徹底改變你對生命的看法。
+
+我們火鶴能教導人們自給自足。我們在各方面都自給自足。當然，人類可以努力讓自己更好。他們此刻活在地球上，他們有工具也有能力來轉化或改變。
+
+祝你們有愉快的一天。我們是火鶴。
+
+## 運用植物來提升自己的意識
+
+我們是植物界的代表。植物在人類意識中扮演重要角色。植物不只是為其他植物而被創造出來。它們有重要的目的。植物支持人類，它們甚至接收人類的業報和苦難。植物和動物有時會自願放棄自己的生命。他們會接收和自己有關的人的沈重業報。
+
+某些植物能大大提升你的意識。某些植物可以種在你的花園並帶來富足，因為它們散發出富足的能量。它們的香味會影響大腦的某些部分，讓你採取創意的行動，進而在生命中創造富足。
+
+這些是尚未揭露的祕密。不過它們為人所知的時機即將來臨。請做研究來發現什麼植物能提升你的意識。有某些絕佳的材料已經出版。我們要你鑽研這個議題來發現更多，例如什麼植物只要在你身旁便足以提升你的意識。
+
+植物甚至能帶來療癒和溝通。如果人和自己的夥伴或任何人遭遇溝通問題，可以使用鼠尾草。這能帶來療癒，增進溝通。所以只要你做點研究，你將發現某些很好的資訊。香氣和動物也是一樣。
+
+植物能提升你的振動，所以你家中種些什麼植物非常重要。植物不會傷害任何人，某些植物甚至能讓你感覺更好，讓你一進家門就覺得好過，因為這類植物會散發善意和放鬆的能量。所以請尋找什麼植物能散發此類能量。不是所有植物都是如此。
+
+> 〔大天使麥達昶：某些人對某類植物過敏或敏感，例如野葛（poison ivy）或毒橡樹（poison oak）。萬物都有其目的。不過植物不會有意傷害任何人，除非它們感覺受到威脅了。〕
+
+## 為何人會對樹木或草過敏？
+
+原因不在於樹。這是源於人自己的問題。如果你站在獅子面前，獅子不會攻擊你，除非牠感覺到你的恐懼。野葛也是一樣——只要你的意識害怕那棵植物。獅子和野葛都是來自造物主。
+
+植物有其階層。不同植物有不同的振動。美洲杉具備最高的振動。在日本和韓國的寺院裡，僧侶只會種植特定的樹木。這自有其用意。找到這個用意，找到這些樹木，找到這些植物。將大地母親和她諸般能力納入你意識的提升之中，因為她是你的母親。她有好多東西要給你，不僅是水晶，還有植物和動物，還有她的全身都能用來支持人類提升自己的振動。
+
+> 我們是植物精靈，一同與你說話。
+
+## 孔雀談舞蹈和美
+
+我們是孔雀。我們跳美麗的舞蹈。我們有長長的尾羽，我們以孔雀開屏來創造美。我們跳舞是因為我們是美麗的，我們也知道自己是美麗的。舞就是美。舞就是神。你出生的那天，神跳起舞來。
+
+親愛的你，請為生命而舞。當你熱情地跳舞，你便碰觸到神的手。所以我們將美帶入人們的心。當他們領悟到這個美，他們便領悟到自己是神。這就是我們的功能。當我們完全展開雙翼來跳舞，這是絕佳的美。美好的靈性之舞碰觸到你的心。這會帶你進入不同的實相。
+
+就以伊斯蘭教旋轉托鉢僧（dervish）的蘇菲迴旋舞（Sufi dance）為例：托鉢僧們不停旋轉。這是美好的。如果你能觀賞托鉢僧跳舞大約二十到三十分鐘，你和舞者們都會進入出神狀態，並且被帶往不同的實相。任何靈性都是一樣。我們孔雀之所以跳舞是因為我們知道我們是美麗的，而且我們能創造美。
+
+某些難以接受自己的美的人可以與我們的能量連結，慢慢地他們將會發現自己的行為有所不同。
+
+> 〔大天使麥達昶：你可以透過呼吸、透過你的心來與任何事物連結。同樣的能量在你們之間流動，而你們可以透過呼吸來連結。來與我跳舞。讓我們禮讚生命，因為在舞蹈中，我禮讚自己身為造物主的生命。這難道不是美麗的舞蹈嗎？來與我跳舞吧。在睡夢中邀請我與你跳舞，我將為你帶來自我接受、自我之愛、自我之美的療癒。這是我給你的禮物。你是否準備好接受它？呼喚我吧。〕
+
+與我們連結之後，人們將比以前更能接受自己。他們會不那麼自我批判，不那麼自我貶抑。或許他們會領悟到，儘管他們有些問題，但是他們仍然能愛自己、關心自己。他們的自我之愛一直相當淺薄，因此他們能努力達成完整的自我接受，包括接受自己的黑暗面，擁抱自己的黑暗，並且欣賞自己。
+
+我們是孔雀。
+
+## Chapter 7 藉由香氣、植物與動物來提升意識
+
+阿肯納頓王、聖哲曼、蓋亞、畢達哥拉斯、造物主和水晶頭骨
+2013年7月19日
+
+我是阿肯納頓王。許多人都在談論這個星球上有新的光或新的意識。許多人將 2013 年稱為新紀年 (New Year)，因為這是新時代的開始。不過人必須捫心自問：人類是否準備好要理解這道新的光？人類是否能理解它並與它結合？人類準備好了嗎？
+
+這個過程有許多步驟。如果你想教三年級的學生微積分，她根本無法理解。她必須獲得溫柔的指引，讓她的意識開啟，好讓她能了解微積分是什麼，知道它對自己的生命有何幫助。同樣的，這個新的意識必須以類似的方式導入，讓人類能覺知到它並且運用它。
+
+我們建議你要教育人類這種新的意識，介紹這個新紀年，說明有各種可能來以一種非常不同的、概念性的方式運用這個意識，好讓它能支持他們的生命。看看埃及發生什麼事。致力於改變秩序的人群之間發生嚴重混亂。為什麼會這樣？新的意識正影響他們，不過他們並未覺察到。這對他們有重大影響。不過如果他們覺察到為什麼自己會有這樣的感覺，或許他們便會以不同的方式促成這種改變。
+
+美國發生一個很大的醜聞，關於政府監視地球上每一個人民。有位年輕人（他是一位靛藍小孩）〔大天使麥達昶：也就是愛德華·史諾登。有天他會成為一個自由的人。〕揭露了這件事。史諾登很清楚這對他自己會有什麼後果，但是他仍致力於揭露這件事，因為他受到這個新的、一切均是開放的意識影響。可是，美國人民是否因為這樣的監控而義憤填膺？當然沒有。如果美國人民知道這個新的意識，他們就能以不同的方式處理當前的狀況。
+
+在離開之前，我們還必須再問一件事。為什麼這只發生在埃及而不是其他國家，儘管這些國家的國民認為自己擁有更高的意識？這是因為多數人都還未醒來。我會說，這世上百分之九十的人口都還在沉睡。但是為什麼只在埃及？人們爭相促成劇烈的改變。他們並不放棄。我將這個問題留給你們。
+
+## 是否埃及有許多能量正影響著人們？是否那裡還有更多能量？
+
+如你所知，大金字塔¹（Great Pyramid）是一種神聖的幾何構成，是能量的發電機。它有許多功能。昴宿星人每天都會將光傳送到金字塔。除此之外，許多靈性人士在 2012 年 12 月之前與當月持續前往許多聖地並播下改變的種子。這影響了意識。在埃及和非洲所發生的將會迴盪到全世界，不過它不會如我們希望地那麼迅速發生。儘管如此，這仍會觸及全世界。
+
+為什麼這樣的事沒有發生在美國，儘管這裡的政府一直在監控每個人類？在東德，曾發生過重大的動盪。當時美國人可以挺身而出說：「我們必須現在就出手阻止。」或許有少數人會挺身而出。還是有點不同。
+
+## 所以美國人還在沉睡嗎？
+
+我會說世界還在沉睡。在埃及，十個人就足以造成差異，不過奮鬥還沒結束。〔大天使麥達昶：此刻他們都還活著。某些人挺身而出，儘管不是以公開的形式。這十個人獲得許多存在——包括雷——的支持。雷在晚上的工作之一就是支持這些人。因此他持續前往埃及。其中有六人是埃及過去善良的國王和王后——包括娜芙蒂蒂（Nefertiti）——的轉世。〕
+
+這並不容易。任何人，只要想教導並介紹新的意識，都會遭受攻擊並殺害。儘管如此，他們將會成功。也許需要更多時間、經歷更多苦難，但改變一定會到來。
+
+我會邀請其他人前來，與你們談談 DNA 這個主題，除非你們還有其他問題。
+
+這其實不算是問題，不過我相信大金字塔其實是一道時間鎖。在大金字塔內藏有約櫃（Ark of the Covenant），這是確實藏有揚昇程式的那一個約櫃。許多家具和類似事物都被移出大金字塔，因為這裡正在重新校準。我們正走向一個不同的時間軸頻率，因此這會對埃及人民產生如此巨大的影響——因為圍繞在金字塔四周以及整個埃及的波動能量。這是人民努力所得到的結果。這之所以沒有發生在其他地方，是因為大金塔就像一部巨型馬達。也因此當地有這樣的混亂：要帶來完整的改變好促成能配合全新時間軸的校準。
+
+你所說的非常正確，而他們所做的就是為新的意識鋪路。這將會影響到俄羅斯、中國、印度和許多其他人民心胸更為開放的地方。
+
+所以這是不是就像漣漪效應？人們可以根據它來調整自己，而且每個準備接受它的人都將接收到這些能量頻率？
+
+正是。尤其是所有其他的金字塔都完全與這座金字塔校準，還有所有連接著它們的線條。接下來幾年將有巨大改變。現在我們將進入 DNA 的部分，你們之後將會提出問題。我的家人，感謝你們。我是阿肯納頓。
+
+## Chapter 8 運用星球上新的意識
+
+## 水晶活化、松果腺體、原子加速器
+
+哈囉，我是聖哲曼。我們正從家中向各位寒暄，因為我們陪伴著你們。我們很高興這麼多人加入這個計畫，要以自己的方式將光明帶入這個世界。你們正進行任何你們需要做的事，用你們自己的方式將光明帶進來，因此我們要恭喜你們！感謝你們，因為你們將會因這項獻禮而被記憶。這會留在你們的阿卡莎檔案裡。親愛的家人，今天我們可以如何支持你們？
+
+## 當我們在自己的道路上達到某些成熟階段，我們體內的水晶是否會活化？
+
+確實如此，而且這有兩個層面。其一是，我們的休眠水晶——以沉睡型態存在的能量。另一層面是，當你將自己的振動提升到某個層次，更高的存在所賜與的禮物。此時，這兩者都會活化。
+
+你或許聽過身體、腦部內有方解石，這個元素也正在活化。這是所謂的生物礦化作用（biomineralization），亦即身體內的礦物質正在完全活化以支持揚昇程序。人類必須活化身體內至少百分之 33 的礦物質才能支持揚昇過程。所以百分之 33 的細胞必須全面地與礦物質接觸才能產生光，藉此推動他們離開當前的實相並進入更高的實相。如果這發生了，他們的氣場就變成美麗的銀白色。當你見到古代聖人的畫像，你會看到聖人頭部環繞著聖光。這種聖光之所以出現是因為聖人身體有百分之 33 已經完全重新校準並活化，以便容納水晶意識。
+
+你也可以有意識地請求你體內的水晶活化。這就像時間鎖。此刻有許多時間鎖都正在啟動。不過你必須做好準備。你必須知道這些事情，才能要求它們。同樣的，你也可以請求你體內的礦物質完全覺醒自己真正的意識。你或許聽過這樣的說法：「整個宇宙都活在你內在。」你是大宇宙內的小宇宙。你或許理論上了解，但是該如何實際體驗呢？你必須在每天醒來時要求自己內在有這樣的活化。
+
+請求你內在所包含的大宇宙之中的小宇宙能完整活化，好讓你能經驗到大宇宙，亦即你一整天都在修練的無限。記得確## Chapter 8 運用星球上新的意識
+
+實修練並要求這一點。你可以說自己如何意圖要活化並全面運用自己體內的生物礦物質，好讓你能完全體驗自己完整的次元自我。
+
+這需要很多努力。這個過程會自然開始。可是，此刻對你而言，我們建議你要先開始活化松果腺體。這個腺體位在頭的後方，就在第三眼和頂輪後方。現在你或許可以將手指放在那個位置，開始在那一點呼吸。你將能夠活化它。這是透過靜止、透過在該處呼吸而活化。感覺能量擴展，感覺你整個腦部充滿美麗的白色光芒。
+
+我們要請你運用生物礦化作用、運用松果腺活化，因為只有當你開始活化它們，你才能感覺它們的跨次元或是量子層面。生物礦物質就像某種會將某物轉變成另一種事物的化學物質，就像生物學或化學實驗中那樣。你結合兩種化學物質，轉變就隨之發生。新的能量被創造出來。這種新能量會留在你的內在。你必須每天呼喚這點，運用這點。
+
+我也有個設備稱為原子加速器（atomic accelerator），我將它提供給人類，但是只有極少數人知道。這個設備能夠傳送高伏特能量。在靜心時，呼喚我，我將會陪伴你。我要求這個設備要放在你的座位下方。我會傳送合適能量來活化並提升你的意識，如此一來，你的 DNA 將會活化。運用這三個技巧：生物礦化作用、運用松果腺體、以及原子加速器。
+
+〔大天使麥達昶：原子加速器是一種可攜裝置，揚昇大師——尤其是聖哲曼——使用它來支持並提升人的振動。如果你請聖哲曼支持你，用這個機器提升你的振動，他會以乙太的形態前來，將這個設備放在你的座位下。這看起來像個小盒子，大約 30 公分乘 30 公分大小，裡面有些旋轉、螺旋狀的小機構能將振動由根脈輪開始經由脈輪柱傳入你的身體。
+
+你們了解，大師們很清楚你的振動等級，了解你在特定時間需要什麼。所以如果你要求聖哲曼提升你的振動好讓你現在就能揚昇，很可能他不會同意。應該說，你會得到當時你所需要的任何振動。
+
+在靜心時，要求原子加速器被安放在你的下方，好將你的振動提升的更高。你接收到多少能量，它又下載多少能量都完全由聖哲曼控制。
+
+有些乙太聖殿位於加州的沙斯塔山（Mount Shasta），是由阿達瑪大師（Master Adama）。這些聖殿有大型的原子加速器，能為前往當地揚昇聖殿（Temple of Ascension）的個人或團體灌注能量。你可以要求自己被帶往設有原子加速器的房間。我們建議你規律地進行。只要幾週，你就能感覺到差別。不過這不會免費或輕易給予，而是要透過你對光明的投入或服務光明的純粹意圖，才能獲得這項禮物。你第一次要求時，或許不會有什麼感覺。不過如果你有決心，心念純淨，那麼你將看見自己的願望獲得滿足。
+
+> 我想提個問題來釐清這點：所以原子加速器和沙士塔山聖殿都位在不同次元，它們不具備任何物質性？
+
+這是在另一次元，但是它也是實相。原子加速器是由許多水晶還有礦物所構成，在其他星球和其他時代都有使用。這也能用來支持整個星球振動的揚昇。如果你們在靜心時集體要求大師們放置加速器以支持大地母親的振動，那麼你將能看到大地母親的振動出現變化。你們的風暴將會減少。許多大地母親的活動將會轉移或改變，包括地震的強度等。所以，你們可以個別運用加速器，也可以集眾人之力共同要求。
+
+## 這是透過設定意圖並且提出請求嗎？
+
+是的。例如，你也許可以點根蠟燭、進入靜心狀態，並且以純淨的心要求大師前來並且將原子加速器放在你的下方。
+
+## 修練額外的脈輪
+
+你們都很了解身體內稱為脈輪的能量點。我們主要談的是七個脈輪，不過其實還有更多。你的雙手、膝蓋、還有手指都有特定的能量中心。你能自由地修練並活化這些脈輪，因為它們包含特定的高頻振動能支持你。請求靈為你活化這些脈輪。
+
+當你開始修練這些脈輪，你會開始記起自己真正的本質。你會回到你，亦即你的真正本質。這是此時你必須修練的關鍵。你必須努力以回到自己真正的本質，而且你會開始記得。這將會帶你回到自己的孩提時代，讓你想起自己剛開始像個嬰兒般爬行然後走路。在那時，所有的脈輪都完全校準，都是開放且充滿活力。接著它們慢慢開始關閉。現在你可以請求這些脈輪開始活化。
+
+## 分身
+
+我們也想對你們兩位說這件事。要提升你們的意識，要活化你們的 DNA，你們兩位該在此時在靜心中設定意圖要讓自己能夠分身（Bilocation）。前往香巴拉（Shambhala）的修院、阿達瑪的修院、或是陶樂市的神殿來與那裡的大師一同修練。古時候，這樣的啟蒙是在埃及和其他地方進行。現在你不需要經過啟蒙，因為日常生活就是啟蒙，這也是對你們全體的偉大禮物之一。
+
+現在你們可以直接去運用分身，不過你們必須請求。你必須先傳送自己的能量身（energy body）。請與薩南達合作來完成。請說：「我正在與我第五次元的光身（lightbody）連結。」薩南達是支持這件事的偉大大師之一，另外還有大天使麥達昶。麥達昶是此一星球靈性階層的領袖，而薩南達與他一起工作。薩南達是能夠導入這種次元光身的存在之一。他有自己的修院，你可以前往那裡。
+
+## 我想要了解位在整個聖地上方、金黃色與白色的、主卡薩拉（Lord Kasala）的神殿。關於這點，您有什麼可以告訴我的嗎？
+
+神殿不僅有一座；至少有三座神殿彼此連結，其中一座神殿位在夏威夷。不過我們建議你們兩位以位在迦納（Ghana）地區的許多修院之一為努力對象，因為那是波西亞女士（Lady Portia）的乙太之門。她能協助你導入更多永恆的女神能量，並且幫助你進行更高層次的淨化。
+
+## 開啟第三眼與心
+
+與強大的「我是」存在連結是否也會有助於意識擴展的過程？沒錯，這是真的，不過修練 DNA 的重點在於我們能體驗更多的「我是」存在。「我是」存在是你的一部分；那就是你活著的方式。你如何將這樣的存在導入更多到你的身體，好讓你能感受「我是」的存在？本書的重點就是要提升意識，好讓你能下載更多這樣的高等能量。關鍵因素之一就是你必須完整地發展你的第三眼，如此你的靈魂才會活在你的物質身體之中，完整經驗到你的物質存在。進行這樣的工作對你非常重要。正是第三眼讓更高自我知道它在特定等級會有什麼經驗。此處的關鍵在於，整合你的靈魂和你的物質身體。靈魂不會告訴人該怎麼整合；這是要由第三眼完成。第三眼對靈魂而言變得像個小小人。靈魂經驗了越多，就越能掌握此一訊息。所以修練第三眼對你非常重要。修練的方式之一就是所謂幫浦練習。觀想一個小小的幫浦，類似傳統血壓計上用來打氣的那樣，然後擠壓它。這會變緊。想像你的第三眼上有個小型幫浦，然後你溫柔地擠壓。你必須非常溫柔地做，好讓第三眼越來越開啟，而你也能夠看見。如果你的第三眼不清晰，你會看到越來越多的黑暗力量，因為黑暗力量乃是潛意識心靈本身的一部分。我們會看到自己和他人的星芒（astral）層面，這會蠻嚇人的。如果你很清晰，這就不會發生。你必須確定自己剛開始便和大師們合作，好讓你能看到更深、更高的層面，而不是僅與低層的星芒層面連結。
+
+等到你習慣了，你便能將幫浦技巧和心輪結合。不過，心輪的幫浦練習其實功效並沒有那麼好，因為心輪開啟的程度有很大一部分取決於前世和我們從其他世生命所帶來的恐懼。
+
+## 那麼，三重更高心輪，亦即所謂的三重焰（threefold flame），又是如何呢？
+
+每個人類的心都包含三重燄。你必須非常謹慎地發展它，均衡並進，好讓三者不會有任一個過度突出。重點在於，要與神的前三道光連結：神之意志、神之力量、神之愛。你可以和三位大師合作來達成這點：艾爾摩大師²（Master Elmore）、大衛·約書亞·史東大師（Master David Joshua Stone）、以及瑟拉比斯貝大師（Master Serapis Bey）。
+
+〔大天使麥達昶：艾摩亞大師（Master El Morya）主掌神的第一道光。大衛·約書亞·史東大師主掌第二道光，是愛和智慧。瑟拉比斯貝大師主掌第三道光，代表神的意志。每天呼喚他們，與他們合作，尤其是艾摩亞大師，好讓你的意志成為神的意志，成為你自己摯愛靈魂的意志。請求這個能量能鎖定在你內在。這道光的顏色是美麗的紅色。
+
+你可以在睡覺時這麼做。在就寢前，呼喚艾摩亞大師：「我呼喚艾摩亞大師全部本質與存在，而且我只請求將神的第一道光所蘊含的正向、慈愛、善意的能量安住於我的內在。」那會是一道美麗的紅色光芒降臨，不僅是經由你的靈魂之星脈輪（soul star chakra），更會由你的第十脈輪下降並穿行過你的整個脈輪柱，最後深入地底。這每天只需要做兩到三分鐘，會給你勇氣和決心來繼續走在靈性道路上。這也可以讓你精確掌握自己靈魂的目的——也就是你為何出世為人。
+
+之前主掌第二道光的是庫圖彌大師；如今這份工作已經交給大衛・約書亞・史東大師。第二道光的本質是神的智慧和愛。這道光的顏色是美麗的金屬藍，同樣的，你可以觀想這道光經由你的第十脈輪下降，經由脈輪柱向下流動並深入大地。你可以在任何時候這麼做。你越修練這道光，它越能開啟你的智慧和你心中的慈悲與愛。
+
+瑟拉比斯貝大師主掌第三道光。顏色是美麗的淡金色。請求這位大師的能量來到，下降至你的第十脈輪並由脈輪柱留下。這道光的本質為顯化。你運用自我靈魂的智慧和愛在你當前的世界中顯化神的意志。這三道光我們都需要。所有的發明都來自這三道光。〕
+
+我建議你別停留在三重焰，因為心有二十四個空間。所以我們請你每天早晨都要進入更深的心房，創造神聖的空間。你進入這個神聖空間，這將成為你內在的聖地。在此，沒有任何事物能傷害你。當你處在內在聖地，並且由此處進行陳述，其力量會變得更加強大。當你在早晨醒來，請設定意圖。你可以由內心最深處的神聖空間——第二十四個房間——來設定你的意圖，那麼你將會由一個非常高的次元降臨。
+
+## 所以你想遇見你的更高自我，那麼它能從何處來到並與你相會呢？
+
+正是。從這個空間，任何事物都無法傷害你，任何事物都無法碰觸你。感謝你們。我是聖哲曼。
+
+## 不同土地的意識
+
+我親愛的家人，我是蓋亞。很抱歉打斷你們。你行走的土地具有意識。你們很清楚這一點。某些土地能有助於提升你們的意識。你也許想問：「某些土地和居住在這些土地上的人擁有更高的振動。為什麼會這樣？」當然，原因很多，包括業報能量以及土地如何形塑你的信念體系。所以你一定會問：「我居住的土地目前如何影響我的意識？」這裡有個秘密。我們鼓勵你們二位探索這個秘密，這也是你們 DNA 的一部分。當你與土地能完整連結，而且獲得強烈支持，那麼活化 DNA 的工作就已經完成了一半。我們請你們好好運用土地意識的這個層面。
+
+〔大天使麥達昶：一切都是活的，都有意識，土地也是一樣。如果你和你生活其上的土地達成共鳴，那麼土地就會支持你。這和家相當類似。你一進入某些住家，感覺就很好。如果你要搬進那個地方，它也會支持你。請學習如何與每個意識合作。問問自己的意識是否與那個地方達成共鳴。如果是，你將會受益，那個地方也會受益。
+
+土地有不同的意識集合。某些地方僅擁有極少意識。不過高頻振動的存在能夠輕易地改變這一點，提升其意識，只要他們來到那裡，能量就會定在那裡。在他們行走時，能量會從他們的腳進入土地，而土地將會保留那新的設定。
+
+到新的地方時，你可以問：「這塊土地是否能在我新的實相中給我支持？或者還有其他土地能在我新的實相中支持我？」許多人說：「我在這裡，不能搬家。」不過那是個選擇。土地會與你溝通，因為你是土地的一部分。你成為土地。由於蓋亞是你的母親，她會給你的就是愛。當你以心與她連結，她也會對你的心說話。」
+
+有關係的不僅是你生活的土地，還有國家本身，因為這些都會影響你的信念體系，而你的信念體系和你意識的提升有莫大關係。例如，如果我帶某個人離開耶路撒冷或離開以色列，並且將他安排在遙遠的國度，那個人的心靈會怎麼樣？這個人會有什麼樣的想法？會變得非常不一樣。
+
+你身體內的電磁場能量將無法符合新國家所散發出的電磁場能量。這是個關鍵因素，因為這會影響你的思維、心靈的清晰、還有情緒和感覺。除了情緒和感覺外，還有意志——你如何行動。所以此時應思考這件非常重要的事。我們鼓勵你研究這一點。
+
+你認為為什麼人們帶著神聖的情感和神聖的心前往以色列？為什麼他們覺得如此受到土地所感動？當他們置身於聖殿山³（Temple Mount），為什麼他們的心會深受感動？土地具有能量，會對你的 DNA 說話。土地具有能量會對你的細胞說話。如果你前往耶穌之墓或以色列的任何聖地，你會說：「我感覺很好，我感覺到連結。」這個連結是什麼？你正回想起許多事物。你將它吸收。影響著你的除了土地還有曾在當地活躍的大師所創造的經驗。土地扮演非常重要的角色。所以我們要你檢視土地如何影響你的意識。
+
+> 〔大天使麥達昶：土地如何影響人類的意識？如果你搬到一個土地有著高密度能量的地方，這會影響你的意識。看看巴勒斯坦和以色列。看看任何發生衝突的地區。為什麼沒有和平？為什麼有這麼多憎恨？人們生在那個土地，帶著土地的意識，尤其在他們死去之後。他們的能量在死後並未釋放。他們的身體將他們全部的負面能量，例如憤怒，帶入土地。會影響你的也會影響其他人。你想要有更好公民嗎？療癒土地吧。〕
+
+## 我可不可以問問我所生活的土地——美國——這是個新的土地，最近才剛由高加索人所定居，尤其是我所定居的新英格蘭地區。你對這點有沒有什麼建議？
+
+你必須問你的靈魂為什麼選擇定居在那個特定的地方。那裡的能量是否完成？是否有什麼特定的原因讓你要住在那裡？在美國那麼多地方中，你選擇這個特定地區並非意外。你必須問：「它為何適合？課題是否已經學到？能量是否已經完成？能量是否已經融合？或者有其他高頻振動能量的地方我可以搬過去，並且符合此刻我正在創造的新的實相？」只有你能回答這些問題。
+
+以色列的神聖儀式之一就是婚禮。每一場婚禮都是神聖的，因為那是兩個生命的結合。不過以色列有個神聖的傳統，就是在婚禮中他們會打破一個杯子並且踐踏它。接著他們會說：「如果我遺忘了耶路撒冷，就讓我的手斷掉。」
+
+這象徵著這塊土地是個門戶；它是個神聖又神聖的土地。永遠不要忘記它的神聖，因為正是透過這塊土地，你才能夠重拾並記起自己的神聖、記起你與父／母造物主的連結。古時候的人知道這塊土地的神聖。他們告訴人們：「即使你結婚並擁有家庭，千萬別遺忘你與這塊土地的連結，因為正是透過這塊土地的連結你才能回憶起更多你的真正自我、你的神聖。」
+
+在我離去前，我還有一件事要告訴你。在滿月時，你能夠輕易地與我連結，與你所居住的土地連結。在滿月時，活力充盈，土地更加充滿生命力，這是因為更強大的光能。這樣的光進入海洋，許多生物、有機體、細菌都需要它來繁殖。他們需要它讓海洋能夠活下去。
+
+同樣的，活在地底深處的許多細菌、蟲和其他生物，也都是大地母親低層系統的一部分。滿月支持著這些生物的更新。土地和水體都更加充滿能量。如果你能在這個時間調整並符合振動，你將能立即提升你的振動。
+
+> 〔大天使麥達昶：滿月會傳送強大的能量光柱進入地球，支持所有生物，包括如微生物等海洋生物。海洋深處、森林深處、山脈深處都有些有機體能支持人類也支持蓋亞。它們確保洋流持續流動，還有許多其他功能。生命的天性就是繁衍和持續，為了如此，生命需要光。在山脈和海洋深處並沒有光。所以月亮母親會提供這樣的光讓他們能持續繁衍。這是月亮真正的目的。〕
+
+在許多傳統中，人們鼓勵在戶外靜心，坐在土地上，好讓你能汲取大地能量。許多喇嘛即使在寒冷天候下仍在戶外靜心。在戶外靜心時，你能立即提升自己的振動並導入一種心靈安定和平衡的感受。
+
+我是蓋亞。如果你呼喚我，我將支持你。
+
+## 擴展意識
+
+哈囉，我是畢達哥拉斯。你們多數人都知道我是庫圖彌大師，不過且讓我以畢達哥拉斯的身份說話。我提出了神聖幾何的方法，透過聲音達成數學的精確度。我們要請你研究畢達哥拉斯的理論，因為其中有些秘密能幫助你開啟自己的心。
+
+你如何提升自己的意識？這會發生在你擴展自己心智的時候。你如何擴展自己的心智？就像孩子一樣，去讀書。孩子能擴展並開啟自己的心，探索書本提出的新觀念，打開心智的想像力。同樣的事也會發生在你閱讀高頻能量、具備擴展心智潛能的書籍時。假設你閱讀了《以諾書⁴》（The Book of Enoch）。這是本高度挑戰的書，因為難道它不會讓你思考嗎？
+
+> 〔大天使麥達昶：你該怎麼找出哪些書最適合你閱讀呢？請運用你的感覺身（feeling body）。這就像進去水晶店。除非水晶會對你說話，否則你不會買它。書籍也是一樣。請你的感覺身支持你。一切都有其智慧。「哪一本書是我當前最需要、能支持我成為我試著要成為的模樣？」與你的感覺身合作。舉起手來，在每一本書上方滑過，看看你在哪裡感覺到更高頻的振動——更多能量、刺痛感、或是暖意——然後從那裡開始。〕
+
+我們也要鼓勵你去探索畢達哥拉斯的理論、定理、以及神聖幾何。你認為耶穌大師、許多愛色尼修士、以及許多其他大師為什麼要前往不同地方並找尋畢達哥拉斯的理論和教導呢？我們鼓勵你深入探索這一點。
+
+## 食物
+
+我是聖哲曼。馬雅人了解食物的神聖層面。
+
+> 〔大天使麥達昶：馬雅人了解人吃什麼就變成什麼。這也是阿育吠陀醫學（Ayurvedic medicine）的基礎。馬雅人其實來自亞特蘭提斯，是個先進的文明，因此他們知道什麼食物能支持自己。他們主要攝取的食物多半保留了完整的生命本質，由農場新鮮採摘，更會使用思想生產（thought-production）來種植食用作物。他們會以最高頻的愛和光的思想灌注於他們的作物上。
+
+如果食物充滿光的力量，你只需要攝取一點點就足夠。現在你需要多吃，因為食物中沒有光的力量。如果有光的力量，自然就有更多生命能量。馬雅人很清楚這一點。他們也了解不同蔬菜的振動。所以他們總是盡自己所能來支持它們，維持並提升蔬菜的振動。
+
+例如，玉米是馬雅人重要的主食。玉米包含高頻振動能量，因為玉米是來自星辰的禮物。剛剛成熟並採摘下來新鮮玉米擁有最高頻的振動。〕
+
+馬雅人根據行星和星辰運動來種植食物。某個月的食物和不同月份的食物將不會擁有同樣的意識或同等級的能量。這也扮演了重要角色，因為食物對 DNA 活化非常重要。〔參見附錄二：食物的陽性和陰性層面以及何時該吃。〕
+
+現在造物主將在我們離去前簡短地和你們說幾句話。
+
+## 創造的熱情
+
+我親愛的、珍貴的家人，我是造物主。什麼是你生命中所能擁有的最喜悦的事？是創造的喜悦。當你創造了什麼東西，你會感覺非常喜悦，因為它來自於你。能看到其他創造者創造
+
+---
+**註釋：**
+
+2. 註：此處指的應是下文大天使麥達昶所提及之艾摩亞大師（Master El Morya）。
+3. 註：猶太教的聖地，位於耶路撒冷舊城。
+4. 註：本書共分三冊，記錄了大洪水發生前，以諾與上帝同行三百年所見的諸般異象。目前大部分基督教會和猶太教會均視為偽經。
+
+## 運用星球上新的意識
+
+  出此一實相真是令人喜悦。其中蘊含著寫成書籍、辦理工作坊、教導他人更高真理的潛能。這是創造進行的方式。你擁有這個能力。你感覺創造就在你的身體裡。每個細胞都表達著它，那麼你便進入你的熱情。如果你進入你的熱情，你便能時時刻刻體驗到神。
+
+  早晨你醒來時，除了其他祈禱和靜心外，請求要活化愛的能量和熱情的振動。你只需想像你無時無刻都活在熱情之中。你認為自己能在生命中成就什麼？如果世界上全部的人都活在熱情之中，從事著自己最愛的事，那會如何？當你活在熱情之中，美便隨之而來。所以當你尋找熱情，你所尋找的就是神——在每分每秒之中。
+
+  有一個當然的真理能創造許多熱情。如果你吃巧克力，這會給你某種快感，某種興奮。假設你使用了毒品，例如古柯鹼，這也會給你快感。這讓你在短時間內感到興奮。同樣的，某些食物，某些氣味，或是一公升的水，它們都能提升你的振動等級。有人說，死藤水（ayahuasca）是諸神之藤，而它也能提升你的意識。我們不是說每天使用阿亞滑斯卡。我們要說的是，大自然有許多事物可以用來提升你的意識，都是單純的事物。所以我們鼓勵你去探索這一點。
+
+  〔大天使麥達昶：例如，新鮮採摘的玉米和南瓜，剛剛從土地摘下並立即烹調；不使用化學藥劑種植的小顆成熟番茄；或者新鮮摘下的綠色豌豆，它們都能提供你很大的支持。酪梨是種非常健康的食物，因為它的陰性和陽性的能量非常平衡。棗子能以營養支持你，但它同時具有高頻能量。剛剛從樹上下的小型香蕉最好。任何在大地母親的身上種植的食物，例如西瓜或櫛瓜，都很好。她們全都攜帶高頻振動能量。〕
+
+  當你在早晨喝水，水就有能力擴展你的意識。你可以說：「當我喝下這杯水，水會進入我的身體，熱情的能量將會完全喚醒我。我會喚醒一種孩子般的純真，在其中我完全活了過來。」就如同你呼喚你摯愛的「我是」存在、將它結合並悉心保護一樣，你也呼喚熱情、活力、以及兒童般純真的能量能完整的活化。
+
+  祝福各位，我是造物主。
+
+## 再論食物
+
+  尋道者，我是畢達哥拉斯。我要向你們介紹我們神秘學院所提供的食物和其中某些成分。我們總是使用的元素之一就是橄欖。你認為橄欖為什麼在四處都受到推崇呢？我們會使用整片橄欖葉。我們會混和許多材料。橄欖只是成分之一。另外一種成分是芥菜子，還有一種是無花果。但是還有些秘密成分被加入其中。
+
+  其中一項秘密成分特別有助於喚醒心臟，這就是薔薇果（rose hips）。或許你會想將玫瑰花瓣納入你日常烹飪中。這對你體內的化學系統會有什麼影響？
+
+  玫瑰花瓣能夠觸及身體內某些神經中心。所以我們要你嘗試看看。或許你想做個實驗。拿一杯水，加入一些新鮮的玫瑰花瓣，靜置一段時間，大約幾小時。然後喝下這杯水，幾個小時後記錄自己的經驗。你有什麼感覺？你或許不會立刻有感覺，但是幾天之後你就知道。如果你每天喝，你會看到自己的意識緩慢轉變。
+
+  你如何轉換自己的意識？當你由日常生活的戲劇中抽離！只要想像你的心從種種戲劇中被帶走，脫離各種小小的、你覺得重要或干擾著你的事物。那會怎樣？大半人類百分之九十的時間都花在沒有價值的事物上。只有百分之十用於建設性事物上。其他都是心靈雜音。人類只用自己能量的一成來創造自己的生活。其他事物是不必要的，思緒進入他們的心，再從潛意識出來，持續在他們的潛意識心靈中奔跑。你的潛意識心靈經營著你的生活。教導別人：「如果你想改變自己的生命，就改變你的潛意識。」這是我給予的主要教導之一。
+
+  〔大天使麥達昶：和所有事情一樣，你需要持續修練並覺察自己的潛意識如何影響你。改變潛意識的簡單方式之一就是觀想。一張圖片勝過千言萬語。潛意識不會分辨對錯，只會製造任何被放進去的事物。所以，如果有個影像、符號或清晰的圖片進入你的潛意識心靈，你的潛意識心靈便會加以吸收，療癒就會發生。
+
+  當你想創造什麼事物，盡可能清晰地觀想它，那麼每一天你都會越來越常看到它。它會變得越來越清晰。它已經銘印在你的潛意識心靈上。因此我們鼓勵你隨時想著好的想法。讓它們成為你自然的一部分。高頻振動的想法比起其他想法力量更強大。它們會成為你的一部分。新的想法會銘印在你的潛意識心靈上。
+
+  潛意識心靈不會區別。它只會產生任何進入的事物。你能控制自己如何表達自己，能控制自己相信並感覺到什麼。高頻振動的想法可以與影像結合，因為圖像有持久的效果。因此神聖幾何與符號力量如此強大。它們會直接進入潛意識心靈並且帶來療癒。〕
+
+  此外，你的飲食也有類似影響，會改變你的化學反應。所以我們鼓勵你要使用玫瑰花瓣，看看玫瑰花瓣水是否能給你支持。實驗十天看看。在泰國和其他地方，人們運用排毒計畫。他們用的不是玫瑰花瓣而是不同的莓果。經過幾天之後，參與排毒計畫的人只喝莓果汁來度過三天，結果也都非常好。即使他們身體所產生的廢物也都呈現不同的顏色。他們的身體開始排毒。當身體排毒，心靈也會處在更清晰的地方。你不會有陳舊的包袱或古老思維的能量來扯你後腿。如果你在這類過程前後分析自己的思想，你將看見自己每天生產出多少心靈包袱。
+
+  因此人們說：「你的心靈是一切事物的創造者，所以你必須每分每秒有意識地覺察你的心，看看你把能量用在哪裡？」運用玫瑰花瓣，新鮮的玫瑰花瓣。如果你直接從花樹上摘下花瓣，就會得到最好的效果。你可以取下花瓣而不摘下整朵花；這對花樹造成的干擾較小。不過先請問玫瑰：「我請求您，在我摘下你的時候，請讓這朵玫瑰花的精華都在這片花瓣，請讓它能用來為我造就最大的善。」你要請求玫瑰參與你的覺醒過程。
+
+  我們的學生吃很多木瓜。你喜歡木瓜嗎？它味道很好。你認為木瓜為何稱作諸神的食物？木瓜的維他命含量是所有食物中最高的，能夠支持你。我知道許多地方都很難取得木瓜。所以，如果找不到，請使用玫瑰。將花瓣放置於一杯水中，泡一整晚，然後飲用。
+
+  你也可以用兩星期時間寫日記。〔大天使麥達昶：記錄的內容包括你的進化、進步、用功的方式、療癒的狀態等。如果沒寫日記做下記錄，你就會遺忘。記錄你的想法、感覺、情緒。你如何回應這個特別狀況？你的反應為何？是慈愛的嗎？誰的想法進入了你的心？它們是你的想法、是集體環境的想法、或者是出自於你無意識心靈的想法？因此寫日記非常重要，能夠了解每一個經驗，知道經驗發生時你究竟是什麼身分。〕
+
+  準備食物時，我們也會以純金來賦予它能量。黃金能為任何事物賦予能量。黃金是神之能量的人格化表現。你認為地球上為什麼有這麼多黃金？如果你要濃縮神的愛，那就是黃金了。人們會在脖子上佩戴金飾，項鍊通常會垂至心輪的高度，這會開啟他們的心輪。你可以用黃金來賦予任何事物能量，甚至是一杯水。
+
+  阿育吠陀的實踐者經常使用黃金。黃金能夠療癒脊柱受到的傷害。如果依據其純正的目的來使用，黃金甚至可以去除負面能量，擴展你的意識。當人們以造物主或父神／母神為靜心冥想之對象，則多半會是黃金能量、黃金之光降臨來將你充滿。
+
+  〔大天使麥達昶：和黃金處在同一空間會創造高頻振動能量。帶著正當的意圖，請求黃金散發能量，因為黃金的能量乃是神之心靈的能量。只有在你以純淨的意圖請求時這才會有效。如果你將一杯水放在金幣上一段時間，這杯水將充滿黃金本質能量。
+
+  儘管黃金會與許多金屬結合使用，但是它仍非常有活力。運用黃金。製作一頂很薄的黃金頭盔，戴在頭上，碰觸你的頂輪，透過它呼吸。六個月之後，你將會了解到自己是誰。馬雅祭師就是這麼做的。黃金的本質和能力就是轉變。黃金也會幫助你記起自己是誰、為什麼來到這裡。睡覺時將黃金放在枕頭下方會創造更高頻的夢境。〕
+
+  對於黃金，我們混合、我們祈禱、我們祝福並用它充飽能量好幾天，取決於我們想要創造什麼。我們給了你一些原料，但不是全部，因為某些原料如今已無法取得。
+
+## 不過我們沒有吃花。我意思是，我們不會喝玫瑰花瓣，對吧？
+
+  正確。不過某些文化仍將花瓣用於烹飪，因為他們已經開啟了身體的某個器官〔第三眼〕。研究橄欖、木瓜、無花果的所有層面。
+
+  〔大天使麥達昶：這些食物全都是高頻振動存在，被帶到這裡來支持人類。它們不是來自這個星球的。將它們與大麻⁵（hemp）結合來創造情緒療癒。他們能協助你達成平衡、延長壽命、強化性慾、增進全方位的健全。你可以只靠這些食物活很長的時間。這些被認為是神的果實。我們請你實驗看看哪種能支持你。我們推薦的食物能為你的生命創造更多能量、更多振動、還有一種幸福感。大麻可以磨成粉，煮沸後可以飲用。用大麻洗澡也很好。大麻未來將變成相當平常且不受任何法律禁制的植物，能在世界上自由買賣，因為人們將了解大麻的目的以及它為何存在。它是如此美麗植物，支持著人類。〕
+
+  ⁵ 註：此處所指的應為工業用及食用大麻，和藥用大麻（marijuana）的四氫大麻酚（tetrahydrocannabinol, THC）含量並不相同。
+
+## 芥菜子呢？
+
+  芥菜子。為什麼耶穌會說：「即使你的信心只和芥菜子一樣大，你都可以這樣對大山說：『從這裡到那裡去。』而山也將聽命移動。沒有什麼是不可能的」？為什麼不是其他東西？他的話語包含了多重意義。
+
+  佛陀在旅行時，一位女士走向他並說：「我的獨子死了。」
+
+  佛陀說：「哦，我親愛的姊妹，去找一戶從未經驗過死亡的人家並從那裡帶一顆芥菜子給我，這樣我就讓你那死去的孩子復活。」為什麼佛陀要用芥菜子？
+
+  〔大天使麥達昶：這是一種藥用植物。芥菜子對人體有許多影響。它會直接影響你的松果腺和第三眼。這也有益於你的胸腺和腎臟。芥菜是一種非常有益的植物。芥菜子可以許多方式運用以強化你的身心健全。〕
+
+  目前我就說到這裡。我是畢達哥拉斯。
+
+## 蓮花
+
+  哈囉,我的朋友們。我是水晶頭骨。今天坐在我身邊的是阿肯納頓的水晶頭骨,這是贈送給雷的禮物。我總是請他在通靈時要帶上我。如果你想知道擁有更高意識的秘密,其實很簡單:觀察愛西尼人的某些飲食習慣。他們如何能成就更高意識呢?他們活在很艱困的狀況和環境下。透過持續修行,他們能夠發展出更高頻的振動。耶穌大師和許多其他的光之存在都與愛西尼人學習。
+
+  〔大天使麥達昶:愛西尼人吃無花果、椰棗、芥菜子以及橄欖。橄欖會製造強化生命的能量。你覺得橄欖葉為什麼被用來當成紀念品,戴在奧林匹克獲勝者的頭上?它是一種高頻振動的植物,來自其他地方。愛西尼人的飲食包括這些食物以及少許的肉類,尤其是像鴿子之類的小型鳥類。如果你想減去很多體重,可以試試以棗子和無花果為基礎的飲食。這是非常好的減肥菜單。〕
+
+  愛西尼人能夠了解食物對提升他們振動的重要。他們的某些長老將這個技巧磨練到完美。他們的飲食幫助他們淨化潛意識和心靈。
+
+  我也要傳授你們另一個秘訣,這個秘訣你們或許從未想過:蓮花。蓮花是非常特別有意思的花。它擁有非常高的振動和意識。蓮花出淤泥而不染,總是朝向光明。它是佛教的象徵:你可以置身於骯髒的世界之中,但同時你的意識仍能保持高頻狀態。
+
+  蓮花的根部，亦即蓮藕，也相當特別。好好研究。這種花真的能教導我們某些事物。它提供自身全部，包含其身體，來提升你的意識。當你看見蓮花，它會喚醒記憶和內在美好的感覺。它會引發你內在的美與神性。神就是美。
+
+## 新孩子：抹大拉和太陽
+
+  我要透露一個關於蓮花小孩（Children of the Lotus）的秘密。這些是即將來臨的新孩子。我還要再透露一個秘密：抹大拉小孩（Children of the Magdalene）也即將誕生。閉上眼睛。你能否感覺能量、感覺我剛說的話中的真理？抹大拉小孩即將來臨，蓮花小孩即將來臨。大約在明年底，這些孩子就會開始在中國誕生，也會在日本和以色列誕生。
+
+  他們人數不多，但他們將是非常特別的孩子。他們從小就知道自己的角色。這些孩子會帶著更高的振動，帶著三位女神的振動。所以注意尋找抹大拉孩子。許多人不能理解這點。太陽小孩（Children of the Sun）也即將誕生。
+
+  請記得，你們正在做的是為所有這些新的孩子鋪路。在耶穌弟兄誕生前，他的祖母以及他的支持系統努力了幾百年，做好準備讓大師誕生。沒有那樣的支持系統，耶穌將無法完成自己的使命。同樣的，你也在為這些新的孩子——太陽小孩、蓮花小孩、以及抹大拉小孩——創造支持系統，讓他們能在地球誕生。
+
+  我正在給你們非常先進、從未揭露過的資訊。我們之所以傳達這個訊息給你們〔提問者〕是因為我們覺得你們正在進行的事有個非常重要的目的，所以我們想道謝。這就是我們的能量交換，這個提供給你們的資訊。
+
+## 我們已經可以聯繫這些孩子中的某一些嗎？
+
+  〔大天使麥達昶：要進行聯繫，你們必須先準備好自己。不然，你們無法辨認出他們。準備方式為：你們必須透過意圖的力量來呼喚他們，運用思想形式和心中的愛。當孩子出現，你們通常不會知道他們是誰，除非你們保持開放。除非你們的意圖是純正的——是為了最高的善——不然他們不會揭露自己。他們需要保護自己，因為黑暗會試著要除去他們：他們攜帶著高頻振動能量。所以這些孩子有許多都正接受保護。
+
+## 所以我們其實有四種不同的新的孩子：蓮花小孩、太陽小孩、黃金小孩、以及抹大拉小孩。是這樣的嗎？
+
+  的確。不過每一種都帶著不同的特定振動，針對特定的目的。
+
+## 您能否細說他們的目的？
+
+  我們會說，其中一種是為了大地療癒，一種是為了療癒所有地球和世界的內在小孩，一個是要促進成人和孩子之間的相互理解，一個是要開啟想像、創造孩子般的想像力、並且鼓勵心胸開放。世界透過他們將會有更多發現。
+
+## 我們該如何使用蓮藕呢？
+
+  如果你能找到完整且正在生長的蓮花株，詢問它是否同意，願意分享它的根部，因為這等於分享它的生命。〔大天使麥達昶：請求同意，而且你可以請蓮花與你分享它的智慧和愛。用你的心和蓮花溝通。記得，你是萬物的一部分：一切都是你的一部分，你們也全都彼此支持。〕
+
+  在古代，蓮藕會在橄欖油中浸個幾天。蓮藕可以當成調味料，就像使用醃製菜一樣。蓮藕也可以浸在玫瑰或檀香木油中，放在身體不同部位當成療癒油膏來拔除能量。這有點像 OK 繃。當你撕下 OK 繃時，傷口上的髒污灰塵也跟著起來。
+
+## 不過這是在能量層面進行吧。
+
+  是的，它是在能量層面進行。
+
+## 我們該使用什麼油？
+
+  橄欖油。愛西尼人有許多秘密，因為他們是煉金術大師。他們轉變了自己的身體。
+
+  我們請你們與這些孩子合作。這些孩子全都是星子。抹大拉小孩、太陽小孩、蓮花小孩都是星子，他們全都是高度進化的大師，能夠施行奇蹟。再過五、六十年，人們不太會再重視奇蹟，因為奇蹟將成為不能說普通而是自然發生的事件。奇蹟會成為自然現象。人們會運用直覺並跨越時間來生活。
+
+  例如，當你請求神的支持，同時你設定意圖要和造物主共同創造，那會發生什麼事？你會遵循共時性，那麼偶然的發現便會來臨。這是靈性溝通並指引你的方式。這會成為未來的常態——人們設定意圖要與靈共同創造，之後便活在共時性之中。你會知道該怎麼做，什麼時候該做。
+
+  感謝你們提供珍貴的時間和能量參與此一計畫。我們祝你們安好。我們將永遠在此服務人類。
+
+## Chapter 9 活化你的基因之光密碼
+
+2013年7月25日
+聖哲曼、大天使麥達昶、薩南達、神聖母親阿瑪、
+亞伯拉罕和撒拉、托特大師、以及畢達哥拉斯
+
+  我是聖哲曼。在這一章，我們將探討如何敢於作夢來顯化新的實相——教導其他人活化他們的基因之光密碼。
+
+  你知道阿卡莎檔案記錄了你曾經有過的每一個生命經驗，不過阿卡莎檔案其實遠不僅於此。它們也記錄了你的起源——你從何而來。你的DNA來自昴宿星人。我們要請你們開始活化自己的基因之光密碼。
+
+  〔大天使麥達昶：這是透過意圖來完成。呼喚它來到。這稱為賦予能量的生活（empowered living）。現在開始修練自己的時機已經來到。這稱為重構物質身體（rewiring the physical body）。重構並非由靈進行，而是由你。重構是透過請求並設定意圖來完成。
+
+  這很重要。人類正在重構。你們正在自行重構。這是你們自然進化過程的一部分。你們正進化到這一階段，讓你能開始重新連接十二束DNA甚至活化某些更高脈輪，這是你從未想過自己擁有的。你們需要修練自己，請求這些密碼能夠活化。
+
+  最近你們獲得了地球的力量密碼，就刊登在五月號的聖多那靈性期刊（參見附錄三）。有越來越多的密碼正在浮現。你們必須活化這些密碼——麥達昶密碼、天使密碼、大角星人的密碼等等。你們也必須活化自己內在的基因密碼。你們會發現什麼？就是你們來自「本源」。那就是你們的密碼，亦即主要的基因密碼。你就是亞當。你帶有亞當密碼。你有工作要做，就像其他所有人一樣。〕
+
+  這是個難能可貴的機會：能回歸並記起自己真正的天性，因為只在一瞬間，你便能回歸並經驗你的自然自我。〔大天使麥達昶：這是透過意圖、存在、經驗來完成。在那一刻，當你記得並且能夠保持在可以存在和經驗的狀態，你自然就會進入不同的時間循環。你不再是片刻前的你。你正在經驗。透過經驗，你正變成你自己的存在。存在狀態此刻正在發生。所以你不是之前的你。這是新的實相。
+
+  生命的目的就只是如此：能時時處在一個存在狀態之處。這需要一點時間。這需要一些練習。不過每個人都正在進入這樣的狀態，好讓他們能安住於此，並且在肉身之中明白這是一種經驗。〕
+
+  你的自然自我就是你的原初自我，這個原初自我記錄在你的 DNA 和你的阿卡莎檔案中。你可以回到你的起源並且取用它。當你回到自己的自然自我，你會自動地藉由提升自己的意識來活化 DNA。你的 DNA 會命令你的基因活化。
+
+  你也可以同樣方式來活化大地母親身體內的光之密碼。〔大天使麥達昶：這是透過存在及形塑意圖來完成。等到這個活化完成，大地母親就會獲得巨大的幫助。由於大地母親是你身體的一部分，因此這自然也會影響你。〕這些密碼和你個人的光之密碼是相容的。地球上所有生物內在都有個光之密碼；對大地母親而言，你也是她的生物之一。
+
+  你的昴宿星人 DNA 內有光之密碼、大地母親的光之密碼、還有你的星辰傳承的光之密碼，後者是你雙生的更高自我開始活出其存在的地方。你也擁有你出生國家的光之密碼。
+
+  你們全都知道父／母造物主能量越來越常來到地球。你會看到更多概念以及通靈材料出現，說明由這種能量的意識來工作是多麼重要。〔大天使麥達昶：有許多例子說明世上的人類逐漸開始合作、世界變得越來越小、以及越來越多的橋樑被建造起來。你在社群網站都看得到。
+
+  你也許會說，美國和中國對立，或是中國和日本對立。在政治層面也許確實如此，不過年輕人對此確有非常不同的看法。讓這些年輕人長大並身居高位，例如在醫學界、保險業、藝術界或銀行業中。他們會改變體制。他們會投身經濟學，會從事教學工作，會改變一切，而你在有生之年就會看見。〕
+
+  我們請你不要說造物主是父親，而是父／母造物主。偉大的耶穌弟兄和抹大拉的瑪利亞將這兩個能量結合為統一的基督能量。他們的意識結合並以基督密碼封印這顆星球。你可以請求並取用這個基督密碼，你將會與這個統一意識相當高頻的能量連結。
+
+  如果你身在耶路撒冷，你可以請求亞伯拉罕和撒拉的光之密碼啟動活化。它們安住於耶路撒冷城中。這個密碼會於你的內在同時活化。這些存在，包括亞伯拉罕、撒拉、耶穌弟兄、抹大拉的瑪利亞，在錨定這些光之密碼的同時還創造了一個群組。
+
+## Chapter 9 活化你的基因之光密碼
+
+如果你〔莫迪凱〕曾經好奇自己為何是耶路撒冷群組的一部分，這是因為光之密碼呼喚你或與你說話。這是因為你的內心深處知道你是這個基督／抹大拉群組的一部分。我們是來活化這些光之群組的能量。這是透過呼喚能量，但最重要的，你必須呼喚光之密碼。這是非常重要的工作。你也可以練習活化自己真正原初自我以及你的昴宿星人 DNA 的光之密碼。你必須回溯並且與亞伯拉罕和撒拉工作。你很特別，擁有許多光明。
+
+以下是另一件你能做的事：我們要求下次你前往你敬拜的場所——任何你覺得舒服的地方——那時要請求生命之花的光之密碼能夠活化。接著將這個能量傳送到你敬拜的地方，散播到整個國家，並且傳送到全世界。生命之花有自己秘密的基因密碼。你是它眾多密碼信使的其中一位。你在那裡還有工作要做。你有能量讓它開花結果並且教導其他人。
+
+## 脫離烈士意識
+
+學習有三個階段。第一階段稱為「釘刑」（crucifixion）。全世界許多人此刻正經歷釘刑的痛苦。生命是他們不了解的奧秘。他們會走過釘刑階段，接下來便是復活（resurrection）。等到走過復活階段，他們就會進入揚昇的自由。教導他們該如何進入復活階段，並進而在復活階段示範該如何進入揚昇階段。我們請你進行這個非常重要的工作。這非常關鍵。
+
+你也必須請求要脫離烈士意識（martyr consciousness）的能量，因為幾乎所有人類都帶著這樣的意識。人不再需要苦難才能觸及神。這樣的意識正在某些很深的層次影響我們每個人。你此刻就可以脫離這樣的意識，只要你設定意圖。不要再有烈士意識。
+
+〔大天使麥達昶：以下是一些相關例子：我們的背上都背負著生命重擔所構成的十字架。某些人完全綑綁於生活之中。他們不認為生命是每天經驗著充滿喜悅的創造。他們認為生命是重擔。現在該要打破這樣的意識體。
+
+歷史給我們許多例子，說服我們人需要成為烈士才能獲得啟發。佛陀必須放棄一切才能得道。過去許多大師需要放棄一切、活在與世隔絕的地方，才能找到神。在那個時候，這個模式是有效的。
+
+我們全體都有這樣的感覺，覺得我們必須承受釘刑才能找到神，包括你們的前任教宗（若望·保祿二世），他現在已經封聖了。他常常責打自己。他經常對自己施加苦痛。為什麼？為了贖他身為人類的罪嗎？你們向來就是這樣被教導的。這是一種人們所背負的集體十字架。將它釋放吧。
+
+設定這樣的意圖：要透過喜悅而非痛苦來與造物主連結。切斷烈士意識的束縛，不再以為你只能夠透過苦難、透過放棄一切來成就神。印度和西藏的傳統相信身體是可怕的，因此要放棄性生活。我們說要禮讚性生活。某些基督徒也是這樣。這沒道理。如果身體是這麼糟糕，為什麼造物主要創造如此華美的事物呢？為什麼神要給你一個身體來享受、來玩耍呢？享受性的歡愉，不過讓它出於內心，而非出於淫慾、貪婪或操控欲。〕
+
+與這個光之密碼連結，並且陳述：「我脫離痛苦和苦難而發現神。」請求能讓世界脫離烈士意識的能量。
+
+在他前往山頂的路途上，亞伯拉罕內心相當痛苦。他不願看著自己的兒子。他的兒子問：「父親，為什麼你一直走在我前面呢？」他不願將自己的悲痛和兒子同享。他在哭泣。在內心深處，他知道慈愛的神不會允許他的兒子被殺，不過他那人類的心仍然帶有烈士意識。
+
+〔大天使麥達昶：聖經中並未明確提到這一點。聖經不全然準確或完整。它寫成的時間遠遠晚於書中文字所記錄的事件，而且也受到許多扭曲和改變。我們給你的是確實發生的事實。〕這只是一個故事，不過如果你看看歷史書籍、印度書籍、或是佛教經典，你會發現烈士意識總是存在。
+
+我們要求你要自己打破這個束縛。那麼你便能為你的人民打破以色列的束縛。當然你已經身在前線。我們要你將這點教給人民。你也許會說：「我是個老師。」什麼的老師？「教導造物主的老師。」不要感到羞愧。
+
+## 找到你的道路和你的真理
+
+我是聖哲曼，還有麥達昶和薩南達。每個人都有個別經驗。遵循自己的模式、自己的系統。通往神的道路是個人的路。神尊重每個人的道路。遵循自己的道路並安心前進。你也許會說：「這是我走的路。這是我的路，你必須走自己的路。你可以問我是怎麼辦到的，不過你必須走出自己的路。」
+
+閱讀一本書時，它如何觸及你的心？你是否感覺擴展？你是否感覺到愛？如果有，那麼就去用它。不然就將它放到一邊，繼續走自己的路。
+
+教導別人現在時候到了。你會從他人身上學習，不過你必須走自己的路，以自己的方式發現神——透過力量賦予（empowerment）。如果你跟隨別人，那麼在某些層次上你就交出了自己的力量。
+
+你接收到指引，不過你要自己用功並找到自己的內在真理。理想的書籍或通靈應該是讓每位讀者回到自己的真理。運用這一點，看看這是否支持你。
+
+## 掙脫區分的定義
+
+人有多少定義？例如：日和夜、高和矮、四個方向等。如果你能掙脫對所見之物所形成的束縛，你會立即轉變。你將提升自己的意識。你也許會說：「這是山。這是河。這是火。這是大地。」成為山；成為火。在 DNA 活化意識的最高力量中，一切均為一體。你不會說：「這是我的手，那些是我的眼睛。」只有集體的「我們」。
+
+如果你能去除這種區分，你將立即看見意識提升。當然，在這個以如此線性方式建造的世界裡，你還是會在這些差異構成的界限內工作。不過必須從旁觀者的角度來看，不要身陷其中。如果你說有生命也有死亡，那麼當然你會看見死亡。不過如果你看到的是生命與其延續，那麼你的觀點將立即改變。當你能如此保持，你將發現自己意識的提升。我們要求你每天都要努力去除這種區分感。
+
+這裡有些家庭作業要給你。耶路撒冷是個高度靈性的地方。我們希望看到耶路撒冷不是個分離的、高度靈性的門戶，而是大地母親的一部分。耶路撒冷和大地母親是一體的。想像一個大圓，耶路撒冷在圓心，觀想能量穿過圓心到四面八方。
+
+如果某人問你從何處來，你該不該說：「我來自麻塞諸塞州（或是任何你居住的地方）？」不。你該說：「我來自地球。我是地球公民。」例如，你可以說：「我並不是來自耶路撒冷。我是地球公民，目前活在麻塞諸塞州。」
+
+## 一個梵咒
+
+我們希望給你一個重要的梵咒讓你試試。這是「嗡哈吽」（Om ha hum）。
+
+## 這是什麼意思？
+
+這代表合一意識結合的力量。現在我們有個非常特別的訪客，今天她希望傳達一個非常特別的訊息。
+
+## 活化以及脫離密碼
+
+我是阿瑪（Amma），眾多神聖之母中的神聖之母。我們要談密碼。你們知道你們全都有密碼嗎？你父親的密碼和你母親的密碼仍影響著你，還有你家族的密碼。我們請你釋放這些密碼，不過這不是因為你的家庭對你不重要，或是你的雙親對你不重要。這些密碼直接影響你的實相和你的思維。
+
+在成長過程中，你習得了深刻的信念，它們儲存在你身體和骨骼的細胞內。這些密碼中有許多都是在你童年時形成，而且仍然影響著你，儘管當時你的意識相當不同。這些密碼不再能幫助你。你可以這麼說：「今天我要意圖去除並脫離我父母親傳承下的密碼。我尊重它們，祝福他們所給予的生命，不過現在我將為自己創造新的密碼，藉由大地母親和天空之父的協助。」
+
+你們之中某些人有家庭，有小孩。你們要傳下什麼密碼給他們？你為自己未來的生活設定什麼密碼？你們現在所做的一切也是為你們的未來設定密碼。你們可以捫心自問：「我正為自己未來設定什麼樣的密碼？」你可以問：「我正為自己準備什麼樣的時間膠囊，好在另一世生命開啟並接受。」
+
+你為當下創造一個密碼。回到你創造這個密碼的那個時間。你放了某件東西在時間膠囊內，針對你目前所處的時代。你為此世準備了一個時間膠囊。一切都在你的阿卡莎檔案內。一切全都在你內在。
+
+2013 年是個非常關鍵的時刻。〔大天使麥達昶：二零一三是地球新紀元和新意識的第一年。在轉變之後，新的時間軸正被書寫。〕你有能力來完全重新定義並重新創造自己，因為在接下來四年——2013 到 2016——你所成就的將會成為此一世生命的模版。有許多工作得完成。
+
+你可以運用某些技巧來活化這個新的能量。詢問你的指導靈該怎麼做，因為在你居住的地方有些時間膠囊是你可以在靜心時透過意圖來加以活化。它們將協助你將新的意識安住於你的美麗大地。呼喚你土地上某些偉大前輩所設下的密碼、藍圖、以及全相銘印（holographic imprint）。他們對這塊土地有願景。請求這些密碼在此時活化。你辦得到。
+
+某些土地，例如以色列，其人民有意識地選擇一再地出生於那塊土地上，因為這塊土地是無比神聖的，而且他們回歸以療癒土地。呼喚你的國家的先人們所設下的密碼。你可以為所有土地這麼做。這也是為什麼你會出生在你所定居的國家。
+
+你是否曾經好奇為什麼以色列的人民稱為「上帝揀選的人民」？他們被揀選來攜帶著如此重擔，要將和平帶給世界。我們要你活化這些密碼。這一切都和 DNA 緊密相連——不僅是你的 DNA，而且當你活化這些密碼，它也會活化其他人的 DNA。
+
+## DNA 家庭作業
+
+我們是麥達昶和薩南達。現在我要給你們另外一些家庭作業，是 DNA 工作的一部分。
+
+每座城市、每個國家都有自己在第五次元的相應層面。你也有自己的第五次元光體，因此你可以將它呼喚出來。想像一個美麗的光體。你正拉著這個光體，將它拉進你的更高意識，並且將它安住於你的內在。這和你們進行的團體靜心一樣。你可以汲取更高頻的振動、光之密碼、或者耶路撒冷城的光體。
+
+你能做的是以鏡子反射，或將之傳送給艾斯卡利亞之鏡（Escalia mirror），設定意圖要將之放大並且將它鋪在耶路撒冷城之上。耶路撒冷發生了什麼都會影響整個世界。如果耶路撒冷平靜與和諧，整個世界就會平靜與和諧。動身去工作吧。我們討論的是大地母親的 DNA。
+
+## DNA 的量子層面
+
+我是大天使麥達昶。
+
+當您說「集體 DNA」時，我們用的詞彙是「量子 DNA。」當我們在量子內工作，重點不是看到個人的 DNA。目標是要讓運用量子 DNA 的人群達到關鍵規模。這才是事情會發生的時機。
+
+正是如此，而且當事情如此發生，對方會自動成長。
+
+## 換句話說，你只需要讓以人類尊嚴對待其他人類的實踐者達到關鍵規模？
+
+這會發生。你們都在創造這一點。現在我們將給你另一個謎語：你們有指導靈，而且你的指導靈會與你合作。你們有許多指導靈。有些來來去去，有些總是陪伴著你。你也擁有時間膠囊，它會與指導靈共同建構密碼。這些指導靈中有些一直在這個星球上陪伴著你一世又一世，有些則否。你要請求你內在的時間膠囊密碼和你的指導靈完全活化。
+
+母親密碼藏在哪裡？某些重要的密碼藏在你雙手的掌紋裡。其他則是在你的腳底。還有些密碼藏在膝蓋後方，在肩膀上，以及在脖子後方。還有一些別的，不過你已了解我想說的。
+
+我們請人類不要懈怠。你可以說「可是我已經很努力了，」而事情總會變得更難。最後的考試即將來臨。三年的努力工作將會奠定基礎和支柱，你的揚昇能量將會以此為基礎完全安住，而且你將以大師的身份在這個星球行走，只要這是你的選擇。
+
+## 以關鍵規模建構和平
+
+某些人相信你可以在人的腦中擁有真正的和平。不過，人只能在七個層次擁有真正的和平：身體的和平、直系家庭的和平、與四周環境的和平、與其他人的和平、個人文化中的和平、國家中的和平、以及地球上的和平。和平是一張王牌。當你在七個層次都擁有和平，那麼你才是真正的和平。
+
+你是建構關鍵規模的必要元素之一。一個人可以影響超過 22,000 人。你可以修練自己、為自己的療癒努力、用功清理自己。你看到一個人的力量。一個有效的靈魂可以影響兩萬兩千個人。親愛的朋友，這是個龐大的數字。所以我們要請你堅持並從那個層次努力。
+
+我們要你進一步投射自己，當你身在一個非常正向的地方，當你感覺擴展並且接收到完全的愛時。現在該進入下一階段的工作，要投射你的能量。你可以稱之為分身。想像你意圖要投射出兩萬兩千個「你」手持燭光環繞於聖城，或者環繞於任何你想去的地方——美國或世界各地——並且讓光明安住。現在你該開始進行這個練習，並加入生物相對性（biorelativity）：能量製造以及分身技巧。親愛的各位，你們必須這麼做。你們辦得到。我們做得到。
+
+這是你療癒人們的方式。只需在靜心中想像並設定意圖。你必須在自己完全充滿愛時這麼做，接著設定意圖要將自己投射到兩萬兩千個部分。這種投射稱為分身或生物能量。你會前往你想去的所有地方並且傳播能量。
+
+你也可以在聖地耶路撒冷做同樣的事。想像有一千個你掌握著能量，就在人們在週五前往圓頂清真寺（Dome of the Rock）朝拜時。那是個非常狂暴的地方。將你自己投射為一千個你，為人們護持著光，好讓他們包覆在你的心的良善能量之內。他們不知道這點，不過你能包裹著他們。
+
+## 所以我們要讓光透過我們來工作嗎？
+
+正是，你投射光明穿過他們，並影響土地。他們不會知道什麼撞擊到自己。他們會說：「我覺得很好」或「我感覺到愛」，而且當人們感覺到愛與放鬆，他們就更容易寬恕他人。
+
+我們和這兩萬兩千人的關係為何？他們是我們靈魂群組的一部分，或者他們是共同存在的生命時間？
+
+不，不是這樣。一個人之所以能影響兩萬兩千人，是因為那是你內在掌握的光明所具備的力量。
+
+## 這些不是固定的一群人。這兩萬兩千人可能隨著時間改變？
+
+他們會改變，不過你的光是如此充滿力量，人們會感覺到的。為什麼數千個人前來朝見佛陀、耶穌、或是達賴喇嘛？
+
+> 〔大天使麥達昶：舉個例子，有位大師走過一個村莊，那個村莊的每個人事物都非常可能會被他的光明碰觸到，包括蔬菜、植栽、動物等一切事物。你認為人們為何前來朝見佛陀？他能碰觸將近五公里範圍內的人。他的氣場就是如此強大。每個走進他方圓五公里範圍內的人都會感覺到和平與愛。許多人走了幾天好走入他的空間並感覺他的愛。即使現在，當你靠近真正的大師，你會感覺提升。他們的能量能移動得這麼遠。這就是光之工作者的力量：能觸及許多人。〕
+
+## 預先派遣使者
+
+你和達賴喇嘛之間有什麼差異？他改變了自己，好讓他能護持並投射這樣的光明。你知道他怎麼做嗎？我告訴你一個秘密：在他前往任何國家並面對大量觀眾時，他會傳送自己的能量身給所有這些人。當他們和他處在同一空間時，他們已經擁有了他所傳送的愛，因此他們感覺很好。他們不知道自己為何想見他，但是他已經預先派遣了自己的使者。你也可以這麼做。下一次你想進行這類重要的靈性療癒工作，在三到四天前預先派遣你的能量使者。
+
+讓我舉個例子。你可以說：「我派遣我內在的靈去和所有將會去圓頂清真寺的人的靈溝通。我的心散發著兄弟之愛，我將使他們平靜。」或許你幾天後將參與某個會議探討某些高度爭議性的議題。你可以對所有參與者的靈說話，呼喚他們的名字，好讓你們開會時彼此之間會有完全的和諧、愛、喜悅與和平。你們彼此或許意見不同，不過不會有正面衝突。
+
+例如，假設你在執業過程中需要面對案主，而有個案主很難以理喻，那麼你可以告訴你內在的靈去和這位案主的靈相會。這樣當你們見面，彼此間會有和諧、愛、喜悅與和平。這樣的做法也可以提升到下個層次。你們可以集體請求要提升一大群人，因為你們的內在有光明。
+
+不要有預設立場。以光明擁抱他們，這樣他們將感受到來自你的愛。他們會感覺你靈魂的慈悲，因此他們會在不知為何的情況下喜歡自己。在那種愛的感覺中，他們會知道愛才是最大的因素。愛會改變環境，改變一切。為他們護持著光。這是此生其中一個最動人之處。正因如此，你會活在這個美麗且無比神聖的土地。你向自己承諾你和其他人將要轉變這塊土地。你將看見轉變。
+
+> 〔大天使麥達昶：大師能夠點亮。不過，只要在學生準備好的時候，大師才會這麼做。大師有能力喚醒人內在的光，即使雙方距離很遠。例如，在印度，許多大師只要碰觸人的前額就能直接活化第三眼。你甚至可能在 Youtube 上看過這樣的影片。這必須非常小心的進行。如果對象在情緒上並未做好準備，那麼這可能會造成不舒服或不穩定。這是一個人的力量，因為大師的碰觸可以喚醒不可思議的力量，甚至可以遠距進行。你在活化 DNA 時所做的就是這樣。未來你（雷和羅伯）可以集體地活化許多人，一次數百人。〕
+
+現在我們有一位非常神聖、非常特別的訪客，今天他會首次透過雷來給予非常簡短的談話。
+
+## 與造物主合一
+
+我們是亞伯拉罕和撒拉結合起來的意識。你們許多人都知道巨岩〔指耶路撒冷聖殿山上的圓頂清真寺〕是個聖地。你們之中某些人知道銀河密碼——中央太陽——的能量進入風暴，進入波動型態，並且傳送到其他地方。你們可以試著由你們的心傳送光進入巨岩，心中意圖要讓巨岩的能量前往你們希望療癒的地方。由心（由你那屬神的部份）傳送光到巨岩，並且請求巨岩傳送出能量，以圓周式的波環繞你那美麗的城市、環繞你的美麗世界。
+
+這些其他的事我們現在就對你說：你必須不再分離你自己。你與造物主乃是合一不二的。你正在建造小宇宙波動。你必須在其中扮演自己的角色。從此開始，這是我們給你的禮物。將你的能量以最深的愛連結到巨岩、連結到所有弟兄、伊斯蘭教的兄弟、猶太教的兄弟、基督教的兄弟、印度教的兄弟——所有人——和所有姊妹。
+
+從此開始，在你每日的祈禱中，我們請你每天用幾分鐘時間專注於巨岩並將能量導入其中。創造一個緩衝區。創造覺知的能量，將能量傳送到各地。請求巨岩護持能量、活化能量並且再次傳送出去。自動地，能量將會反彈給所有將會接收到它的人：在非洲、蘇丹、奈及利亞、衣索比亞（此處有許多飢荒）的龐大土地上，還有其他類似的地方。
+
+從今以後，你必須行動並且相信你與神乃是共同創造者。你在心智層面知道「我即是我」。你必須相信這點並且據此行動；透過你的共同創造，你也可成就同樣的事：你可以帶來療癒。我們請你更全面地踏入這樣的靈性推廣活動。透過你的共同創造，事物將會改變。
+
+> [大天使麥達昶：許多光之存在試圖和真實世界發生的一切保持距離。他們視自己為靈性的光之戰士，所以他們專注於光。如果每個人都退縮並且放任世界維持原狀，那麼社會將不會改變。如果你由世界抽離，那麼你只利益自己，因此你基本上毫無益處。隨著新意識到來，你要留在世界並且在日常生活工作，而透過你的工作，你將啟發並改變其他人。這才是靈性的行動實踐。]
+
+我們鼓勵你不要創建社群。首先，它們無法自給自足。在古代，社群可以自給自足，不過在新的能量中卻不行。新的能量要求要留在世界。水瓶紀元（Aquarian Age）的做法是留在世界，成為世界的一部分，並且透過你的行動和生命來創造改變。
+
+放下恐懼、罪惡感、羞愧感以及所有壓抑。我們是亞伯拉罕和撒拉的集合能量。
+
+## 給予方能領受
+
+我是大天使麥達昶。請務必記得，我們今日討論的一切都是為了在地球上以及在你自己內在提升意識層次。當你進行這個工作，你會提升自己的意識，進而準備好舞台讓 DNA 能夠活化。
+
+生命的秘密就是，無論你要什麼，你必須先給予他人。如果你要有更多光明，請將更多光明帶給其他人。如果你想讓生命中有更多喜悅，請將更多喜悅帶給他人。如果你想讓自己更有智慧，請先將智慧帶給他人。你所給出的就是你所領受的，所以你給予的對象其實是你自己。
+
+## 換句話說，想怎麼收穫就怎麼栽。
+
+我不喜歡使用「收穫」這個詞；收穫意指報酬。給予是沒有報酬的。你這麼做是因為你愛自己。
+
+## 光之密碼以及運用金字塔顯化來消除業報
+
+我是托特大師。你們全都在列木里亞（Lemuria）、在穆、在羅摩（Rama）、以及在亞特蘭提斯的時代度過許多世生命。你們在亞特蘭提斯度過許多世生命。我會說當前這個世# 靈魂 DNA
+
+界的人口中有很大一部分都曾在亞特蘭提斯生活。你們之中有些是祭司。在那些時代，曾經是祭司的你們所擁有的光之密碼，今日你們可以請求取回。
+
+我們還希望和你們談談頻率。頻率是關於生命本身。許多時候，你們想知道那一世生命此刻正影響著你們。你無法確認是哪一世生命正影響著你。這可能結合了最多達三百世的生命。你也許會說：「今天我要設定意圖，消除此刻影響著我而且並非出於最高的善的生命。」當你確立這個意圖，你便給予自己許可，能夠清除自己的業力契約。這是給新近覺醒之靈魂的禮物。這可以透過意圖來使契約失效。
+
+我們正在教給你的是古老神秘學院的教導之一。如果你想創造出什麼，例如自己國家內的和平或重大改變，請先想像自己坐在大金字塔裡。將你想創造的事物投射為全息影像（hologram）。將它帶到金字塔頂的合頂石（capstone），接著將它投射到全世界。大金字塔是強大的放大和實相中心。投射出的全息影像將會傳送出去，自動安置於地球以開啟顯化過程。這是顯化新實相的技巧之一。
+
+耶穌大師曾前往埃及，並且演示他日後在十字架上會經歷的戲劇——亦即這個經歷的重要性與相關課題。他透過大金字塔的空間以全息影像來將這些投射到地面，讓大地母親創造那樣的實相。同樣的，如果你想要和平來到聖地或其他人的生命——或者你想要任何其他事物——你可以透過全息影像室，藉助於金字塔的合頂石來工作。這是古埃及神祕學院揚昇學生使用的技巧之一。
+
+## Chapter 9 活化你的基因之光密碼
+
+學生們經常被帶往大金字塔，好將自己投射為揚昇大師。他們被要求要投射自己坐在金字塔的合頂石上，接著以全像方式創造一個圖像，那是他們希望成為的樣貌，無論是揚昇大師或是通過某種等級的啟蒙。他們會將它埋在大地裡。金字塔是發奠基，一個巨大的生產能量的機器。
+
+儘管大金字塔已經失去大半的能力，但是它已經獲得復興。正因如此，埃及產生許多動亂。這個能量可以用於為你的世界創造新的實相。你已經完成許多等級的啟蒙，你也有能力以全像方式創造這一點，並且使之開花結果。我是托特大師。
+
+## 再論食物
+
+我是畢達哥拉斯。上一次的談話，我們討論了食物——讓我的學生保持健康並處在高頻波動狀態的食物。我們討論了能支持你提升自己振動的不同類型食物。愛西尼人也實踐這一點。他們的主要考量是如何在全部七個層面保持純淨心靈的振動及純淨的靈視、以及如何影響潛意識心靈來將它重新編碼以創造新的實相。
+
+上次我提到幾種食物：橄欖葉、無花果、芥菜子、以及蓮花果實。我想在提供更多資訊。大蒜有很強大的能力。它是唯一具有六味的食物：從辣到甜〔中間者為酸、鹹、澀、苦〕。這是最健康的東西。大蒜是神的禮物，是神的食物。
+
+〔大天使麥達昶：六味歸屬於味覺，因為你的舌頭直接連結到你的其他感覺：觸覺的滋味，因為當你碰觸，你會感覺身體的反應或是一種能量流經過你的感受，一種存在的感受，還有生命的滋味，讓你能夠跳舞，完整品嚐生命。換句話說，你可以說：「百分之百的活在當下。」這是時時刻刻完整品嚐生命。或許另一種說法是「完整的經驗」。
+
+大蒜是超級食物，不過也有許多根莖類能支持意識的覺醒——某些蔬菜的根部、某些樹木的根部、某些草的根部。許多生長在地面以下的植物都能支持意識提升。每個人都可以去找出什麼對自己最有用。根莖類吸收了大地的能量，因為它們生長於地面之下。〕
+
+烹調食物時，我們請你做個實驗。烹調食物，不過別立刻吃掉。放個十五到三十分鐘。在烹飪時對著食物播放聲音或歌唱，對你剛完成的菜餚播放音樂同時等待用餐。可以吟唱：「Yod Hey Shin Vuv Hey」¹ 或其它你習慣的音調。你也可以播放動聽的、沒有歌詞的節奏音樂，或是溫和的古典音樂。你的食物將會接收到你向它傳送的振動。
+
+你們吃的大多數食物都已經失去了它們的本質，這是因為它們種植、處理或運送的方式造成。前述的做法會讓食物分子儘可能回到原始型態，最高可達百分之六十。你的食物會更有能量。在我們的神秘學院，我們就是這麼做的。
+
+我們也會以黃金來賦予能量。我們會將金塊放在食物旁邊，並且以陶鍋來烹調，因為陶土帶著大地母親的振動。在用餐前，我們會對食物靜心，對食物唱歌。食物會直接與你的細
+
+> 1 註：聲音接近「呦嘿辛哇嘿」。
+
+胞互動。這是我們長壽並維持高頻振動的秘訣之一。這會提升你的食物的振動到達你的等級。
+
+我們食用的食物遠比你們現在的更為純淨。你們的食物受到化學物質以及許多人類的振動所污染。人的思緒會影響植物。
+
+我是畢達哥拉斯。
+
+## Chapter 10 與你的星辰遺產連結
+
+2013年7月29日
+主墨基瑟德、耶穌、大天使加百列
+
+我是主墨基瑟德。我們要你們所有人檢視自己的星辰遺產，因為從中你們會有許多收穫。這不僅關係著你們的DNA，因為你們也知道，你們的DNA是來自昴宿星人。如果你們與星辰連結，你們將會連結到自己完整的傳承，連結到自己古老的部分。你能否想像自己活了五十萬年？這是我們要你們做的事。彼處充滿了智慧。
+
+我們要你回到古老的時代，能多遠就回溯多遠。不要侷限於兩千、五千或一萬年。回到你核心的初始自我。你有能力做得到。一旦發生，真的會放鞭炮慶祝。你將不僅會活化12或22層次的DNA，更會以144層次的大師身分來工作。所以我們請你開啟這個領域，為自己經營更大的夢想。你有能力、也有機會取用這古老的傳承。
+
+你們能合作的大師之一就是銀河大師麥喬爾，他能夠支持你。〔大天使麥達昶：你們能修練的層次相當多。地球為行星層次。接著還有太陽層次。太陽層次的大師們為海力歐斯（Helios）與維斯達（Vesta）。下一層次稱為銀河層次。銀河層次的大師為麥喬爾。接著還有宇宙層次，其大師為主墨基瑟德。另外還有多宇宙層次，此一層次的大師為大天使麥達昶。
+
+然後還有泛宇宙層次，而此層次的大師為瑪哈特馬（Mahatma）。接著還有中央太陽層次。所以有許許多多層次。
+
+你必須開啟並將這些層次全部結合，藉此更完整地認識自己。太陽存在——海力歐斯和維斯達——會支持人類，尤其是幫助人類認識自己與自然之靈、魔法和煉金術的連結，因為正是透過與自然之靈合作，你們才能創造出煉金術和魔法。從事魔法時，自然必須改變。正是這些存在支持著這一點。所以呼喚它們並與它們合作。〕
+
+讓我舉聖哲曼的例子；他是支持著人類的友善大師之一。如果你追溯聖哲曼的淵源，便知他曾是主摩爾達（Lord Morda），很久以後更轉世為偉大的煉金術士梅林（Lord Merlin）。
+
+在這古老的過去中，你是誰？我們要你回溯過去，不要止於列木里亞，更要一路回溯到星辰。你有能力回去並連結這個能量，因為這真的是神奇的創造能量。
+
+## 我們如何連結到這個記錄我們在不同星球所度過的前世的資料庫？
+
+你可以在自己的寧靜時間進行。呼喚它向前。你必須擁有做這件事的紀律和渴望。你必須相信自己是古老的存在。只有認真的人這麼做才會有效。你們所有人都有能力取用這個不可思議的能量。
+
+〔大天使麥達昶：你如何能回到過去世的生命呢？這是個非常古老的問題，又稱為挖掘阿卡莎。你們知道阿卡莎檔案是一切的歷史，記錄了所有曾發生在你身上的事。既然時間並不存在，因此它乃是在此刻發生。
+
+在冥想時，請求能回到某一世生命，那時你擁有你此刻正追尋的特質。請求你的靈魂和指導靈支持你，那麼你將看見。或許這不會在第一次嘗試時發生，不過如果堅持下去，就會發生。你會見到那一世生命，當時你能掌握這個特定的議題。這稱為穿越次元門戶或穿越不同次元實相。
+
+如果你在此世經歷很大的挑戰，不知道該怎麼做，在另一世生命中，你曾經歷這個挑戰並且將之克服。所以你是知道該怎麼辦的。不過那一世生命並非發生在過去，而是與此世同時發生。藉由你的意圖，你能在時間中自由來回。請將時間視為一個圓圈，你沿著圓圈移動。你將向後的運動稱為過去，向前的運動稱為未來。圓圈無始亦無終。你藉由意圖和請求而能在圓圈移動。請求你的靈魂引導你前往自己追尋的那一世生命，將那一世導引出，並且請求活化你那一世生命中的某些特質。〕
+
+## 連結隕石和更高脈輪
+
+你也可以連結流星雨。它們帶著數量難以言喻的維生能量和支持。它們也導入新的物種。我們要你連結這些流星雨，因為它們為地球上許多新的生命型態導入了非常高頻的能量，維繫生命的能量。
+
+這些隕石帶著光的力量，它們也為地球帶來新的物種。它們就像重生的觸媒。你可以運用這些隕石的能量來讓自己重生。
+
+> 〔大天使麥達昶：隕石攜帶許多生命形態、許多能量。連結它們的本質。它們可以給你強大的能量，進而推動你立即進入新的實相。隕石會帶來許多新的生命形態。與它們連結，你將知道更多。你可以在靜心時透過意圖和請求來進行連結。
+當前有許多事要做，因為你正在做的就是創造一個模版。你正在成為一個嶄新的人，而要達成這點，有許多工作必須完成。〕
+
+這些是靈所提供的新禮物。如果你願意與它們合作，他們會大大強化你的能量。我們提供這些是要讓你知道它在此刻是可以取得的。我們要你想到，該努力將這股能量導入你的脊柱，進入你的腦下垂腺和松果腺，並透過這兩點吸氣。
+
+> 〔大天使麥達昶：要這麼做，先由靈魂之星脈輪或某個更高脈輪（第十脈輪）汲取能量，並且引導它流向身體的背部。多數的時候，靈性修持就是了悟、意圖、觀想。請觀想光進入你，沿著身體背部流動。接著透過你的普拉納管道¹（pranic tube）呼吸，設定意圖讓你的氣息經由這個開口流動，一次又一次。〕
+
+普拉納管道變得越來越寬。先呼吸，再導入光明，接著設定意圖。你的普拉納管道將會開始自然擴展。它越加擴展，你越能導入你的靈魂的靈性能量。在新的意識之中，這是絕對的關鍵。]
+
+人們知道靈魂之星脈輪或超個人點脈輪（transpersonal point chakra），會想要將能量結合入這個脈輪，這當然很好。然而，我們希望你能將自己的工作帶到下個層次。
+
+靈魂之星脈輪位在頂輪上方約 20 公分處。我們希望你們全都能開始由父／母神造物主下載能量。前往第二十四個脈輪吧。
+
+## 那麼脈輪的名字是什麼？位在何處？
+
+首先，是七個脈輪（七個光輪），接著是靈魂之星脈輪。想像有七道光。接著有一個巨大的光球，然後光球上方還有三個脈輪。那上方的其他脈輪皆為光球。
+
+## 它有名字嗎？
+
+現在我不能透露它的名字。呼喚這個更高頻的振動。這個脈輪將會藉由大師的協助而安住。呼喚適當的大師為你安住這個脈輪。你可以請大天使麥達昶或雅輝大師（Master Yahui）的協助。我們請你不僅要將能量下載到靈魂之星脈輪，還要讓它進入脊柱。
+
+我是主墨基瑟德，要感謝你們以如此偉大的工作來支持人類。這是我們給你們的禮物，好讓下一個走上這條道路的人也能獲得某些指引。
+
+## 由釘刑過渡到復活和揚昇
+
+我是耶穌。你們知道，世界目前正處在釘刑階段，處在全面的黑暗之中。你們該如何由釘刑進入復活，再由復活進入揚昇和自由呢？
+
+你們全都是先行者。當你們完成自己的釘刑經驗，你們會進入復活和自由。將這點教給人們。此刻世界正需要它。今年將會出現更多醜陋事物、更多秘密、恐懼和憎恨。你必須護持光明。你可以告訴人們只有在釘刑之後才會擁有復活。所有人都想復活，不過他們不想要經歷釘刑的過程。
+
+> 〔大天使麥達昶：那是至今為止的教導；只有在苦難之後你才能成就神。耶穌正是最好的代表。不過耶穌即使在釘刑之前就已經有許多靈魂出竅的經驗。他經常旅行到其他地方。
+
+所以，再提一次，你一直相信自己必須受苦才能成就神。這是古老的能量。由於你們的信念體系，我們很容易被操控。許多教會和宗教現在甚至也教導這點，教你們說你必須放棄一切才能找到神。那是屬於舊時代。
+
+在新的能量中，你可以擁有一切，同時透過你擁有的一切來禮讚神。你可以在一切事物中看到神。事實上，你無需放棄一切，只需放棄自我中心的執著和貪婪。一切的存在都是為了禮讚神。神創造你來禮讚生命。〕
+
+釘刑不代表人們必須經歷巨大的痛苦。這代表去除自己心智和情感中的黑暗惡魔。人們會清理自己的頭腦。請教導他們如何能脫離自己的心智和思維，因為這都是他們自己所創造的。黑暗中的黑暗乃是由人類的心智所創造。
+
+## 連結偉大存在和天體
+
+我們請你連結 DNA 的大師群，將你的脈輪與大師整合並相互連結。當你請求與大師的能量結合，你便可提升至下一層次。請由與大師的脈輪結合。
+
+呼喚你的指導靈，他們是你的靈魂群組的一部分。〔大天使麥達昶：每個人都有指導靈。想像你坐著靜心，而你抬起頭來看到你的指導靈，或者你也可呼喚你指導靈的本質來環繞著你。對他們呼吸，由你的心向他們的心，將你的脈輪與他們的脈輪連結。
+
+當你呼喚自己的指導靈，他們會立即踏入你的能量場。你或許需要一點時間才能知道他們來了，不過你絕對會感受到他們的能量。在幾星期內，你將能感受到來自不同大師的能量，因為許多大師都曾在過去與你合作。似曾相識的感覺會立即出現。
+
+當你呼喚自己的指導靈，他們會這麼高興，會馬上跳入你的覺知。由你的心向他們傳送能量連結，請他們將自己的能量下載到你身上。請他們連結你的脈輪與他們的脈輪，以他們高頻振動的能量注入你。
+
+你會充滿著光，因為這些大師來自高頻振動的地方。大師們不僅擁有高頻能量，也會由他們居住的地方帶來這樣的能量。〕
+
+你將能夠透過 DNA 大師群及高頻振動提升自己的意識。即使對大師而言，層次仍然有許多許多。大師時時努力提升自己的振動。揚昇，如果你認真看待，其實只是小小的一步，該做的事還好多。詢問你能如何與自己想合作的偉大存在進行 DNA 連結。
+
+> [大天使麥達昶：請求與大師意識的最高層次結合。觀想能量進入你。例如，如果你想連結大天使麥達昶，請觀想美麗的銀白金色的光進入你並充滿你。隨著呼吸將之吸入。觀想麥達昶的能量。或許你可以以祈禱姿勢跪下，並且說：「我呼喚大天使麥達昶的完整本質和存在此刻前來與我同在。」你只需要做一次，帶著純淨的意圖和心中的愛。你會感覺到那樣的存在，因為你知道，這些存在都等待著你。
+
+只需請求這點。除非你開口要求，不然他們不能前來，因為他們尊重你的自由意志。你將會立刻獲得支持。]
+
+你也可以與大地母親的 DNA 連結。她擁有超過一萬兩千個 DNA 層次、許多次元實相、以及許多能量存在。與我自己覺醒的 DNA 連結，因為我與父／母造物主、我摯愛的抹大拉的瑪利亞、聖母瑪利亞完全為一體。所以我們請求你將你的連結擴展到我們的 DNA。
+
+這裡有個技巧提供你使用。許多更高次元星球——昴宿星、大角星、金星——都和地球一樣有自己的 DNA。你可以請求要與他們的 DNA 相互連結。你將會接收到巨大的能量下載。你的心會變得清晰，你將會有更多光明。透過這樣的光，你將能更輕易地活化自己的 DNA。
+
+這個觀念在某些印度的圖像中出現過：人們雙手合十祈禱。在更高的層次上，他們正與諸神的能量連結。如果一位導師祝福你，或者你向希瓦（Shiva）祈禱，那麼他們就會將自己 DNA 的能量轉移給你。接著奇蹟就會在你的生命中發生。
+
+你也可以呼喚這些更高存在為地球帶來的密碼。舉例來說，抹大拉的瑪利亞和我用父／母神合一的密碼守護著地球。你可以請求這個密碼在你的內在活化。這是基督密碼。或者你也可以向麥達昶呼喚麥達昶密碼。
+
+你們都知道伊利亞大師（Master Elijah）。當他的助手在揚昇時，他披上了大師的斗篷。為什麼你不以能量型態成為伊利亞大師的助手並且請求他將自己的斗篷給你呢？
+
+更高存在都帶著某些密碼——耶穌和抹大拉的瑪利亞帶著基督密碼，麥達昶帶著麥達昶密碼。天使帶著天使密碼。你必須取用這些新的密碼才能活化更高意識。這是當前時代的獻禮。
+
+例如，艾許達聖團（Ashtar Command）的星辰兄弟會致力於支持地球，就像大角星人一樣。你可以呼喚艾許達聖團的高等大師來與你合作。〔大天使麥達昶：你只需要請求這個存在能完整地走入你的生命，那麼你將看見能量的下載，那是一道美麗的白色光芒。艾許達聖團支持人類，尤其是和大角星人一樣會與地球合作。他們來自一個名為艾許達的星系，來到這裡已經好久了。〕
+
+昴宿星人有個由十二個成員組成的議會，稱為昴宿星長老會（Pleiadian elders）。他們為昴宿星人掌握著能量和振動好讓他們的工作能持續。他們維持著穩定與平衡。這些是真正完整的大師。同樣的事也發生在大角星。有些存在為大角星人照明並護持能量。我們請你開始與這些存在和他們的 DNA 連結。
+
+你們每個人都有自己的個人密碼內建於大地。請求這些個人密碼能夠活化。呼喚大地母親。她保管了你們每個人的銘印。你們是她的孩子。她保管著所有住在這裡的生物的銘印。請求這個銘印能夠完全活化。
+
+## 重生
+
+我想談談雷幾天前收到的某件東西，我們認為讓你們知道很重要。當你開始修練你的 DNA，我們要請你不要將自己的想法限制在要活化較高層次的 DNA。去年〔2012 年〕，你們全都聚焦在 12 月 21 日和 12 月 12 日，後者為世界的揚昇。是的，那是非常有意義的事件。在這個星球的歷史中，這每個兩萬六千年會發生一次。你們所有人的下一步是什麼？除了 DNA 之外，思考一下重生。你必須研究這點並開始朝向重生而努力。
+
+> 〔大天使麥達昶：重生是人與生俱來的權利。第一步是每日與你的細胞溝通。覺察自己的想法、攝取的食物、吸收的能量、耗費的能量等。你的細胞會回應你。接著你可以請你的細胞停止釋放死亡賀爾蒙，活化並釋放光明賀爾蒙。這一點和長壽息息相關。細胞層面的溝通乃是關鍵。〕
+
+你擁有重生的能力。例如，我們希望你們許多人能再活個五十年。你已經擁有開發的意識。我們希望意識已開發的人能夠留下來，以便為下個世代護持光明。
+
+重生是已經覺醒者的人所具有的能力之一。重生有許多步驟。第一步就是去除死亡銘印。你們所有人從每世生命一開始都將這些銘印導入物質身體。你帶著四到七個銘印。這些銘印是你為了這個轉世的死亡而帶來的。這個銘印儲存在你的氣場絲弦（auric cord）上。要求這些銘印此刻就切斷。
+
+> 大天使麥達昶：你的氣場容納一切。你的氣場環繞著你，必須先進行清潔和淨化才能活化。當你由任何光之存在導入光明，或者當你吸氣並活化內在的光，你必須記得將這個光明傳送到你的氣場，好讓氣場所容納的一切能夠顯化並導入你當前的實相。接著你就能了解。每天都要修練氣場。這非常重要。這稱為氣場維護。
+
+第二步非常重要也非常困難。你需要去除矩陣（matrix）內含的關於死亡的信念系統。第三步是相信並知道你能用自己的身體來溝通。或許過去你的身體不會傾聽，不過現在你來到一個不同的時間階段。
+
+> 大天使麥達昶：去除死亡銘印和與身體溝通兩者可以相互配合。每天都要與身體溝通。這稱為細胞層次的溝通。死亡銘印需要去除，這是透過要求來完成。命令它們停止釋放死亡賀爾蒙到你的細胞，因為這會製造老化最終則導向死亡。死亡賀爾蒙會在全身移動，身體會死亡。所以通常來說，老化是個化學的過程。
+
+## Chapter 10 與你的星辰遺產連結
+
+我們可以透過細胞溝通來稍微控制這一點嗎？
+
+當然。停止製造死亡賀爾蒙。偉大的大師尤迦南達（Paramahansa Yogananda）過世時，他的身體存放在殯儀館超過三個星期沒有進行防腐，但身體從未腐敗。他的物質身體需要許多十日才了解主人已經不在這個身體了。
+
+這是新的模式，但其實是個舊的模式，不過它適合現代。我們鼓勵光之工作者如此修練，因為你們已經犧牲了這麼多才走到這麼遠。留在這裡看看你們累世努力的成果。每天都與身體溝通。
+
+難道你不願意留下來享受自己一世又一世諸多努力的成果嗎？你們準備了美食，現在應該坐下來享用。你們想要立刻離開嗎？活個長久的生命。這是你們與生俱來的權利。
+
+若是以線性心靈的方式來思考，這或許沒有道理。不過我們請你將自己的心擴展到潛能的極限，如果你有開放的心，那麼可能性是存在的。我也是對有宗教信念的讀者說話。我希望能擴展他們的心。新的真理是如此意義深遠。如果你願意檢視自己相信的真理，並且與新的真理比較，你可以說這一切都是瀆神之論。不過所有新的真理剛開始都被視為瀆神或可笑的論點。
+
+我們要請你們所有人此刻開始研究重生。大師們已經這麼做。許多存在都已經完成。你已經閱讀許多書籍，讀到許多故事說有人活到幾百歲。現在這已經是贈與全世界的禮物。提升自己的意識不僅是活化 DNA。我們不想要你在此畫地自限。重生是可能的。我們請你這麼做，是因為你有高頻振動的意識，而我們請你更加擴展這一點。我們不要你只帶著目前掌握的振動離開。當你重生，你會變得完全健康。延長壽命五十年卻只能臥病在床又有什麼意義呢？你的健康將會完全恢復。
+
+## 我們如何啟動你提到的重生？
+
+有許多步驟。首先你必須移除死亡銘印，做法是你要知道自己能與身體溝通。你必須改變自己關於死亡的信念。你要知道生命是個永恆的過程。沒有結束。生命是個持續的過程，沒有侷限和疆界，像四個方向：北、南、東、西。沒有分離。許多人難以接受這一點。去除你帶到此世的死亡銘印。接著努力活化你的青春染色體。許多大師都已經這麼做了。要維持青春，請呼喚青春染色體。
+
+## 人死後的 DNA 會怎麼樣？
+
+意識不會隨著身體死去。能量不會死去，所以你下一世仍會擁有同樣的 DNA。你會擁有你吐出最後一口氣那一刻所具備的屬性，以及當時所帶有的意識。
+
+你們都曾在某一段時間身為大師。你們所有人都曾經是揚昇大師。為什麼你無法記得這一點呢？在過世的那一刻，在死亡的時刻，你們帶著什麼樣的意識？這是最重要、最關鍵的意識。你必須在覺知中死去。如果不是，那麼在你的下一世生命中，最主導的能量將會是你在前一世生命結束前所帶著的能量。
+
+> 〔大天使麥達昶：昏迷中的人內在意識非常清楚。這些人經常被稱為植物人。你認為他們的內在是植物嗎？當然不是。他們非常清楚地覺知自己內在正在發生的事，他們也覺知外在世界正在發生的事，但是他們與外界脫離。〕
+
+大多數人在臨死前，當一生在面前一閃而過，人們的恐懼都會介入。他們所有過的每個經驗和說過的每句話都會重新檢視。多數人感到巨大的恐懼，因此很難維持在較高的振動中。
+
+在印度、西藏和其他文化中，當人們準備要死去，家人會焚燒聖香——特別是檀香。他們這麼做是為了讓人的心清明，而且他們會開始吟唱聖者的名字。即使現在，印度人仍會以神的名字為小孩命名，這樣在他們臨命終時，他們可以呼喚自己的孩子到自己身前。他們在內在呼喚神的名字。DNA維持不變，但是他們會記得嗎？這點取決於他們最後一次呼吸時的意識狀態。
+
+> 〔大天使麥達昶：死亡會改變人的DNA嗎？它待在那裡，一世又一世，好讓正確的指導代代相傳。〕
+
+## 改變你的藍圖
+
+## 如果我們改變了生命的藍圖，那麼DNA會怎麼樣？
+
+當你在自己身上添加了什麼，會怎麼樣？你會變成新的事物。你的DNA有了更多光——更多覺醒的光——有更多回憶。我們要你經常改變自己的藍圖。
+
+## 靈魂 DNA
+
+> 〔大天使麥達昶：你透過意圖來創造新的藍圖。你或許也想要去除死亡銘印，不必然那麼頻繁。你可以說：「我準備好要從我的生命中釋放符合這個時間點的死亡銘印。」這是我們所謂的「獲得力量的人類」（empowered human being），他們能掌控自己的生命。記得，你有能力透過自己的意圖來去除死亡銘印。〕
+
+## 所以當我們創造新的藍圖，裡面會包括什麼？我們的意圖和目標是什麼？我們想成就什麼？
+
+你的靈魂的意圖是永遠去尋找更高的經驗。它絕不停止。所以要請求獲得在這個新的實相中你的靈魂在地球層面能獲得的最高經驗。如果你說：「我已滿足於自己的生命，」這可能沒錯，不過你的靈魂不會回應。不過如果你要求獲得更多經驗，那麼你的未來將有許多新的事物開啟，即使你已經七十或八十歲了。〕
+
+我們可以問你：「你未來三個月的藍圖是什麼？」這是非常有趣的問題。我們對此還不想說什麼。在今年的揚昇之後，重要的是重生。下一步是建構你的阿卡莎記錄，改變你的藍圖，升級藍圖並升級你內在的軟體。沒有藍圖就沒有生命。
+
+假設有人臥床將死，但是她在經歷了瀕死經驗後回來。到底發生了什麼事？她是如何回來的？她走進隧道，她開始回顧自己的生命。她為何回來？
+
+這並非因為她尚未準備好或者她的時間還沒到。她為自己創造了新的藍圖。你也可以創造一個新的藍圖當成重生過程的一部分。我們要你從現在起開始重寫自己的故事。不再有歷史：不要被自己的歷史綁住。從現在起，這就是你的故事。當你改變自己的藍圖，你就提升了自己的振動。不要只改變自己的藍圖一次；相反的，要經常改變它。每三個月都創造一個新的藍圖。
+
+> 〔大天使麥達昶：同樣的，這仍是透過意圖和與靈魂溝通來完成，要請求獲得更高的經驗。許多人出生時帶著五到七個死亡銘印進入一世生命，有時最多可到十二個。你經驗到的種種千鈞一髮全都是死亡銘印。不過，藉由你的意圖，你可以改變這點。這稱為「賦予力量的生活」，你掌控著自己的生命。〕
+
+當你開始這麼做，你會發現我們整個星球也有張藍圖。每個國家都有張藍圖。我們要你持續活化自己更高的藍圖，每三個到六個月。
+
+運動員不會在 100 公尺賽跑上畫地自限，告訴自己：「我很好，我只跑 100 公尺。」不會的。他會告訴自己：「我會讓自己更好。」並且努力提升自己的速度，從 11 秒到 10.5 秒，以此類推，因為他會時時訓練自己達成自己最佳的等級。
+
+進化是個永恆的過程。這從不是有限的。我們要你想想這一點。
+
+## 如果某人走上錯誤的路，違背了自己的藍圖或生命規劃，那麼 DNA 會如何？
+
+首先，沒有所謂錯誤的路。那只是你將某些事貼上「錯誤」或「正確」的標籤。人會做事，不過他們不會貼標籤，因為當你貼標籤，你就創造了分離。從現在起，不要再有分離。你做了什麼，就是這樣。DNA 不再活化或維持沉睡狀態。
+
+如果人做了不符合自己靈魂目標的事，他們就沒有能量成就他們來這裡要做的事。自然地，這會影響他們的 DNA。如果你說：「您的意志就是我的意志。」你就逐漸活了過來；這是神的意志。你全部的能量都將流向你為自己設定的道路。自然地，你會處在更高頻振動的狀態。當你運用高頻振動能量，你的 DNA 就會自然地活化。所以你首要之務就是回到自己生來要實踐的神聖靈魂目標上：您的意志就是我的意志。
+
+五、六年前當我提出這些問題，大天使麥達昶所給予的回答就是，我必須遺忘自己學到的每件事、復原我已完成的每件事。我非常震驚，整天無法言語。我面對如此劇烈的典範移轉。
+
+耶穌怎麼說？要認識造物主，你必須再次像個小孩，成為純真而好奇的小孩。你必須復原你所學到的每件事。不僅是在此世而是你從文化上、基因上所帶來的一切。要回溯並將心的黑板完全擦拭乾淨。這不是件容易的事，因為心非常強壯。心會拉扯回來，因為它害怕自己會失去力量。你必須聽麥達昶的話來做：復原你至今為止所學到的一切。
+
+## 放下
+
+我想給你一個小小的、喜悅的經驗。假設某件事真的卡在你的心裡，你無法放下。儘管你已經努力嘗試，但你越嘗試，它卡得越緊。這個練習可以支持你。我們不保證一定有效，不過我們說這可以支持你。另外，因為你是人類，所以無論發生什麼，我們都不能挑你的毛病。
+
+坐下來，點一枝美麗的蠟燭，找一條好的細繩，不要太細也不要太粗，或許找條白色的、美麗的細繩。繩子兩端分別打個結。一個結代表你，另一個結代表你和某個人相處的經驗或代表那個人。
+
+深呼吸，盡可能將愛帶入你的心——是愛，不是恨。隨著呼吸將愛吸入。等你感覺與愛建立緊密連結，請拿一把剪刀，一刀從中央將細繩剪斷。接著將細繩在燭火中燒掉，然後讓蠟燭放在安全的地方讓它自然燒盡。留著讓蠟燭自己燒光。你或許會短暫感覺悲傷，不過你會完成一次與某世生命的業力能量切除連結，並且去除與它的任何連結。
+
+你怎麼知道自己已經切斷連結？在你想到這個人或這次經驗的幾天或幾星期後，將不會有悲傷或任何其他感覺，只會是一個記憶經過你的心。之後你會知道自己已經療癒。你可以為某個人或為任何阻礙性的信念系統——例如背痛或任何其他事——做這件事。
+
+這個練習可以針對任何人、針對你生命中任何可能改善的情境、針對某個人或某個處境、或針對其他任何你已經完成但無法忘卻的事，只要它已不再對你有益。我們要你只在充滿愛的狀態進行。如果是出於恨來這麼做是不會有效的；必須透過愛來完成。
+
+## 使業報舒緩
+
+## 業報會如何影響人的 DNA？
+
+重點有二。業報是未完成的能量，你是來這裡將它完成。所以我們會區分業報和學習的不同。DNA 具備高頻振動意識，不過它是未活化的，會持續沉睡。當我們釋放的業報越來越多，生活有越來越多的平靜，感覺到越來越多的喜悅，慈悲心越來越強，那麼我們的振動自然會提升，因此會影響 DNA。
+
+釋放業報的簡單方式之一就是提升你的能量，並且切斷與業報能量的連結。你還是會想學習你必須完成的課題，不過沒有附帶的痛苦和折磨。
+
+> 〔大天使麥達昶：讓我舉個小例子。這是雷的故事。他曾擁有高薪工作，也過得很好。不過在兒子出生之後，庫圖彌大師對他說：「現在你該思考完全承擔自己教師的角色了。」他非常害怕，相當懷疑，因為當時他身居高位，兒子才剛出生。他還有個女兒，有個家庭需要支持。
+
+庫圖彌說：「我們出去走走。」他帶著雷前往他某一世生命，那時雷是個希臘戰士，準備出征。戰爭的號角在天際響起有如雷鳴。他沒有恐懼。庫圖彌大師要雷吸入無懼於死亡的能量，將它帶回並貼附在他當前的實相。他如此做了七天。到了第七天，他感覺更堅強、更有自信。
+
+雷因此能選擇無懼地辭去工作。他用這個技巧來與自己業報的能量切斷，好讓他的靈魂能帶給他任何需要的課題。〕
+
+你無須經歷痛苦和折磨才能學到一課。那是古老的能量。只要加入新的能量，你就不再需要舊的能量。你可以請你的靈魂帶給你任何你需要的課題。
+
+## 透過意識來學習而不是透過當頭棒喝？
+
+正是，透過意識。你還可以做一件事。你可以從乙太釋放你的業報，而不是在物質層面經歷它。我們要你練習從乙太釋放業報，好讓你無須經歷痛苦和物質困境。如果你有這樣的意圖，你也可以在睡眠中這麼做。
+
+你們多數人都知道你們擁有來自業報委員會（Karmic Board）的恩典。
+
+> 〔大天使麥達昶：業報委員會成員為部分揚昇大師及業報議會（Karmic Council）。他們是光之存在，唯一的職責就是確保能量平衡。業報委員會不是關於懲罰，其唯一的考慮是如何平衡某人的能量。能量一旦經由心靈、行動、言語或任何互動所創造，它永遠不會死去。它會被繼續帶往其他世生命。業報委員會唯一的意圖就是平衡人們自己創造出來的能量。〕
+
+每天都要和業報委員會合作。請他們帶給你平衡生命所需的能量，他們將展現在你面前。請他們以溫柔的方式帶來這些能量，好讓你能理解。這不是關於懲罰。要懲罰誰呢？你懲罰你自己。神不會懲罰人類。
+
+你們全都擁有恩典，因為你們一直努力，朝向揚昇及提升自己振動意識前進。你們多半的業報都已經為你移到恩典的時期了。你可以請求說你想沒有痛苦或折磨來學到課題。如果你嘗試這些方式後仍然有痛苦和折磨，這是因為你的靈魂並不真的在乎痛苦和折磨，因為它並未感覺到。靈魂是覺知的，可是它不會經驗到痛苦。靈魂只在乎你學到多少，獲得了什麼智慧。
+
+> 你可以對自己的靈魂說話。
+
+> 〔大天使麥達昶：要和你的靈魂說話，你只需坐下並呼喚你的更高自我來與你連結。就是這麼簡單。引導呼吸，你將感覺自己的靈魂。無須考慮怎麼做或為什麼。每個人做事的方式都是自己的個別經驗。你的靈魂會覺知你思緒中的一切。每天規律這麼做，你將會讓這個連結日益堅強。你的靈魂觀察著每件事。每天做，並且看著自己的生命改變。〕
+
+你可以向靈魂說明此刻你正經歷的課題是你生命中最難過的時光。你可以請求將這一課分散在許多世生命練習，而非只在此世完成。你的靈魂將會與大地母親溝通，因為你的銘印就藏在她的體內。大地母親通常會同意，這樣你就可以將自己的業報課程延伸到好幾世生命。這或許需要三到四周才會發生，不過你將看到轉變。這是贈與當前你們所有人的禮物。你也可以運用同樣方式來處理正在地球上發生的極端衝突事件。
+
+> 〔大天使麥達昶：大地母親是活生生的靈。你們全都暫時活在她的身體上。你難道不會關懷自己的母親嗎？當你前往拜訪某人的家時，你會怎麼做？你會尊重邀請你去的那個人。你是否尊重大地母親？她給予自己的身體、心靈、靈魂來支持人類。可是你是否為她做同樣的事？你是否感恩大地母親，或者你在虐待她呢？我請你們自己回答這個問題。
+
+你可以透過意圖和透過愛來與大地母親連結。當你有好的念頭，充滿愛的念頭，當你原諒某人並口出善言，那麼大地母親會感覺到你的能量。每天都要與她溝通。該如何溝通呢。透過其他人類，透過你對待他人的方式。
+
+某人曾經對大地母親說：「我想擦去您眼中的淚水。我知道您受苦了。」
+
+大地母親回答道：「謝謝你。當你擦去其他人眼中的淚水，你就是擦去我眼中的淚水，因為我就是那個人。」
+
+尊崇這個偉大的存在，她提供自己的身體來滋養並支持你踏上自己的旅程。每天都與她合作。你的愛是療癒的藥方，因為如此重擔她已背負數百萬年了。〕
+
+與大地母親溝通。請她將這延展到其他世生命，好讓其強度不要只聚集在此刻。試試看，因為大地母親非常慈悲。
+
+例如，在非洲的衣索匹亞和其他國家，他們多年來都過的很苦。出生在那裡的靈魂選擇出生在當地過著挨餓及飽受折磨的生活。在適當時機，詢問大地母親說：「我們能轉變這一點嗎？」或「我們能改善這一點嗎？」「如果在1到10的強度表上是10，我們能否降低到2好讓這麼劇烈的苦難是最後的一世？我們能否在這一世結束這樣的苦難？」你可以與大地母親連結，那麼她會做出決定，而且她將會同意。
+
+覺醒的DNA會以非常有意識的方式影響大地母親。大地母親將會傾聽你。這是你們全部的人都需要運用的禮物。你們有許多人學識豐富，此刻你們必須將這些學識導入實際層面。這是你們支持自己也支持地球的方式。
+
+> 〔大天使麥達昶：你的想法，大地母親都能感覺到。當你走在她的身體上，她能清楚覺知到你。由你的心傳送愛，說個甜美的話語。當你看到她的身上有美麗的花，請說：「大地母親，感謝您那不可思議的美。您正支持著這個生命形態。」她會感覺到。這對她會是療癒的藥方。美洲原住民很清楚這點，也很尊敬她。他們知道她提供了自己的身體來支持人類和所有生命形態。當你口出善言，當你療癒他人的心，當你友善對待他人，你就是在療癒大地母親。當你對他人酸言酸語，你就是在傷害大地母親，因為你們和大地母親乃是一體。〕
+
+## 當你學到一個生命課題，這對 DNA 有什麼影響？
+
+當你以慈悲、仁慈、接受來學到生命課題，你自然會處在平靜喜悅的狀態。如果你選擇隨著愁苦和憎恨振動，結果就是相反。心就是癥結所在。你的心智和情感保有多少平靜和喜悅代表哪一層級的意識會活化你的 DNA。人類心中絕大多數的黑暗都躲在哪裡？就在潛意識心靈。修練潛意識心靈。正因如此，愛西尼兄弟會才會如此強調要修練潛意識心靈。
+
+## 連結你的星辰和你的龍
+
+我們想再告訴你一件事。地球創造出來時，經過許多時間人類才獲得允許前來進行實驗。當時有十二個龍之存在，他們接受造物主邀請前來地球並以他們的能量封印這個星球。他們為十二原型龍，他們在大地母親身體的不同部位將能量鎖定：梅爾卡納（merkanah）能量、松果腺能量、新藍圖能量、水晶王國能量等等。你必須呼喚它們，因為它們也攜帶著能活化最高類型 DNA 的密碼。
+
+> 〔大天使麥達昶：呼喚它們乃是透過意圖和透過特定的聲音振動。你可以由李·卡羅的克里昂系列書籍中閱讀更多相關資訊。當人類更加覺醒，人們可以創造聖地。
+
+你可以透過意圖以及在某地護持光明來讓該地成為聖地。從你的住家和自己的環境做起。藉由意圖來創造光之城市。例如，觀想一個美麗的六角形或八角形放置在你意圖要創造聖地之處。觀想這個幾何形狀安住於大地之內。這是充滿光明的空間，那個地方因此成為神聖。首先，從你的家開始做。
+
+通常人們並不了解意圖的真正力量。出自於心和靈魂的意圖可以完全改變任何實相。你可以帶來療癒，那怕是飽受摧殘的土地。〕
+
+克里昂提過這些密碼，也說地球某些地方變得越來越神聖。這就像時間膠囊。請求 2013 年與你的密碼相符的龍密碼。它們帶有安住在地球上的原型能量。你們全都獲得一份禮物，因為在你們出生時，你們都與一顆星與一隻龍相應。
+
+> 〔大天使麥達昶：再說一次，請用意圖進行。龍有自己獨特的聲音頻率。運用這些頻率來呼喚它們前進（參見附錄一：運用龍的能量）。每隻龍都帶著非常獨特的振動能量。這項工作並不危險，也無法濫用，但其力量非常強大。這是聲音的力量。運用這些聲音呼喚這些存在，你將感受它們的能量。可以在工作坊與許多人一起嘗試。〕
+
+這些星辰和龍為這個時代帶來特別的密碼。這就像個隨時可以開啟的時間膠囊。我們可以向你解釋這些工具；不過，我們無法替你實踐。你必須運用這些工具並與它們合作才能知道它們能如何支持你。如果你與它們合作三個月，你就會看見差異。
+
+> 〔大天使麥達昶：你必須運用我們所給予的每項工具。與龍合作是一項新工具。要持續運用這些工具。你們所有人都處在重新創造自己的過程中。運用這些新工具。舊有的工具無法用於新的方法。你將強化舊有的能量。對新的你而言，你需要新的工具，而最高的工具就是你意圖的力量和你思想的力量。〕
+
+## 愛西尼人
+
+我想知道愛西尼人為了改變自己的 DNA 而做到什麼程度？
+
+在另一個次元實相中，他們的工作仍在持續。他們能完成自己來到這裡所要做的事。不是所有愛西尼兄弟都獲得啟蒙。不是所有愛西尼兄弟都會回來。某些是異端邪說。整體而言，大師確實完成自己的任務，準備好環境，讓正義導師（Teacher of Righteousness）能夠誕生。在釘刑之後，愛西尼兄弟將工作帶到英國和法國。
+
+## Chapter 10 與你的星辰遺產連結
+
+他們的工作仍在持續，在未來十年中，你將看見愛西尼的教導越來越受歡迎。人們會感覺更加強韌，因為他們的教導非常簡單且實用。愛西尼人說，假如你無法讓自己的生命、心靈更好或帶來和平，再複雜的概念也沒有用。他們的教導很容易遵循。
+
+正義導師教導巫醫式的生活方式，與大地母親和天空父親往來。你們都是自然萬物、是一切造化的兄弟姊妹。這是要給世界的新教導，你將看見年輕人擁抱這個觀念，因為這是新的宗教概念的開端。這是常識。
+
+你們每個人都有自己連結更高自我的方式。無論你覺得什麼適合，請繼續。你正在你和你的更高自我之間多建築一座橋樑。
+
+## 在創傷情境下死去
+
+大約一個月前，當我們與聖哲曼對話時，他曾提過在創傷情境下——例如原子彈爆炸或納粹大屠殺——死去的靈魂會發生什麼事。他們真的會失去七十到一百世生命所獲得的靈性學習嗎？
+
+他們不會失去自己的靈性生命，不過許多生命藍圖都會被抹消。某人走入一世生命，這可能需要 761 世生命才讓這個人來到當前的這個位置。這是努力的積累。經歷原子彈爆炸或納粹大屠殺，這個人傳承的大半都會消失。記憶會由這個人的存在中抹消。他在過去 761 世生命所有的學習蕩然無存。這個人需要回來重新開始。
+
+## 這樣的靈魂如何能療癒?
+
+納粹大屠殺的靈魂已經重生。他們並不完整。經歷納粹大屠殺後，他們的靈魂有如此多的碎片，所帶來的能量只是他們個人能量的一小部分。他們需要努力來找回自己的靈魂能量。這點需要對所發生的事有靈性的了解。他們可以與自己的指導靈和大師合作來重整自己的靈魂能量。如果他們缺乏靈性理解，他們的指導靈和大師便無法與他們合作。
+
+## 您認為未來會導入某些療癒技巧，能夠幫助這些靈魂回復自己的傳承嗎?
+
+永遠會有可用的教導；不過，他們必須選擇要使用。請記得，造成巨大傷害的人可能會重生於自己迫害過的國家。
+
+大角星人有種稱為「療癒室」的靈性科技。他們可以回到過去或前往未來。他們可以回到過去並將它帶入未來。當你療癒過去的某件事，你的未來就會改變。為了完成這樣的工作，你必須有某種程度的靈性理解和振動。不是每個人都能進入這些空間獲得療癒。他們需要知道技巧，知道如何運用。他們的心智必須清明，擁有某種靈性理解。
+
+每天運用這個是非常好的。能呼喚你破碎的部份來與你結合也很好。你可以呼喚破碎的部份，有時候你會看見能量泡泡進入你。有時你會感覺強大的悲傷或學到新的能力。當你能將自己所有破碎的部份帶回你自己，你就會再次變得完整。
+
+我的憂慮是這些人會失去所有靈性認知並且成為枯槁的存在。他們沒有工具能請求破鏡重圓。
+
+我不會說他們失去一切。在他們靈魂的更深層次，他們仍擁有知識和智慧。根據他們其他世的生命和業報，他們多數人出生的家庭所在地會是他們有機會再次重新學習的國家。在更高層次，這些死去的人有他們自己的業報問題要處理。
+
+在日本，人們都很有禮貌、很溫柔，會彼此照顧。他們不是一直都是如此。他們在自己佔領的國家相當殘暴。在原子彈爆炸後，他們的觀點因為苦難而轉變。對他們而言，這個轉變相當巨大。日本人非常禮貌、非常溫柔，犯罪率不高。日本是世界上最安全的國家之一，犯罪率很低，這是因為歷史為他們改變了一切。重大悲劇發生時，能量會進入大地，當大地獲得療癒，出生在這塊大地上的一切也會獲得療癒。這會帶來慈悲的能量。這正是所發生的事。
+
+2005 年，大海嘯襲擊泰國、斯里蘭卡和其他鄰近國家的海岸，有超過二十三萬七千人死去。全世界都伸出援手。那個海嘯讓世界聚集起來一小段時間。許多國家前來支持這些人。
+
+簡單地說，一個擁有十二束活化 DNA 的人會如何感覺？這樣的人會如何認知這個世界？
+
+這個活化並非即刻發生，而是漸進的過程。擁有十二束活化 DNA 的人會以不同的眼光看世界——透過內在眼睛、真理的眼睛。他們會發現這個世界很重要，但是他們卻不在這個世界上。他們一隻腳踏在這裡的大地，另一隻腳踏在另一個世界。他們的觀點會改變，好讓他們能看到全面，看到每個處境中的真理。他們能透過望向更高次元的眼睛觀看。他們能看到更多完美，在每個處境中看到神。這是一種內在觀點的改變。
+
+## 罹患慢性退化疾病，例如心臟病或癌症，因而纏綿病榻的人，他們的 DNA 會怎麼樣？
+
+DNA 永遠是完美，它是完美的資料庫。如果它不運作，未曾活化，那麼它會保持沉睡。如果你罹患退化性疾病，不去修練自己以提升意識，那麼 DNA 就不會改變。〔大天使麥達昶：DNA 永遠都是完美的。如果你根本沒有這樣的傾向或覺知，相信自己可以改變，那麼你的 DNA 將不會改變。這根本不會是你的實相。〕
+
+許多以苟活模式生活的人是用第一脈輪運作，這也是原因之一。他們沒有多少時間或傾向來修練自己。他們沒有心思或時間朝著另一實相努力。所以他們只是存在，不是有意識地生活。
+
+即使罹患疾病，只要保持覺知，他們都能詢問自己的靈魂為何選擇擁有這個經驗，詢問這一課是什麼，詢問那是不是藍圖或命運的一部分以及該如何走出來並且去處理。從這個觀點來看，他們自然處在覺醒的狀態。
+
+當你開始修練自己，你便在提升自己的振動和意識。同樣的道理，罪人只要開啟自己的更高心靈也能一分鐘變成聖人。
+
+你們聽過我治好痲瘋病人的事蹟〔馬太福音第 8 章第 3 節〕。我什麼也沒對他做。我只是恢復了他的信念，讓他再次相信自己能療癒、能行走。他如此受困於自己的思緒，困在其中長達 35 年。我改變了他的信念系統，解放了他的心，因此他開始相信自己辦得到。許多時候，你相信自己不能做某些事。改變你的信念，進而改變你的生命。
+
+此刻最關鍵的就是你在這個新的意識中守護一個更高的信念系統。這是能量擴展元年〔2013 年〕；要相信一切都是可能的。要相信。做最大的夢。我是你的朋友耶穌。
+
+## 清理你的情緒和你的心靈
+
+我是大天使加百列。我請你們所有人呼喚我。我有許多智慧要提供。天使國度可以讓你沐浴在天使之光下，好讓你的情緒身和心智身都更加清淨。
+
+處理情緒身較為容易。你能控制自己的情緒因為情緒簡單地說就是動態能量。你如何控制動態能量？你可以將能量移往更高的表達並保持正向的振動，或者你能將它移往較低層次並擁有較低的振動。選擇權在你。開始將一切視為能量，思考自己要如何與能量遊戲。你想將它往更高或更低的層次移動呢？修練情緒身很容易；那是處於動態的能量。你們都能成為專家。
+
+要修練心則更為棘手，因為心困於許多層次更有許多過去。情緒身沒有多少過往的連結，不像心智身那樣會受到影響。心智身需要持續地每天清理——維護。這是我們能幫忙之處，因為我們帶著來自造物主最高、最純淨的振動。
+
+心智身直接連結到儲藏的記憶。這些記憶儲藏在大腦、細胞、血流、皮膚和骨骼內。除非你由骨骼清理調記憶，你永遠不會真正的清淨。古人知道這點，努力淨化骨骼。除非你清理骨骼，否則你會由過去帶回類似的信念。你要以最純淨的愛的振動將這打破。
+
+呼喚我們的家族來與你合作。先沐浴並來到寧靜的場所，讓你的呼吸流過全身，吸氣，並且在全身循環，然後透過全身釋放。這可能需要一點練習，不過你會知道什麼樣淨化會發生。帶著對自己最純淨的愛吸一口氣。呼吸是生命之源。將你的氣息傳送到內在，傳送進你的身體，如果可以試著閉氣，數到八或十，同時在體內循環，接著再傳送出來。
+
+你將看到奇蹟。許多思緒都會離去。你會感覺充滿生氣和活力。
+
+## 在和諧中交流
+
+我是大天使麥達昶。當你與萬有和諧，你便與神和你自己和諧。巫醫之道是與一切創造物和諧交流。我們要你保持開放，與你自己的父／母造物主進行神聖交流。塑造這個意圖，請求獲得神聖交流的密碼能在你的內在開啟，好讓你的更高自我能時時刻刻被聽見。從此以後，你就能活在神聖的交流中。
+
+當你與你的夥伴溝通，你不是去對他或她說話。你將與他或她進行神聖交流。這將會是巨大的轉變。不再有交談，因為你們彼此從心之泉源交流。
+
+若要練習神聖交流，從此刻起的每個經驗，你都共同創造一個新的世界；每天早上起床時，塑造這樣的意圖。請求天使存在支持你進入神聖交流，首先是與造化的一切；接著要與造化的一切達成和諧；第三要與造化一切處在意識合一；第四則是要進入事物的流動中。
+
+〔大天使麥達昶：針對與你的指導靈溝通，沒有所謂「應該」或「不應該」。這是透過意圖來完成。如果你躺在床上，在淋浴，或是在客廳手上捧著一杯咖啡，你都可以進入內在的寧靜空間，呼喚這些存在，並且與他們溝通。他們不像你需要睡覺；他們二十四小時隨時在忙。無論何時，只要你感覺心中有愛，便與他們溝通。
+
+不要等待。進行這個連結吧。他們總是在場，不過你必須由你這邊啟動連結。讓他們成為你最好的朋友，因為他們心中只考慮你最大的利益和最高的意圖。
+
+你越與他們合作，你創造的連結就越強。他們是你的後援隊。他們知道在地球生活並不容易。他們來這裡是要以最大的愛支持你，幫助你由甲地前往乙地，過程中還能完成你來這裡所要學習的生命課題，開啟新的契約，並且時時溫柔地提醒你記得自己是誰。除了你自己的指導靈，你還找得到更好的朋友嗎？
+
+記得每天與他們溝通。或許你愛你的母親，不過假如你們多年沒有溝通，這段關係就會生鏽了。你越和自己的指導靈溝通，他們便越能以他們的能量和智慧支持你，幫助你開啟迎接更高的實相並且找到更多的自己。當你死去，他們最先來到你身邊，讓這樣的轉換盡可能變得容易。〕
+
+當你請求，當你早晨起床時陳述，你會看見自己的日常生活變得更加順心。你還可以增加一個元素，一個賜予祝福的元素。這是你想創造的實相，一個國與國、人與人之間都能和諧、能溝通、彼此支持的未來。那將是個多麼美好的世界！未來這將會成真。你此刻便能看見，不過這只是時間中的一刻。你將看見；未來將會轉換。
+
+接下來要給你一項家庭作業，是關於大樹以及它們如何影響人類。在你自己的社區找些樹木。樹木有非常聰明的靈魂，尤其是樹齡較長的樹。它們有階級。某些樹會長得比其他樹木高，因為它們的 DNA 已經甦醒。
+
+走入自然，找棵你覺得適合的樹，通常是因為這棵美麗的巨大樹木所吸收的較高能量。接著請求結合。花點時間在這棵樹上。這個練習要在你的社區做。要保持尊敬，因為樹木就和你一樣。你不希望有人沒敲門就走進你家。接觸樹木時要抱持適當的禮儀。
+
+> [大天使麥達昶：當你接近一棵樹，良好的禮儀就是要尊重它，因為樹木是有感覺的存在。與樹木保持約四到五公尺的距離，接著詢問：「我想走近您。我能否碰觸您以感覺您的愛？我能否進入您的氣場？如果我走向您，您是否樂意？」表現尊敬、尊崇、愛。樹木是生命形態，和你一樣充滿活力。如果樹木允許，你再進行。那樣一來，樹木將會對你開放。]
+
+樹木是存在，也是神的一部分。它們擁有靈魂，所以必須先保持幾公尺距離，向它們解釋你想走近並將自己心的能量傳送給樹木。你會接收到答案。〔大天使麥達昶：你會感覺到。樹木有家庭。它們也許在睡覺，也許忙著其他事。〕
+
+如果回應是肯定的，那麼走向那棵樹。手放在樹上，向樹傳送光。樹會準備好與你分享它的智慧。你尋求那棵樹的同意來進入它的領域，以便獲得樹木的合作。藉由合作，你將能分享更多並擁有和諧。前去尋找一些美麗的樹木並且與它們合作。
+
+## Chapter 11 清理並淨化你的能量
+
+2013年8月8日
+大天使麥達昶、阿肯納頓王、山納·庫瑪拉
+
+耶穌為人類設下典範。他總是與自己的光體和真我連結。他讓每個人看到；他轉變並變得更加莊嚴。
+
+我們所有人都有光體。在靜心時，你可以請你的光體前來，詢問該如何運用光體。你有不同層次的光體。請求薩南達的支持來導引出你的第五次元光體。這就像個網。在靜心時，想像你將這個美麗的、人形的網拉進自己內在。觀察光體能如何支持你。
+
+當你與光體的整合度越來越高，你會成為完整的光之存在。你將能藉助光體前往許多地方。分身也更加容易。所以你能同時在兩三個地方。這是透過光體來完成。
+
+〔大天使麥達昶：分身是透過意圖來同時存在於兩個地方。你運用意圖、透過請求你的靈魂來前往另一個地點。在意識旅行時，你會保持覺知。例如，假設你想到某件二十四年前發生的事，你是在那裡還是在這裡？有一部分的你回到那裡。以非常事實而客觀的方式來看，在你分身時，你是否在物質層面出現在兩個地方？其他人是否能看到你？或者這只是將你的意識投射到該地，好讓你維持覺知狀態？
+
+同一時間身在兩個甚至三個地方是可能的，不過這需要高度的掌握。偉大的大師，例如巴巴吉¹，會這麼做並向他人示範。你也辦得到。不過這需要對身體和能量有巨大的掌控力，也需要偉大的理解。簡單地說，這是將你的意識投射到兩個地方。
+
+¹ 註：《一個瑜珈行者的自傳》一書曾提到巴巴吉。據說巴巴吉能治療病人、改變外型、同時出現在兩個地方，還有其他種種能力（http://www.crystalclarity.com/yogananda/chap33.php）。
+
+## 所以你能覺知到不同時間或不同地方所發生的事，但是你不會與該地發生的事進行互動？
+
+不。等時機到了，人類將能完全投射自己，包括身體。大師們已經在這麼做；他們完成自己的工作並回到現在。未來你們全都能達到這個階段。讓我問你一件事。你在跟雷說話。你在美國或是日本？
+
+## 我在美國。
+
+不。你在你意識所在之處。
+
+以下是其他能透過光體來做的事：重生你的細胞，增加壽命，理解並閱讀阿卡莎檔案。我們要你運用自己的光體，因為透過它，你將能分身並傳送自己。你們所有人未來都會從事這類工作。或許你無法在物質層面存在於某個地點，但是你可以運用光體來進行分身或傳送。
+
+以下三個技巧我們希望你能在此時好好修練。首先是重生，好讓你能活更長的壽命。第二是閱讀和理解阿卡莎檔案的能力，能請求以三、六、或八個月等等分組。請持續運用阿卡莎檔案。第三，持續修練光體，好讓你能傳送自己，或分身前往不同地點去在該地工作然後回來。
+
+耶穌曾示範這點，這全都是透過活化光體，就像古代許多長老一樣。在靜心時，呼喚光體活化。許多大師會這麼做；巴巴吉總是這麼做。這些都是此時你必須修練的新事物，因為你們全都是進化的學生。請呼喚薩南達大師協助你活化光體。
+
+> 〔大天使麥達昶：透過請求來進行這件事。你會看到一道美麗的白光，形狀就像你自己的身體。薩南達大師是由更高次元實相取得此光體。這就像一匹美麗的白布，形狀像你。他牽引出這道光，慢慢將它的能量導入你的頂輪。慢慢地，這個能量下降到你內在，往下流到你的雙腳，進入大地。觀想你雙足長出根，讓這道能量穩定。這是很好的練習，可以每天做。〕
+
+這非常關鍵。世界的不同地方將會許多進步，好讓光之工作者能護持更多的光。我們需要人們分身並在各地工作。某些地方有很大的困難，人們無法前往那裡工作、穩定光明、建立高頻振動。你可以運用光體傳送自己來達成這一點。
+
+## 與偉大奇蹟連結
+
+哈囉，我的朋友，我是阿肯納頓王。我親愛、摯愛的家人，各位好，祝福各位。我們希望簡單地提到兩件事。一個是關於你們稱為摩西的偉大存在的故事。這個故事是真的，而我們希望探討這個故事來讓你了解何者為可能。當摩西舉起他的手，要求與偉大的靈、偉大的造物主共鳴，海洋便開啟了。你認為這是故事，不過這是真實事件。紅海海底發現某些由轆轤所製造的物件。你們知道這點嗎？
+
+> [大天使麥達昶：以 Google 搜尋「Red Sea Artifacts Moses」這些關鍵字便能找到許多參考資訊。我們要本書讀者能成為這段旅程的一部分。我們不想要將一切端在盤子上。請成為旅程的一部分，如此一來，你將獲得更多。我們嘗試著要跳接讀者的心靈，因為當心靈開啟，就會有更多事物給予。在古老時代，整個課題都先經過消化再呈現。那已經不再有益了。在新的意識中，你必須親自參與。這就是我們現在的要求。我們要人類參與。]
+
+當你與造物主完全相應，就像耶穌那樣，奇蹟便會出現。我們請你與那一刻連結。為人改變實相，因為摩西（藉由造物主的力量）分開海洋的那一刻儲藏在阿卡莎檔案中。在那一刻，他不僅分開了凱楊。對於做好準備的人，這是解脫的一刻。你可以觸及那一刻，因為它深深銘刻於阿卡莎檔案，亦即這個星球的歷史之中。
+
+> [大天使麥達昶：你透過自己的意圖來與偉大時刻連結。在你擁有的工具中，意圖最為重要。它的力量如此強大，是來自你存在的最深處。表達自己的意圖就像拉弓射箭：它會直接射向你瞄準的地方，會前往任何它聚焦之處。因此我們說，透過意圖，你甚至能療癒過往的業報能量。對此刻的新人類而言，意圖是力量最強大的工具之一。]
+
+這是偉大時刻——是一種解脫。摩西希望教導人類的不只是由埃及獲得自由。當然，在物質層次的確如此。不過這同時也是更高層次的解脫。你現在可以在靈魂層次獲得同樣的解脫，能與時間中的那一刻連結，因為它就在大地母親的阿卡莎檔案裡。你能與那特定的一刻連結，好讓自己當下獲得自由。我告訴你，三天之內，你就會感覺到差異。
+
+我們要告訴你這一點：在歷史的任何時刻中，當奇蹟發生，造物主的力量就在現場。當你完全相信，當你的信念超越信念，一切都會記錄在地球的阿卡莎檔案裡。你可以觸及這些重大的奇蹟經驗，捕捉它們的本質，將它們帶回現在，放在你自己身上。這是我們想提供你們的禮物。
+
+讓我舉個例子。偉大的兄弟亞伯拉罕帶著匕首和摯愛的兒子上山，不過在他的心中，他對靈有強大的信念。你能否與那種信念連結並將它帶給自己？〔大天使麥達昶：這是個聖經並未記載的真實事件。這是對亞伯拉罕信念的考驗。他認識造物主。造物主如何能要求人類犧牲自己的子嗣？〕
+
+想想耶穌的力量。他行使許多奇蹟，甚至有人將那些奇蹟列成清單。你能否連結到他的本質，以自己的力量行使奇蹟？一切都在阿卡莎檔案裡，在你自己的阿卡莎，也在地球的阿卡莎。
+
+〔大天使麥達昶：在新的意識中，你擁有自己意圖的力量。當你以最純潔的意圖請求與亞伯拉罕弟兄或耶穌弟兄連結，請求分享他們的智慧和理解，這個智慧將會下載給你——意圖、請求、採取行動。你們每個人都會自己過濾出符合自己理解的指引。一旦你最純淨的意圖請求，宇宙永遠會提供給你。沒有人會被排除在外。〕
+
+我們要你與這些重大事件連結，因為透過它們，有龐大的能量和振動播種在大地裡。這些事件的經驗儲存為時間膠囊。現在你可以回溯時間，與偉大時間連結。我保證你的光將會以幾何級數倍增，變得更明亮、更寬廣、更崇高。
+
+## 擁有信念會給你勇氣
+
+2010 年，雷必須決定是否辭職。過去他從未有過這樣的勇氣。他的兒子剛出生，在職場上也有相當好的職位，薪資優渥。這是相當困難的決定。庫圖彌大師教導雷的方式是將他帶回他曾經是希臘戰士、即將為自己的城鎮出征的時代。戰爭的號角響徹雲霄。每個人都精神抖擻。雷是個高大雄壯的人，雙手分持一柄劍，準備戰鬥。
+
+庫圖彌讓他看見那是一個他擁有強韌勇氣的時代，而且他要雷培養這個感覺以便將勇氣的圖像帶回，貼入他此世的的生命。大約一星期後，他便有了勇氣向公司辭職。他的老闆很驚訝，因為他知道雷的兒子剛出生，不過雷說：「我得離開。」你可以回到自己的過去，收集自己想尋找的特質。它們都在你的阿卡莎檔案裡。
+
+你也可以回到大奇蹟發生的時代。在過去，有大量的光明和更高的創造力量下載。你可以與它連結。這樣的光可以讓你的光以幾何級數倍增。這是我們在我的神祕院所作的訓練之一。
+
+靈魂 DNA
+
+〔阿肯納頓王：神祕學院中並沒有神祕。我們了解你們為何使用「神祕學院」這樣的名詞。這些學院是針對真理的追尋者。它們是聖地，在此心志相同、追尋更高真理的人可以分享更高的學習。神祕學院仍然存在，此刻你甚至可以取用神祕學院的圖書館和其中收藏的偉大智慧，透過夢境狀態，透過塑造意圖，透過請求指導靈帶你前往那裏。我們鼓勵你這麼做。
+
+這或許不是必要的，因為這顆星球已經處在更高的振動頻率中。你已經知道我們在神祕學院所教導的許多事。不過，如果你要進一步探索，你還是會找到適用於你當前實相的智慧結晶。它們被稱為神祕學院是因為當時這顆星球的意識還很低，學生們必須先在自己的存在中準備好經驗更高的能量。他們需要前往某個地方，好讓他們能維持更高頻的振動和純淨。這些地方並未向所有人開放，因為不是每個人都準備好了。〕
+
+現在讓我再給你們一樣東西：想想那三位前往朝見偉大大師的智者。這些聰明的存在追尋著星辰和他們的直覺，而他們在尋找之後也見到大師了。不過，這三位賢士（magi）代表了什麼呢？賢士為魔法師（magician）。我們要你連結那個事件，亦即三賢士前往朝拜聖嬰。當你開始與賢士連結，你將會開啟自己的直覺理解，不管是所發生的事、你需要知道的事、或是如何開始做自己需要做的事。
+
+他們將這個禮物留給世人——探索和直覺理解的禮物。他們不是唯一這麼做的人。看看四、五百年前的探索者吧。他們遠渡重洋，只憑藉著觀察白天的太陽和夜間的星辰來決定方向。
+
+## Chapter 11 清理並淨化你的能量
+
+這樣的知識存在，是大地母親的阿卡莎的一部分。如果水手辦得到，你也可以。利用陽光、星辰、月亮來探索自己的生命。你們全都辦得到。我們要你開始將片段連結起來，尤其是那些特殊時刻。你會看到自己的生命大大擴展。你會得到完整的知識，知道如何勾勒自己的生命，並且以自己的方式找到神。這是你的靈魂對此世的你最大的遠景。
+
+首先，我們希望你能連結並運用自己心中最感共鳴的事件，亦即歷史上有大量光明下載的特定時刻。這些是我們所傳授的訓練。其次，我們要你與偉大的賢士合作，因為他們能開啟探索新觀念核心創意的能量，讓你規劃以自己的方式找到神的路徑——不是以你的人格以為的方式或是你一直使用的方式，而是以更偉大、更深刻的方式。
+
+> [阿肯納頓王：這些訓練永遠不會被給予，除非你在靜心中提出要求。讓你自己準備好要領受它。準備你的身體、心靈、靈魂，以便領受更高的智慧，因為，你們也知道，時間不多了。即使分開紅海此刻都在另一實相內發生。我們可以取用那個實相並感受那一刻的本質，因為所有時刻均同時存在。]
+
+## 是的，在第五次元。
+
+我們不要用某個名字來稱呼這個次元。所有實相均同時存在。如果你能開放，你便能連結許多其他實相。你可以在地球層面上觸及更高層次的真理，你也可以觸及自己的揚昇自我。請記得，這本書不是給嬰兒讀的。我們不願像餵養嬰兒一樣餵養諸位讀者。這本書的預設讀者是準備進入自己生命的下一進化階段的人，是針對準備好在進化中進行量子跳躍的人。
+
+現在我們開放提出與 DNA 相關的問題。
+
+## 死亡創傷會如何影響DNA
+
+當我們離開這個世界，DNA 會自動拍攝死亡的剎那，那些恐懼、創傷或所經歷之一切的片刻。那會對 DNA 有什麼影響？
+
+DNA 永遠是完美的。DNA 只是指導手冊，所以那是兩件分開的事。DNA 永遠保持完美；它就是完美的。
+
+你離開這顆星球的方式會對下一世生命有重大影響。如果你有關於恐懼的意識，那麼在下一世你將不會傾向省視自己的靈性。在任何一世生命，你都會帶回自己所學到的一切。不過你必須先打開衣櫃。由於另一世生命結束前所發生的種種，你或許根本不傾向於開啟衣櫃。所以你的 DNA 只是保持既有樣貌，什麼也不做。DNA 永遠都是完美的。
+
+## DNA的更高次元層面和甘特拉脈輪
+
+## DNA 是否存在於第五和第六次元？
+
+當然，DNA 存在於所有更高層次。它的形狀幾乎就像無限大的符號。
+
+我們談過第二十四個脈輪。當時有人問第二十四個脈輪的名字。那個脈輪的名字是「甘特拉」（gantra）。想像有許多顏色的光在你的頭頂上方流動。最上方的一個就是第二十四脈輪。來自這個脈輪的光撒落在你四周，你在這些光之間或坐或站。這個脈輪只能藉由大師的協助來活化。我們要你呼喚自己覺得適合的任何大師來活化這個脈輪。我是阿肯納頓。
+
+> 〔大天使麥達昶：只要人帶著最純淨的意圖和對自我覺醒最純淨的愛來請求，整個宇宙都會聽你號令。如果你不請求，什麼也不會給你。最簡單的真理是，如果你不敲門，門就不會開啟。當你請求，當你準備領受這更高的真理，自然這個能量就會下載給你。
+
+留在你的星芒場（astral field）——你的能量身。只有時機到了才會顯化，當你準備好讓自己的心靈理解並讓它成為實相。更高真理也是如此。如果學生尚未準備好，任何數量的更高真理都不會有任何差異。做好準備，新的實相就會出現。運用偉大的瑪哈特瑪的能量，此能量非常高頻。我們鼓勵你好好研究它。〕
+
+## 淨化靈魂
+
+我是麥達昶，要來談談 DNA 活化。若要活化 DNA，你的意識扮演主要角色。淨化自己的意識是絕對最必要的事。做法是，心裡想著要淨化你的能量場。不過你必須也要淨化你的靈魂能量。〔大天使麥達昶：要這麼做，請與更高次元的大師合作，尤其是掌管第八到第十二道光的大師。你可以要求他們與你合作來淨化你的靈魂，因為你的靈魂會由日常生活、信念系統、文化互動、成長過程、雙親和來自其他人的思緒投射而取得各類殘片。
+
+所以最好能每隔三到六個月請求靈魂淨化。在更高的層次上，你的靈魂是純淨且完美無暇的。不過你的靈魂也有許多層次。要請求高頻的光淨化你靈魂的所有層次。〕
+
+許多過去經驗的回憶可能都如同塵埃附著在你的靈魂上。呼喚任何你希望合作的大師來淨化你的靈魂能量，或者你可以呼喚我，麥達昶。這個練習稱為「淨化靈魂」。請規律進行這個練習。
+
+有許多大師都能幫助你淨化你的能量場，不過納達女士（Lady Nada）專精於療癒並淨化靈魂能量。每個月或每三個月一次，記得與納達女士或任何其他大師合作，並且請求協助來淨化你的靈魂能量。
+
+[大天使麥達昶：當你導入更高的能量，將之與自己的能量結合，你便會體驗到意識的提升。每一天，你都在日常生活中吸取能量。最好能每十五天進行淨化，尤其是如果你電視或新聞看得很多的話。你會吸收到許多會影響你的思想形式。
+
+在古時候，啟蒙者會被要求獨居，遠離人群。人們會投射自己的思想形式在你身上，如果你不夠堅強，你就會吸收到這個能量。淨化只是能量的混合。納達女士的能量是美麗的粉綠色光。呼喚她並吸入這樣的能量。觀想你的心與她的心以你自己的方式、用你自己的想像力結合。你會感覺到一道美麗的綠色帶點金色的光。將它吸入。塑造意圖，希望一切不屬於你靈魂真理之物都能清理並淨化。請進入這個空間。納達女士專精於靈魂淨化。]
+
+你也可以請我和其他大師幫助你進入造物主之光的更高頻振動。每一天，請求造物主之光的更高層次。
+
+> [大天使麥達昶：請求更高頻振動的造物主能量能下載給你，要比你前一天所接收到的更高，因為造物主也在擴展。萬事萬物均在持續擴展。所以每天或者你覺得適合的時候都要請求更高頻的振動。這些都是你必須使用的新技巧。]
+
+現在有人想提出問題嗎？
+
+## 時間鎖和時間膠囊
+
+能否請您解釋何謂時間鎖（time lock）？
+
+時間鎖很單純，只有滿足某些條件時它才會開啟。某些特定的振動需要發生，只有那時它才會開啟。這就像時間膠囊，不過後者是在特定的時間——例如 2015 年——它會開啟，不管發生了什麼事。時間鎖只有在某些振動發生時才會開啟。不然，它就不會開啟。其條件就是較高的意識。
+
+## 水
+
+我們如何控制自己身體裡的水？主艾許達問我們是否能以振動方式控制自己身體裡的水，還問我們是否能將身體裡的水調整到更高頻的振動。
+
+要知道你有超過百分之 75 的水？水的真正目的是擴展。水的特性就是能夠擴展。它並非只是為了淨化。水的特性能幫助你記起自己是誰。你可以有意識地傳送能量到你身體內的水以及你所飲用的水。請求水發揮並表現其真正本質。水的真正本質就是擴展並幫助你開啟以接納自己真正的藍圖和出生的真正目的。
+
+## 我們的意識和水是否有連結？
+
+當然。水在身體阻塞會如何呢？你會成為阻塞的人，無法開啟。要不要有意識地淨化你體內的水呢？假設你要喝一杯水，請說：「我塑造意圖，要這水在我體內循環，幫助我記起自己真正本質，亞當·卡德蒙（Adam Kadmon，神人）密碼，記起我出生真正的目的。」當你飲下這杯受到祝福的水，這會在你全身循環。每天都要運用水，你將在自己的生命中看見奇蹟。無論何時，只要你向水道謝，水的分子就會改變。
+
+> 〔大天使麥達昶：控制並淨化體內的水是透過思想和意圖。當你設定意圖，這會影響你體內的水。你的身體有百分之80的水。江本勝博士（Dr. Masaru Emoto）²拍攝了水的照片，搭配美好的音樂並且對水說愛的話語。水形成了美麗的水晶。但是如果使用了虛假的字眼、說謊、或散發出不是愛的能量，水分子就會變形。那樣，你那百分之80是水的身體又會如何？〕
+
+那麼，你的情感和你的心智中的思緒呢？你對自己體內的水做了什麼?即使你身體外的水都會因為疏忽或傷害的字眼而改變。那麼你每天透過批判、批評、自我貶抑而為自己所創造的話語呢?這難道不會改變你體內的水的意識?要提升自己的意識和DNA,水都是非常關鍵的因素。
+
+2 原註：江本勝博士為日籍作家與企業家，他曾表示人類意識會作用在水的分子結構上（http://en.wikipedia.org/wiki/Masaru_Emoto）。
+
+## 所以水會儲存我們的意圖和思想?
+
+是的,而且它會擴展。此外,水也儲藏你的藍圖。不過,這裡說的藍圖並不是你靈魂的目的或你為何出生。這是你真正原始的亞當·卡德蒙密碼的真正藍圖。從現在開始,不要只專注於揚昇或增加自己內在的光,儘管這非常好;你還要連結到你真正原始的亞當·卡德蒙密碼。
+
+## 可否請您解釋亞當·卡德蒙密碼?
+
+真正的神人類。〔大天使麥達昶:能夠以善意共同創造的能力。〕
+
+## 所以我們每個人都有嗎?
+
+當然。所以我們要你做的是別將自己的焦點侷限在揚昇。要進入泉源本身。與你存在的泉源連結。回到你所連結的星辰。
+
+〔大天使麥達昶:只要請求就能做到這點。你的泉源是美麗的更高自我,是你的靈魂。每天與你的靈魂合作,要養成習慣。你在日常生活中怎麼交朋友?假設你遇到某人,交換了電話號碼。或許你們幾天後開始溝通,接著越來越頻繁。你或許會邀請他們來你家。人們會培養友誼。同樣的，從你所開始的開始建構。
+
+記得要每天與你最好的朋友——你的靈魂——溝通。如果你不關懷自己的靈魂，你的靈魂當然也就不會真的在乎。記得要每天這麼做。〕
+
+## 胚胎狀態（embryonic state）？
+
+正是。
+
+## 我們來自星辰；那是我們的連結。
+
+一切都來自星辰。
+
+## 星辰元素，我們的星辰能量，我們的星辰密碼——這些就是我們存在的泉源？
+
+這是你存在的真正泉源。那是我們要你運用它的方式。前往你的泉源。
+
+## 在潛意識和細胞層次改變意識
+
+我們如何對自己的細胞說話，藉此帶來正向的改變，跳脫那些來自任何一世生命、如今已潛藏在潛意識和細胞內的疾病或缺？這就像個錄音或節目？
+
+這是真的。但這並不容易。許多人試著每天對身體的細胞說話。這些稱為身體交談（body talk）。不過，你也知道，這成效不彰。修練這點有許多層面。首先，你的身體必須願意接受。觀察如何讓自己的身體願意接受。第二點是淨化身體。淨化可不只是洗澡。
+
+人類全都是由來自過去的程式——你的潛意識心靈、你的無意識心靈——所運作。因此愛西尼人如此重視自己的潛意識心靈。他們說真理發生在潛意識心靈。所以如果你要自己的身體在你對它說話時願意接受，請將這種身體交談的程式輸入你的潛意識心靈。
+
+> [大天使麥達昶：潛意識心只是導引出經由你的思想程序所放進去的種種。如果你想要任何事物由你的潛意識而具體化，那麼請將你希望發生的事物放進去。潛意識心靈不會區分好壞、美醜。它只是將落入其中的事物導出。多數人的潛意識心都充滿著恐懼、控制慾、自我感、還有其他來自過去、沒有幫助的事物。多數人都只透過自己的潛意識心生活。]
+
+你想要忠於自己最高藍圖和生命任務嗎？請以偉大的光來淨化你的潛意識心。你融入更多高頻振動之光的那一刻，你的潛意識心就會越來越清理和淨化。請求更多的光傳送到你的潛意識心，觀想它一層一層淨化。
+
+你的潛意識心會更快回應，只要你在其中放入圖像。因此人們才會說一張照片可抵千言萬語。圖像會銘印在你的潛意識心，而且圖像可以具體顯現。當某個圖像完全進入你的潛意識心，它會滲入你的意識心和你的意識實相。請經常修練並規劃你的潛意識心。
+
+有個簡單的練習：頭往後仰，讓頸部向前，閉上眼睛，觀想你希望發生的事；不是你生命中正在發生的事，而是你希望發生的結果。這個練習要做五分鐘。頭往後仰一點，讓頭靠在你的肩膀上。每天花五分鐘，盡可能清晰觀想你希望創造的完美結果。這可以支持你。］
+
+你的細胞會聽到你說的一切。
+
+## 是的，還有你所想的一切。
+
+正是，而且它們能將它導引出來。這個改變必須發生在細胞和潛意識層次。如果你想改變，請修練潛意識層次。讓我舉個小例子。你們都知道自己已經來到第五次元實相。不過你們許多人仍在第三次元實相運作，因為你們仍不相信自己是第五次元存在。
+
+## 我們多半感知到發生在自己四周的事。
+
+的確。如果你想去除世界矩陣，首先你必須改變自己心中的矩陣，接著改變矩陣的能量。所以請朝這一點努力。
+
+> 〔大天使麥達昶：矩陣就是這顆星球上所有人類的意識和無意識心的能量。矩陣的基本天性就是恐懼。只要恐懼存在，就會有控制慾。只要你很脆弱，那麼陷入這個矩陣是很容易的，因為矩陣的能量很強。它其實甚透著整個星球，人類則像海綿，很容易接收這些能量而毫不自知。
+
+在歷史中，許多大師都是單獨一人，因為很容易受到四周人的能量所污染，所以它們停留在自己的能量中。現在矩陣的能量因為媒體而變得更強。所以你必須對這種能量提高警覺，注意它如何影響你的潛意識心。
+
+讓我舉個例子。2013 年 4 月，波士頓馬拉松賽發生爆炸案。你的國家當時還發生了許多美好的事，可是媒體卻絲毫不停地反覆報導爆炸案。
+
+是的。所以這影響了每個人的矩陣。我了解你的意思了。
+
+這影響每個人的潛意識心，創造恐懼。今年（2014）這場馬拉松賽是否還有同樣的歡欣感覺？
+
+幾天前我在銀行和一位女士聊天。因為媒體不停報導失蹤的馬來西亞航空班機，所以她很害怕飛行。她一直說，我告訴她說人在飛機比在車子裡安全多了，但是她是如此充滿恐懼。
+
+這就是我們所說的。矩陣控制著人類。如果你喜歡看電視或使用網路，它們對你的影響就遠超過你自己所以為的。你沒有意識到自己正持續吸收著來自他人的能量。
+
+## 所以處理矩陣代表控制自己接觸的媒體和吸收的內容？
+
+不僅是來自媒體。你必須覺知自己由所有事物——包括媒體——所吸收的能量。人類的本質就像海綿。他們持續吸收來自他人的能量。你必須每天練習淨化自己吸收的能量，就像刷牙洗澡一樣。要每天淨化你的能量場。要這麼做，你只需請求獲得清理。]
+
+在身體濕潤時與它溝通也很好。因此亞洲的人會在水珠落下時進行晨禱和靜心。在身體濕潤時，細胞會更加開啟。
+
+〔大天使麥達昶：你可以在浴缸裡試試。站進裝滿冷水的浴缸。那時你會非常敏感。你的情緒高昂，你處在更加敏感的狀態。當你與自己的細胞溝通，這樣的溝通是來自你感覺的最深處。比起其他時候，細胞這時會更清晰地獲得訊息。自己實驗看看，你將看到這對你是否有用。〕
+
+## 所以細胞與水有很深的連結？
+
+就像手和手套。
+
+## 它們和水是一體的。
+
+正是。你和水是一體的。你知道為什麼？有十個月的時間，你是能在水中呼吸的生物。你來自水——母親子宮內的水。這個水曾是你的生命，是你與泉源的連結，是你的食物和滋養，更是愛的商數，後者最為重要。
+
+你一出生，你就成為空氣生物。你與水的連結立即被切斷。你將魚帶出水面會怎麼樣？它會死去。
+
+想像一個孩子離開水，突然被空氣包圍。想像嬰兒心中感受的創傷。共有三種創傷。首先，你穿過產道；接著，本來是水之生命的你突然進入空氣之中；最後，你與泉源的連結被切斷，脫離了給你生命、支持、滋養的母親。
+
+我們必須針對這點進行療癒。分離意識正是從這裡開始。「將生命氣息帶給我的人突然從我身邊帶走。愛我的神在一個分開的地方。」
+
+〔大天使麥達昶：這句話曾經多次為人所引用。人們以不同方式說這句話，因為所有人類出生時都感覺到某種連結的斷裂。給我生命的靈魂不再陪伴著我。〕水便是泉源。
+
+## 這種創傷和缺憾是否記錄並記憶在我們的細胞和 DNA 內？
+
+是的，就在你的基因和能量場內。所以運用水。它真的可以行使奇蹟。在喝水時，請對它說話。請求水給予，因為這是水的天然功能。水會開啟並擴展。記得，水連結著你和你真正的泉源。
+
+最好的水是來自地下水源的水，要直接出自大地。要取得泉水可能蠻困難的，但是如果可以請使用泉水，因為其中包含最純淨的本質和許多磁性礦物能支持你的身體。
+
+## 我們如何在細胞層次轉化意識？
+
+只要你的潛意識心出現意識轉化，並逐漸滲入你的意識心，那麼你的細胞自然會有更多的光。所以我們要你修練自己的潛意識心，因為修練終將腐朽的身體容易許多。你所知的情緒乃是處於動態的能量，你也能控制它們。你能夠選擇。今天你想經驗什麼樣的能量：高頻能量或較低能量？情緒是行動中的能量，所以你可以將這股能量移到你想移去的地方。
+
+〔大天使麥達昶：在細胞層次轉化意識的簡單方式就是注意自己攝取的食物。如果你持續食用振動較密集的沈重食物，你的細胞就得超時工作來吸收這些食物。它們沒有時間放鬆並帶來更高的意識層次。如果你的心智持續專注在密度較高的思緒，同時你還攝取高密度的食物，那麼你的細胞就得加班。此外，聲音、神聖幾何、美麗的畫作都能支持你，因為它們的能量會跨越你的腦部並直接進入你的細胞。]
+
+要療癒心智身並讓它獲得控制要難上至少百倍，因為心智身完全受到你曾經有過的所有思緒經驗所控制。我們談的是數百世生命。此外，心智身有如此龐大的恐懼，這是來自所有發生過的事。儘管這些事不會記得，但它們仍深深銘刻在心智身。
+
+心智身只能透過更高的光來轉化。要達成這點最簡單的方式就是修練潛意識。愛西尼人獲得特殊指引，讓他們每天規劃他們的潛意識心。如果你能改變潛意識心，你便能改變外在實相。
+
+約瑟·莫非博士（Dr. Joseph Murphy）教導潛意識心的力量。改變你的潛意識心，就能改變你的實相。我們要你閱讀《你的潛意識心的力量》（The Power of Your Subconscious Mind）。他談到潛意識心，解釋它有多麼重要。它會創造實相。潛意識心就像一塊田地；放什麼進去都會生長。請想像你幾千幾百年來不停放進去的东西。能量永遠會留在那裏。一旦能量創造出來，它便需要完成或轉變。
+
+## 記得我們真正的身分
+
+我想問問關於我們對自己更高自我執著的記憶。在我們幾歲大時，它會完全逝去。關於這點的記憶儲存在無意識網格（grids of unconsciousness）之內。我們該如何扭轉這個狀# Chapter 11 清理並淨化你的能量
+
+這個問題有兩個層面。嬰兒出生時，在最初幾小時，嬰兒完全能覺知自己真正的身分。後來，嬰兒仍然保持覺知，但已經不到最初的等級。接著，慢慢地，大約在三歲左右，小孩開始忘記自己真實身分，開始更融入日常生活和環境。
+
+讓我請問各位，如果你完全覺知，你還會做你來這裡要做的工作嗎？你是否會完成你規劃的挑戰和職責？如果你知道自己生命所有的答案，還有樂趣可言嗎？
+
+沒有了，那才是學習和成長的挑戰。
+
+正是，這也造成大地母親的轉化。如果你沒有任何生命課題，如果你記得一切，你就不會來到這裡。你根本無需出生。所以一切設計就是要你忘記，這樣你才會回來工作。透過這點，你汲取了更多的光，也幫助了地球，因為你的進化直接連結著大地母親的進化。
+
+不過此刻，由於大地母親已經進入更高的實相，我們也隨著那個實相而轉化。透過修練自己，專注在自己身上。你會增加光明，你會記起更多關於自己的事。如果你回到自己剛出生的時候，你會記起更多自己，因為那個嬰兒清楚知道自己的身分，完完整整。
+
+也是因為如此，我們總是要你回到阿卡莎檔案。每個導師都談到能夠閱讀並理解阿卡莎檔案是很重要的。這是最大的關鍵之一。它記錄你曾有過的每個關鍵經驗，包含出生時你真實身分的完整記憶。還有任何問題嗎？
+
+## 靈魂 DNA
+
+我正從碳基生命轉變為矽基生命、水晶生命，這是記憶重整的過程。這種以矽為基礎的狀態是存在於我的肉身或是另一個身體？它是否會幫助我更記起自己是誰？
+
+這是發生在物質身體上。
+
+## 呼喚伊洛希姆淨化舊有能量模式
+
+你們所有人現在可以呼喚偉大的伊洛希姆（Great Elohim）。在靜心時，呼喚他們重整你的心靈。請他們去除你帶了好幾世生命的能量模式。你或許會有幾天時間經歷健忘的狀況。
+
+〔大天使麥達昶：在入睡之前呼喚他們，請他們重整你思想形式的能量。思想就是能量。即使精細思想的本質也是能量。如果你一再想著同一件事，那樣的能量便會深深嵌入。請他們去除目的已結束或已經完成的能量。請他們沖洗你的潛意識心。他們會做的。
+
+還要請他們用黃金真空（golden vacuum）來淨化你的心與潛意識心。觀想這個真空將你潛意識心中任何不屬光明之物吸掉。請他們以振動能量重整你的潛意識心、你的無意識心、還有其他種種，去除你不再需要或與地球新的意識不相容的一切。
+
+你會明白這多麼有效。你或許不像過去一樣記得那麼多，其他事物也不再像以前那樣充滿情緒張力。你可能會感覺有點放空或健忘，不過這只是暫時。所有正向的事物都還留著，只有負面事物會被去除。請求所有負面能量和所有已經完成的能量被去除。你會想留下善意的能量。這些都可以在你睡前完成。〕
+
+這些陳舊的模式不會支持你走向此刻你想創造的新方向。例如，假設你有個生命課題是要療癒健忘。你已經完成這個生命課題，但是其能量仍留在你的記憶中。伊洛希姆所做的就是去除那個能量的記憶。在睡眠時間與伊洛希姆合作可以完全重整你的腦部和心靈，並且在更高次元新實相的創造中，去除那些不支持你的所有心靈能量。
+
+## 信念和奇蹟
+
+療癒你的過去會幫助你理解信念和奇蹟。當耶穌命令奇蹟發生，你認為他會懷疑結果嗎？他從未懷疑。當他有這個意圖，他讓自己的意識和造物主的意志相應，在那一刻徹底相應，好讓所需的一切完成。他只是張開雙手，奇蹟便來到。每部經典都談到要有信念。所以你必須擁有信念，相信自己終將解開所有密碼，並且與內在的亞當·卡德蒙密碼連結。
+
+在埃及考姆翁布（Kom Ombo）的神祕學院，啟蒙者必須在充滿鱷魚的水池下方游泳。〔大天使麥達昶：如果你在 Google 上鍵入「swimming with crocdiles at Kom Ombo」，你會看到更多來自不同源頭、關於這個修持的資訊。那裡甚至有一座博物館收藏鱷魚的木乃伊。〕這些鱷魚都餵飽而且下藥，不過啟蒙者並不知道。他們必須游過小小的開口，許多人都在過程中因為心臟病而死亡。相信鱷魚也是造物主因此不會傷害他們的人都能活下來。鱷魚也是偉大導師的一部分。啟蒙者知道他們創造之源也是這些偉大生物的泉源。
+
+接下來這個梵咒乃是大師們所傳授，是要協助並強化信念，同時能克服基於恐懼的經驗，此梵咒為：「Ee tel om Ra」³。〔大天使麥達昶：此梵咒意思為：「我是永恆的靈魂」，這些古埃及文也意味著「我取得自己內在的力量；我取得我本即是的神。」〕這個梵咒會幫助你擁有偉大的信念並克服恐懼，特別是在靈性啟蒙的過程中，不過這對你的日常生活也很有用。
+
+很高興我們能與你們這樣護持這麼多光明的生命交談。與你們共度時光一直是非常偉大和喜悅的經驗。所以我們要為這個機會向你們道謝，因為當你們增加光明，你們也增加了我們內在的光明。這確實是彼此共享的夥伴關係。
+
+大天使，您在恭維我們嗎？〔笑〕
+
+為什麼你們不能接受恭維呢？我們要你開始肯定自己。你們全都是世界上重要的玩家。千萬不要自我貶抑，千萬不要將我們供在神壇上朝拜。當你尊崇自己，你便尊崇我們。我們是你們的一部分，一直都是。
+
+3 譯註：聲音接近「欸·去\嗡·日啊」。
+
+## 儲存飲用水
+
+試著將你的飲用水以陶罐儲存，可能的話最好是手工製作的，並且在四邊全都畫上無限大的符號。陶罐底部畫上生命之花的圖案，並且將這個陶罐放在白金、黃金或白銀錢幣上。試著將它裝滿你第二天會用到的水。這樣的水將會有更高的振動能量——大地母親的能量加上靈的能量——平衡地注入父/母造物主的能量。我們也建議不使用時將陶罐蓋起來。這可以給你很大的支持。
+
+過濾和化學物質都會去除水的純潔和真正本質。如果你喝這樣的水，你就無法記起自己是誰。如果你不記得自己是誰，你便會打開自己受人控制。這就是人們保持被控制狀態的原因。
+
+所以試試將你的水放在陶罐裡。用你自己的手畫出生命之花的圖案。不需要畫的完美，重點是你作畫過程背後的意圖。這個陶罐最好放在銀色的錢幣或銀製墜飾上。如果你能使用純金，那也很好。如果不行，可以使用金色的金箔。將水靜置一夜。這樣的水會獲得高度淨化並充滿高頻能量。
+
+我都喝本地的泉水。每個月送水一次，存放在塑膠瓶裡。
+
+那麼請將水倒入陶罐裡。
+
+然後由陶罐取用水嗎？
+
+正是。因為此刻，你們全都在修練自己，希望讓自己更加記起自己真實的身份。這個儲存水的方式相當有益，能支持你的這個修練並給你滋養。
+
+## 三個與水相關的修練
+
+如果你家中有浴缸，請將它裝滿熱水〔好像你要泡澡一樣〕。踏入熱水中，慢慢觀想自己越來越小，慢慢回到自己還在母親子宮的時候，感覺你母親的溫暖。你正在母親的子宮裡，也在大地母親之內，沈浸在這美好而溫暖的液體之內。
+
+隨著呼吸將大地母親和你自己母親的愛吸入。停留在這個空間一段時間，這會幫助你記起自己擁有過的愛，將會自然擴展你的愛。你將會感覺很好。
+
+以下是另一個練習：在浴缸裡，雙手捧起一杯你用來沐浴的水，最好是冷水。向它吹氣三次，接著將水由頭頂淋下。你正為自己進行洗禮。洗禮真正的意思是什麼？它會去除另一層幻覺。你可以自己進行洗禮。
+
+第三，假設你心中有什麼事情卡住，無法放下。進行淋浴，甩甩自己的頭髮。這是英國偉大的德魯伊導師們教給耶穌的。盡可能甩動你的頭髮。你將能將卡在自己內在的強大能量抖落。
+
+你的頭髮就是天線，它們也攜帶著記憶。當你剪頭髮，記憶就消失了。因此佛教徒出家要剃髮。他們的頭髮沒了，因此有了新的身份。
+
+## 淨化你的意識和切斷能量鎖鍊
+
+## 我們的長處和短處是否真的會影響每個進入我們溝通和意識場域的人？
+
+當然，而且影響很大。你與他人共有的經驗從「我們」一詞開始。當你一見到某人並形成某種評斷，此時請記得你正在傷害自己內在的某人。不要有評斷。你必須來到一個沒有評斷的所在——沒有好也沒有壞。一切都是經驗，僅止於此。
+
+## 我們的能量會影響自己身邊的其他人，特別是當我們心情不好或憤怒時。
+
+當然，有非常大的影響。這從何開始？記得，在你出生時，你是個水的生命。接著你成為空氣的生命。在這段時間（出生時），嬰兒的心中有很大的恐懼和混亂。孩子〔在子宮時〕經由臍帶知道自己擁有很大的支持、愛、滋養。在出生的恐懼和混亂中，嬰兒會將能量鎖鍊連結到身邊的每個人，包括醫師、護士在內的所有人。
+
+多數人類（醫師和護士）都不平衡。那裡並沒有愛。嬰兒會立刻接收那樣的能量。人類一生會創造超過一千萬條能量鎖鍊。能量一創造出來，便需要完成。因此人類無法脫離轉世循環，因為能量需要完成。所以我們必須切斷能量鎖鍊。
+
+因此維護自己的能量場非常關鍵。你必須淨化自己的能量身。你應該說：「今日我經由自己的思緒和經由我與他人的經驗與互動所收集到的種種能量，其中任何不屬於愛亦不屬於造物主最純粹的愛的部分，我此刻要完全切斷自己與它們的連結。」當你開始每天進行這個練習，去除並淨化，那麼你便能回到過去的經驗並切斷那些能量鎖鍊。接著你就能連結自己正向、高頻振動的自我。
+
+此時，面對你一生中每個曾與你共享負面經驗的人，並且切斷與他們的能量連結。只和悲傷、負面的經驗切斷連結，保留正向的部分。等到你開始這麼做，你會變得更加清晰，更加自由。你會在生命中感到自由。
+
+你可以呼喚自己的指導靈、造物主、或存在的金色光芒前來，切斷你與特定的人、特定的時間、或其他任何事物共同擁有的經驗。這便稱為淨化。當你開始這麼做，你會感到如此自由。你要在四個小時內這麼做。〔大天使麥達昶：在事件發生的四小時內，請求金色光芒降臨並讓你脫離剛剛度過的經驗。〕細胞需要四小時才能完全收到訊息，因為那是能量銘印的一部分。這不會成為你業報能量的一部分。
+
+想著所有你在數千世生命中曾經歷過的事。你可以透過這個簡單的技巧、藉助於造物主切斷連結能量的金色光芒來清除它們。
+
+有個關於聖地的問題：人們帶著自己的問題前往某個祭壇，不管他們是悲傷、憤怒或帶有任何負面的意圖。這些能量是否會停留在那些神聖的地方？
+
+雷被要求前往許多神聖的地點並淨化能量場。當人們前往那些地方，他們期望獲得療癒或看見奇蹟，但並沒有，所以他們感到拒絕或悲傷。這些全都儲存在那裡。你所行走的大地會儲存你的能量。你攜帶著什麼樣的能量呢？貪婪、憎恨或恐懼？全都會進入大地。你必須淨化自己在大地的能量場。開始與所有能量切斷連結。
+
+例如，你可以說：「我呼喚造物主（或任何神）前來讓我脫離這塊土地所蘊含並且在潛意識深處影響著我的能量。」或者你可以請求指導靈協助將能量密碼放回大地。你也可以請求生命中的好事——富足、創造力、愛——來支持你。這是非常重要的工作。這個過程從子宮開始。嬰兒一出生，由於生育相關的創傷，因此便會開始傳出能量。
+
+## 剛剛出生的嬰兒和同一個人經過七十年之後，DNA 是否會有所不同？
+
+DNA 永遠完美；受到影響的是基因和意識。如果你因為自己創造的前世而經歷高度創傷的誕生過程，這便是你新的實相。你會由前世帶來能量；這會成為你基因和生命經驗的一部分。你無法創造更高意識，除非特別為此而努力。
+
+很多時候，由於生活環境，人們只能以生存模式活著，根本無法思考更高的事物。在印度、蘇丹、非洲，這是個很大的問題。人們困在生存模式中，臨死前，他們心想：「我恨這一生。」他們帶著同樣的意識回來，因此一再重複這個模式。當他們處在那個模式，他們還能想著更高的意識嗎？甘地曾說：「對於一個肚子空空的人，你無法教導神。」這正是許多人生活的方式，即使現在也是。他們處在生存模式。
+
+DNA 永遠完美，不過對基因的影響很巨大。舊有的模式會一再重複，需要無比努力才能跳脫這個循環並開始聚焦在更高實相上。
+
+## 與業報委員會合作
+
+人們需要知道如何與業報委員會合作。業報委員會現在已經獲得許可能繞過許多業報能量。你可以有意識地在靜心中請求業報委員會改變特定能量——如果你感覺悲傷或沮喪——所以你不需要持續有這個經驗。你們所有人都有能力和理解來與這些存在合作，包括業報委員會、伊洛希姆、蓋亞。與它們合作，就能獲得許多療癒。
+
+當你更加清晰，你會開始開啟自己的容器。你會收納越來越多的光，因為你已淨化自己舊有的能量鎖鍊。你的容器不再是空的。你怎麼知道自己變得清晰並擁有更多的光？其他人就是你的鏡子。
+
+假設你看到某人，你的反應是想著「這個人自我感很強」。當下你的自我感就會在你內在啟動。如果你沒有自我，你就不會有這種被他人啟動的經驗。一切都是我們內在一切的反映。
+
+當你完成很多清理並療癒，你的容器就會容納越來越多的光。偶爾你或許會爆發，不過你立刻就會知道「這不是我」，你將知道要立即將自己帶回實相。每天切斷能量鎖鍊讓你可以護持光的高頻振動。
+
+我是麥達昶。與你們所有人連結帶來很大的喜悦，所以我們想感謝你們。我們想說：我們真的很愛你們。現在我們要傳達一個來自偉大大師山納·庫瑪拉的簡短訊息。
+
+## 消除死亡銘印
+
+我親愛的存在，我是山納·庫瑪拉。很長一段時間，我一直擔任星球守護者。儘管某些角色已經轉變，我和其他人都守著這個星球完美的銘印，也守著每一個人類的完美銘印。所以在靜心時呼喚我並且請求你的完美銘印，因為我是管理人。
+
+最近，巴巴吉建議雷應該請求消除他為此世生命的死亡所帶來的銘印，藉此延長壽命。我們要請你們也這麼做。每個人都帶了大約四到七個死亡、瀕死或千鈞一髮的銘印。這些出口點都是你們帶入自己物質身體的銘印。記得請求針對此世的死亡銘印能被消除。
+
+> 〔大天使麥達昶：你要在靜心時這麼做，透過意圖和要求。這些都是新的工具。你必須請求新的工具安住到你的內在。接著你便能說：「我呼喚我的指導靈來支持我成為這個新意識中的新生命，我也請求我所攜帶的、屬於舊有契約的任何出口點能在此刻消除。我意圖要開啟內在的新契約，準備新的時間軸。」〕
+
+接著呼喚我來融入最真實的藍圖。我為我內在的每個靈魂護持著藍圖，讓銘印完美。我會將它疊放在你身上。這是我給予諸位的禮物。我是山納·庫瑪拉。
+
+## Chapter 12 運用額外的DNA層次以成就揚昇
+
+2013年8月16日
+阿達瑪、庫圖彌大師、聖母瑪利亞、水晶頭顱、主梅翠亞
+
+我是阿達瑪，來自陶樂市（Telos，地心文明），歡迎各位來到陶樂市這塊偉大的土地與其城市。這裡有許多內在療癒神殿，我們邀請各位盡可能經常來拜訪它們。這些神殿有些守護著神聖火焰。當你拜訪這些神殿，你自然會提升自己的意識以活化 DNA。
+
+我們邀請諸位前來這些神殿，特別是神聖火焰神殿（Temples of the Sacred Flames）。〔大天使麥達昶：地心土地有許多神殿能支持人類，有許多神聖火焰的神殿。這些火焰是由造物主所設立，由揚昇大師和天使存在所護持。你能拜訪這些神殿並且以這些火焰來淨化自己。這些神殿專門淨化。我們鼓勵你在睡眠中前往這些神殿。做法如下：在靜心時如此請求，表達自己意圖前往特定火焰的神殿。〕
+
+我們鼓勵你前往身為瑪哈·霍汗的威尼斯人保羅（Maha Chohan of Paul the Venetian）的神殿並且與他合作。〔大天使麥達昶：當你從心中塑造意圖，希望前往這些療癒之所，你便會由指導靈帶你前往那裡。更詳細的資訊，請參閱奧瑞莉亞·盧意詩·瓊斯（Aurelia Louise Jones）所著的《七道神聖火焰》（The Seven Sacred Flames）。瑪哈·霍汗是偉大的大師。你們所有人在某一世生命中都曾經是其中一道神聖火焰的學生。〕他結合了水晶薔薇火焰（crystal rose flame）和相應的振動。另外你還可以與威尼斯人保羅合作，以便支持心輪的完全開啟，特別是配合水晶薔薇火焰的協助。
+
+你們全都知道自己需要認識上帝之光，不過另外還有七道神聖火焰，你們需要與它們結合來達成揚昇。我們感覺運用第三道火焰，亦即愛之火焰，是非常關鍵的。我們鼓勵你們，在每晚入睡之前，要設定意圖去拜訪這座神殿並呼喚威尼斯人保羅這位大師。
+
+你們正處在非常神聖的時代，新的歷史正在這個星球上形成。我們想簡短談談 DNA 的不同層次。你們和蓋亞的 DNA 層次相應。你們的 DNA 還包括太陽等級、銀河等級、宇宙等級、多宇宙等級、泛宇宙等級等。我們請你要請求活化的不僅是 DNA 的十二層次，還要與這諸多等級的 DNA 各層次相應，因為揚昇是一個過程，有許多許多步驟。你要逐層活化 DNA 層次。你必須在所有層次活化 DNA，由行星等級直到泛宇宙等級。
+
+## 運用你的記號細胞
+
+你們每個人都有記號細胞（signature cell），這有時也稱為神之細胞。每個人都有一個。你可以進入神之細胞，導引它到身體任何需要療癒的部位，也可以導引它擴展你的光。你在生命中顯化任何事物之前，先將自己意圖的所有能量導入記號細胞，請記號細胞進入其他每一個細胞，用你意圖的能量點亮每個細胞的光。接著你的細胞將會明白。等到事情在細胞內部發生，外在的顯化將會更快發生。
+
+我們可以用它來療癒。我們還能改變什麼？
+
+任何你想在生命中創造的事物。你必須記得一件事：你是以受訓中的造物主身份前來這裡。當你想改變生命中的任何事物，請使用記號細胞。
+
+首先設定意圖，接著將意圖能量傳送到記號細胞內部。觀想這個細胞前往其他每個細胞，用你的意圖能量點亮每個細胞，接著進入你的血管，到達全身，甚至進入頭髮、皮膚、骨骼和所有器官——進入你的全部。
+
+當你開始修練自己的記號細胞，大約三週後就會開始看到身體的改變。外在影響可能很多，來自過去、來自你的心、環境、成長背景等。可是如果你修練記號細胞，你便運用了最純淨的能量。
+
+這是我們最初的細胞嗎？
+
+正是。你要放入記號細胞的事物之一就是和你的心有共鳴的神聖幾何圖案。神聖幾何圖案很多；挑選和你的心最有共鳴的那種。讓你的感覺來決定，是要用大衛之星（Star of David）、約櫃（Ark of the Covenant）、人類天使符號或無限大的符號。
+
+或者生命之花。
+
+都可以。將它放入記號細胞，觀想它擴展到全身並進入每個細胞，充滿了這種能量。
+
+如果能知道這些幾何符號每一個的不同效果會很有幫助。
+
+每一個的效果都不同。安卡（Ankh）代表完美，就像十字——物質與心靈結合、父／母神、靈、以及大地母親。
+
+約櫃符號在我們神之細胞中象徵了什麼？
+
+約櫃象徵了三件事物：神完整的愛、你的「我是」存在的完整的愛、以及你對所有創造物以及支持創造的宇宙存在所有擁有的完整的愛。
+
+約櫃符號是什麼？外觀是什麼樣子？
+
+想像一個大盒子，有兩個天使坐著上面。想像這個盒子縮小，並且將它傳送到記號細胞。
+
+大衛之星象徵了什麼？
+
+宇宙的智慧。生命之花象徵與所有生命智慧的內在連結。金字塔象徵你的神聖靈性。我們請你運用自己的記號細胞來活化更高層次的 DNA，不僅是地球等級，也包括銀河等級、太陽等級、宇宙等級、多宇宙等級、泛宇宙等級。
+
+靈魂 DNA
+
+## 如果觀想記號細胞在身體某個部位，例如心臟，這是否會有幫助？
+
+當然。你們知道，觀想和想像在人的靈性進步中扮演了非常關鍵的角色。
+
+## 感謝您。
+
+還有人有問題嗎？
+
+## 連結造物主和其他更高存在的執著絲線
+
+## 銀色 DNA 束是什麼？
+
+你們全都知道直接連結到造物主之心的銀絲線（silver cord）。當你離開這顆星球，銀絲線會被切斷，回到它所來的源頭。還有許多其他的絲弦連結著造物主。例如，金絲線、白金絲線、寶藍絲線、綠松石絲線。這些絲線直接連結到更高脈輪，而所有脈輪都直接連結到造物主。你的更高脈輪是透過來自造物主的能量經由這些絲線而活化。所以想像——用你心的眼睛——十二條絲線從頭頂一直抵達造物主，活化脈輪柱的更高層次。
+
+我們要你觀想自己的脈輪一路活化到第二十五個脈輪。上次我們提到第二十四個脈輪的名字，亦即「甘查」脈輪。第二十五個脈輪有個梵文名字，稱為阿爾特那卡（artnakar）脈輪。這些脈輪直接連結到更高次元。
+
+觀想你的脈輪一路向上到第十二次元，從你頭頂延伸的絲線則直接與活化這些更高層次有關。我們要你不僅專注於靈魂之星脈輪——這位於頂輪上方——更要向上到更高的第二十五脈輪，觀想能量落在你的四周就像七彩繽紛的格子窗。你四周圍繞著色彩如此繽紛的網格。
+
+想像你擁有全部二十五個脈輪。你不需要知道它們的名字就能想像二十五個脈輪。全部都在你頭頂上方，從那裡彩虹般的色彩繽紛落下，圍繞著你。所以將你的注意力由靈魂之星脈輪移到更高的脈輪。它們全都由不同的絲線所連結。
+
+離開人世時，這些絲線會切斷——不過絲線中包含的能量、振動、意識不會斷裂，也不會消失。他們會在下一世生命重來。例如，當某人離開這個星球，假如那人決定要再回來，他或她將會透過這些絲線帶回此世所累積的所有教導、智慧、意識和能量振動。
+
+美妙之處在於，隨著星球進化，人類也會進化，有越來越多的這類絲線將會被放入你的內在。例如，當你開始與主墨基瑟德連結，就會有一條來自主墨基瑟德的絲線連結到你。你可以請求這條絲線強化或永遠連結。當你與麥達昶連結，來自麥達昶的絲線也會直接傳送到你的內在。這些大師的能量會經由這些絲線灌輸給你。我們要你運用這些絲線，因為它們乃是導體，傳輸來自大師和更高存在的能量。
+
+你們是否也知道自己能要求在你和水晶頭骨麥克斯（Max the Crystal Skull）之間建立能量連結？麥克斯代表人類的完美。他是個資料庫，其中不僅包含這個星球和這個銀河系的資料，更是全宇宙的資料庫。
+
+## 連結重要的歷史事件
+
+最近我們提到與這個星球歷史上的重要時刻、或者某些奇蹟建立連結很重要。當摩西能夠分開紅海，當時神的偉大力量被傳送過來。這一刻記錄在大地母親的阿卡莎檔案裡，你可以請求來自那一刻的能量絲線連結到你的頭部，藉此取用它。我們要你謹慎一點，因為這些都是充滿高度能量的例子，而你應該準備好才接受它們。這是非常高頻振動的能量，確實是最終極的能量。
+
+另外一個讓世界非常驚訝的事件就是耶穌復活。我們要你請耶穌大師允許讓能量絲線連結你和那個事件和時間。請耶穌大師活化你的更高脈輪並提供能量絲線連結到他的復活。耶穌大師存在於許多層面。你可以請耶穌大師由所有的次元實相來連結你。
+
+〔大天使麥達昶：請記得，你不僅存在於地球層面，你的本質也存在於許多其他實相。你必須呼喚它們。例如，有部分的你存在於銀河等級、太陽等級、宇宙等級、多宇宙等級、泛宇宙等級、以及中央太陽等級。你必須請求獲得療癒並完全存在於這所有等級，此外還包括從第一到第十二次元，在所有平行和另類的實相都全然療癒。如此你才擁有真正的療癒。如此你才能真正完整接收來自造物主的能量。不然，你只接收到非常小部分的你。這是在靜心過程進行。我們要強調這一點，因為光之工作者有許多工作；還有許多事要完成。〕
+
+## Chapter 12 運用額外的 DNA 層次以成就揚昇
+
+對我自己而言，為了我的心智理解，我真誠請求您解釋泛宇宙、宇宙、多宇宙和其他層面的差異。
+
+這些都只是不同的高頻振動能量。一個等級是否比另一等級更大或更好？我想並沒有。不過每個層次都有更高頻的振動。高頻振動不代表它們更卓越或更好。
+
+## 它只是不同的等級。
+
+正是，而且每個等級都有自己的大師。請與這些大師合作來了解你自己並結合不同等級的自己。例如，你可以在行星等級開啟心輪，不過你也可以請求在銀河等級、太陽等級、宇宙等級、多宇宙等級開啟心輪。門檻越來越高。你可以請求你在這些等級的更高藍圖獲得活化，而不僅是在行星等級。你可以請求耶穌意識安住你的內在，不僅在行星等級還有在多宇宙和泛宇宙等級。你的意識將會越來越擴展。
+
+要這麼做，你只需設定意圖，在靜心時請求指導靈支持。你必須記得一件事：靈性進化永遠不會停止。如果你到達某個等級，心想：「這就是大師程度了，」那是不對的。門檻會越來越高，越來越高。」
+
+現在，還有沒有人有其他問題？
+
+## 太陽對DNA的影響
+
+我想知道太陽是否會影響 DNA。我意思是像磁極改變、磁場、太陽閃焰等。這些事物是否會影響我們的 DNA？
+
+靈魂 DNA
+
+這些會影響人類的意識。他們會影響情緒、感覺、心靈，而這些也全都會明確影響你的意識。它們就像兩面刃，能提升你的意識，或者創造更多不和諧。如果你很平衡，擁有更高意識，你的 DNA 會自然受到影響。
+
+## 與你的跨次元層面連結的練習
+
+我們想給你們所有人一個小小的家庭作業練習。想像一個有許多手臂和許多張臉的印度神祇，它們全都消失在彼此之內。這呈現出什麼？這些為數甚多的手掌和臉孔呈現出那個特定的原型能量的跨次元層面。我們要你為自己進行這個練習。想像或用你心的眼睛觀想，有十二個你自己的存在。你是身後那十二個存在之間的線索，消失在他們之內，進入不同的手掌、不同的頭部。這是個美好的練習。你將會開始融入自己的量子層面。你的日常生活會慢慢改變。你將會用自己的量子層面做出選擇和決策，而非只是用自己的某個層面。你需要一點時間適應這個觀念，不過你就是那十二個存在，而他們也時時陪伴著你，就在你的身後。
+
+這個練習會幫助你轉變對自己真正身份的看法。你不僅會開始連結自己物質層面的人類心臟，也會連結量子層面的人類心臟，來自這十二次元存在的每一個。這會真正賦予你力量，讓你的生命更加豐富。你的直覺會強化，情緒會變得穩定，心智會更加清明。我們要你自己將這個圖像畫出來。看著自己的臉，然後看著其他的臉逐漸向後方淡去，並且以這個來靜心（參見量子符號圖像）。這可以支持你，因為你正將自己所有的面向導引出來。
+
+## 與最近的行星轉變相應
+
+今年你面對的問題之一就是，儘管你知道轉變已經發生，你仍未完全擁抱這個轉移和自己的全貌。許多人的行為仍出自於非常狹窄的自我面向。是的，適應這點需要一點時間，不過你也必須努力調適這些改變。接著你才能與地球全新的意識完全相應。你也必須相應。
+
+這顆星球已經轉變。你是否轉變了？你也許在心智上認為自己已經轉變，不過經驗上卻不然。正因如此，混亂才隨處可見。我們要鼓勵你由那個層次開始努力。這會代表你已經和自己全新的宇宙自我相應。
+
+你也許曾看過許多人經由通靈傳達這類資訊：新的磁場情感和新的磁場心智已經開啟。這是什麼意思？這就是量子心智和量子情感的開啟。
+
+我們要你觀想自己身體的每個細胞依次轉變為無限大的符號，充滿了黃金的顏色。〔大天使麥達昶：你要透過觀想來進行。在觀想時，你便是以這個圖像銘印在潛意識心上。〕在無限大符號的中心點上，有個金色的「生命之花」。你們知道，你的細胞活著而且有自己的意識，每個細胞也都有自己的心。細胞有自己的心的中心，會彼此溝通。將無限大符號放入你的細胞，這將會讓它們轉變並進入量子層面。它們很飢渴，非常渴望這點。
+
+![量子符號圖像](img/c6a8ed3c4a485062a87e0115adfec353_300_0.png)
+
+靈魂 DNA
+
+想像自己充滿好幾兆的無限大符號，每個符號內又鑲嵌著金色的生命之花。這會立即提升你的振動。這是古埃及神秘學院所教導的修持之一。如果你去參觀位於埃及盧克索（Luxor）的卡奈克神廟（Karnak Temple），你會看到托特大師進行如此啟蒙的圖像被描繪在啟蒙室的牆壁上。
+
+現在，親愛的各位，你們還有問題嗎？
+
+## 我想知道量子自我，它向來都被描述為觀察者。它是否單純就是觀察著所發生的一切？
+
+它曾經是觀察者，不過現在這已經轉變了。它將完全融入，並且包含所有來自觀察者層級以及參與者層級的每一項行動。
+
+你可以與一位你感覺親近的特定存在（大師）共同修練這一點。由你的第三眼脈輪傳送一道光到那個存在的第三眼脈輪。能量交換將會發生，由那個存在進入你。大量的意識將會立即開啟，而且你會感覺轉變以及更多的清明。你會感覺更平靜、更喜悦、更擴展。
+
+〔大天使麥達昶：你要透過呼喚那個存在來進行。例如，假設你想與庫圖彌大師合作，請呼喚庫圖彌大師完全的本質和存在前來陪伴你，並觀想一道能量光數。盡可能清晰地觀想。當你設定意圖，事情會自動發生。盡可能清晰地觀想能量就在你面前。從你的第三眼脈輪，請說：「我先從我的心接著從我全部的脈輪傳送能量進入庫圖彌大師的脈輪——我希望我的能量與他結合。」你將感覺能量降臨到你身上，在大師和你之間形成一個無限大符號，將更高意識充滿了你。
+
+在下個階段，呼喚大師，請他或她前來與你共在一個空間。觀想大師坐在你面前。以你自己的方式觀想並說：「大師，我現在已經開放，要領受高頻振動能量。我希望透過自己的脈輪與您建立更深的連結。」你會看到你的脈輪和大師脈輪之間的連結。你的脈輪會充滿高頻振動能量。請每天練習，你會知道何時該停止，因為你會感覺完成了。不過，我們鼓勵你要慢慢進行，晚上別做太多，因為這股能量可能會非常強大，或許會讓你睡不著。」
+
+## 療癒自己和他人
+
+## 我如何能增加更多天使和更多指導靈？
+
+天使有階層體系，也有些天使專司特定工作。有些天使專門負責身體療癒、商業交易、組織和結構形成、創意、文學、音樂、水文等等。
+
+如果你想幫助某人進行身體療癒，那麼你必須呼喚專門負責物質身體的天使。他們以身體模版來工作。不過，只有在療癒不會干涉業報課題時，他們才會與人類合作。如果療癒會干涉業報課題，那麼這些天使就不會帶來療癒。你必須請求他們，詢問這樣的療癒是否是為了這個人最高的善。他們是否已經學到自己前來這裡要體驗的業報課題？天使也會配合業報委員會的指引來工作。
+
+靈魂 DNA
+
+觀音是業報委員會的成員。所以當你為他人請求生理療癒，你可以詢問業報委員會或觀音這樣的療癒對這個人是否在業報上有益。也是因為這樣，耶穌並未療癒每一個人，因為他知道療癒某些人會讓他們無法學到自己的生命課題。在任何療癒發生之前，他會詢問造物主療癒這個人是否恰當。
+
+你可以呼喚療癒天使或與業報委員會合作。你可以與天使合作來以新的身體模版替換舊的，好容納更多振動能量。要記得，地球已經轉變。你必須調適這個轉變，必須升級自己，好讓你的全身、心臟、視力、肺臟、腎臟、腸胃等等一切均能容納更多振動能量。呼喚這些療癒天使與你合作。
+
+當印度的聖者和瑜珈士準備離開人世，他們會感謝自己身體的每個部位，因為身體部位都有意識，會和諧一致地工作。你可以請求天使支持你來升級自己的身體部位。天使在你的揚昇和 DNA 活化中扮演非常重要的角色。呼喚你的個人天使。每天清晨醒來時，請他們與你合作，帶來和諧與平衡的能量。
+
+請求你的天使將你放在神聖之愛構成的繭內。你可以進入這個繭。這是你神聖而慈愛的空間。在此你會感覺自在，特別是當你和內在小孩出了問題時。運用這個天使的愛之繭，每天進入它的裡面。這是你神聖且受到美麗保護的空間，由美麗的銀色白金光芒交織而成，是環繞著你的光網。每晚入睡前，請求這個光之繭能放置在你四周。你會感覺到愛和支持，你的身體會有良好的休息，更能吸收繭所散發的愛。你會感到更加平靜，會有一夜好眠，會更能在自己清醒時顯化愛。
+
+某些動物和某些種類的鳥會支持人類。讓我們看看是否有誰能前來並談談這一點。
+
+## 蟋蟀、蜜蜂和金色老鷹
+
+親愛的兄弟姊妹們，我是庫圖彌大師。讓我們談談偉大的金色老鷹。你知道，所有生物有不同的 DNA 層次，以不同方式運作來推動自身進化。不過這些生物的 DNA 中有某些能與我們的 DNA 連結並支持我們。例如，我們提過你們可與名為火鶴的偉大鳥類以及偉大的孔雀的 DNA 連結或合作。今天我們想談談偉大的金色老鷹。
+
+偉大的金色老鷹非常尊貴。當你看著這隻鳥，你會看到美、優雅、力量、自由、尊貴。金色老鷹明瞭生命的目的，也知道自己是誰。牠們以自己的力量挺立。這種鳥出現在這裡，是要讓你知道自己能變成什麼模樣。我們請你呼喚這種鳥。你覺得為何許多國家的標誌都有老鷹？牠們象徵偉大的力量、高貴、領袖氣質、偉大、專注、以及決心。你可以從牠們的眼中看到這些特質。這些都是人要達成平衡必須運用、融入的某些特質。
+
+我們要你在靜心時呼喚偉大的靈，請求活化鳥類世界的能量，特別是鷹，因為這會影響你的脈輪柱——不僅是七個層次，而是一直上到第十三或十四層次。當你開始這樣的功課，宇宙會感覺你的轉變。你會有更明確的焦點，知道自己辦得到。你的內在會有更多希望、無畏、勇氣，知道「我辦得到！」
+
+靈魂 DNA
+
+第二，我們想談談蟋蟀。蟋蟀會發出這樣的聲音——「答、答、答、答、答、答、答。」下次你聽到這個聲音，請坐下來。這個聲音能讓你進入一個非常放鬆的空間。你知道蟋蟀為何發出這個聲音嗎。這是能活化人類 DNA 的聲音之一。「答、答、答、答、答、答、答。」就是這個旋律。就是這個振動。就是這個節拍。
+
+當你聽到鼓聲，你會回想起摯愛母親的心跳。許多人喜歡聽鼓聲，這聲音會觸及你的某些部分，幫助你記得。蟋蟀也能幫你記得。
+
+第三，我們希望你看看你們稱為蜜蜂的偉大生物。蜜蜂，在牠們小小的頭部，帶著人類要前往的方向，帶著人類潛在的未來或目的地。如果你清楚知道自己要前去何處，那麼你在日常生活中所面臨的挑戰就不重要，因為你知道這是自己終將抵達的目的地。蜜蜂，在牠們小小的頭部，帶著全人類的藍圖。所以我們要你呼喚這些偉大的生命，牠們將指引你，清楚地讓你看見自己未來的潛能——你正前進的方向以及你該如何抵達。
+
+> 〔大天使麥達昶：呼喚這些存在的本質或靈性指引。每個物種都由自己的靈性指引所支持，所以牠們的本質將會來到。向牠們表達最高的敬意與尊崇。這要在靜心時靜靜進行。請牠們向你展現你在人類中扮演的角色，告訴你如何走向那個角色。如果你與這個靈一同靜心，或許某個想法、啟示或感覺將會到來，告訴你該採取某個行動或保持某個意識特質。當然，牠們會支持你。〕
+
+Chapter 12 運用額外的 DNA 層次以成就揚昇
+
+一切都在靜靜工作和請求的行動中。請求在這個時代非常重要。絕對的關鍵就是你必須請求。除非你要求，否則大門不會開啟。新的實相是你必須請求才能每天領受到更高指引。
+
+你知道海豚和鯨魚的重要。鯨魚攜帶著記憶。海豚也攜帶著星辰遺產的知識，因為牠們來自星辰。與牠們連結，牠們將幫助你記得自己真正的源頭。
+
+## 活化你的新藍圖
+
+我親愛的家人，我是聖母瑪利亞。在這個重要的時代，你必須有意識地活化新的實相——你的新藍圖。你們許多人早在2012年12月12日和2012年12月21日之前便完成你們前來這裡所要進行的工作，此刻許多人正要離開。那些人簽訂的契約是要提升自己和這個星球的振動，而他們也完成了。在那之後，他們覺得不舒服，因為他們不知道該做什麼，產生很大的混亂。許多人覺得自己已經完成來到這裡要做的每件事，這也是他們自己的選擇。
+
+我們請你們所有人要做的就是開始活化自己新的藍圖。問問自己：「接下來三個月我的藍圖是什麼？接下來半年或一年我的藍圖是什麼？」〔大天使麥達昶：你要在靜心時如此詢問自己。〕當你有意識地活化新的藍圖，你便開啟自己一個新的層次。當你再次開啟一個新的層次，你便開始一個新層次的更高意識。記得，每個月一次，問問自己：「我如何開啟一個新的藍圖？」
+
+靈魂 DNA
+
+許多你知道自己擁有但從未有機會彰顯的天分和能力，現在它們將開始更容易成為焦點。這會開啟你藍圖的另一層次，這會不停地繼續發生。你的生命會更豐富，會是你們在更高層次的自我創造，而這種創造也會繼續不斷。
+
+美國正在經歷一段艱困的時期，這會持續的稍微久一點。前方還有重大的改變等著美國。人民只有藉助於光才能轉變到更正向的方向。我們請你靜心冥想這一點，不要讓自己退縮，因為大地母親與一切的創造需要你的光。你的內在攜帶著這樣的光。如果你需要支持，請呼喚女神存在來支持你。
+
+## Oam和Aum
+
+我是庫圖彌大師。親愛的諸位，你們都知道嗡聲（Om），通常這會吟唱為 O-A-M¹。全世界各地都會吟唱這個聲音。許多文化都會這麼做。要獲得這個聲音的更高振動，我們要你們吟唱 A-U-M²，而非 O-A-M。當你這麼做，你會容納並結合自己全部的身體，包含你的靈魂以及你的「我是」存在。
+
+這是偉大蘇菲們吟唱的聲音：Albaum、Albaum、Albaum、Albaum³。祝福各位。
+
+1 註：聲音接近「喔啊恩」。
+2 註：聲音接近「啊嗚姆恩」。
+3 註：聲音接近「啊歐吧嗚姆」。
+
+Chapter 12 運用額外的DNA層次以成就揚昇
+
+## 與水晶頭骨連結
+
+哈囉,我的朋友。我是水晶頭骨。在今天的通靈中,曾經提過與水晶頭骨麥克斯創造密碼(能量連結)。不要只與麥克斯創造密碼,還有與所有水晶頭骨創造密碼,因為頭骨彼此之間會互動。石頭會與其他石頭互動,來自任何地方的樹木都可以與來自非洲的樹互動。頭骨也是一樣。水晶能與所有其他水晶互動,也包括所有其他頭骨。你甚至能連結尚未被發現的頭骨。請以善意與所有頭骨連結,因為某些巫醫曾為了相反的目的來使用它們。祝福各位。我是水晶頭骨。
+
+## 活化白金意識
+
+我是主梅翠亞。隨著一月過一月,我在世間的角色將開始變得越來越顯著。你會看到越來越多人以通靈傳達我的話語,我的名字也會更常為人提起。時機來臨,要將我的更多教導帶來這個星球,教你們擴展人類意識。這個星球各地有許多信使。其中有些很快就將覺醒,有些則不會,不過我要請在場所有人點亮自己的心,傳送一束光給我,建立連結。我想與你們所有人溝通,因為有許多事要傳達。
+
+地球在2038年後將會有一個重大的轉變。屆時多數舊有秩序都已經消失或至少都已淡去,新的秩序將會來臨,清晰可見。人們說自己並未看見轉變發生,說事情只是越來越糟,不過到了2038年,人們將能看見地球上有一個不同的能量,一個更和諧、更充滿善意的能量。在那些時候，我將會帶著更多資訊、更多智慧來臨。
+
+你們全都聽過水晶意識。將會有另外一個意識到來，一種物質層次的活化，由水晶意識跨越到另一等級。那將是白金意識的安住與活化。我會帶來這道光束並將它安住於光之內。此刻我正在進行準備。在接下來幾個月甚至幾年，你們將更常看到並聽到我。祝福各位。我是梅翠亞。
+
+## Chapter 12 運用額外的 DNA 層次以成就揚昇
+
+## Chapter 13 喚醒意識的吉祥時刻
+
+2013年8月19日
+聖哲曼、大天使麥達昶、薩彌爾
+
+各位好。我們要感謝各位今天前來。在第十二章，我們談到與泛宇宙 DNA、銀河 DNA、太陽 DNA、宇宙及恆星等級 DNA 連結。我們也提到與某些動物——如金色老鷹——連結、牠們代表什麼以及如何與其 DNA 連結。
+
+現在我們想簡單介紹每個月和每一週的特定幾天有潛力能幫助你喚醒意識。每個月都有特定的一天比起其他更為吉祥。每一週也同樣有特別的日子。一星期的每一天都有不同的能量。古人很清楚這一點。他們很清楚「安息日」（Shabbat）的日子。在印度，人們知道某些特別的日子，如果以適當方式持守，那麼人便可與更高的意識相應。愛西尼人也了解這一點。尋找可能對你很好的日子；每個人的日子都不一樣。〔大天使麥達昶：每個人都需要自己找出這是哪一天。〕
+
+## 能否請您解釋該怎麼知道哪一天對自己最好？
+
+你必須進入內在，自己找出來。我們不會個別揭露這一點，因為這就像飯來張口。我們要你運用明辨去觀察什麼對自己最好。並不是我們不想幫忙。我們想讓你了解我們工作的方式。我們會解釋該做什麼，你要接手並進一步發展。
+
+令人驚訝的是，一天當中有些時段也非常吉祥，人能連結到更高能量。例如，傍晚時分有個特殊時段，就在天色變黑之前。英文中稱呼這個時間為 twilight，亦即暮色。在這個時間，你更能夠與其他次元實相連結。對於巫醫、巫師、魔法師而言，這都是特殊的時間。這是非常重要的時間。
+
+清晨也有一個特殊的時間，就在凌晨四點到六點之間。許多古老的瑜珈士教導人在這段時間醒來並且進行靜心和祈禱。
+
+某些時間會與某些星座互動，並且直接連結到占星學的星座、連結你體內的經脈、更連結你的 DNA。我們請你研究這一點並觀察自己如何能運用每天、每週、每個月中屬於你的時間。
+
+> 〔大天使麥達昶：你出生時，所有的行星構成完美的排列，以便創造給你完美課題的能量，讓你了解自己此生要追求什麼。星辰也指派一個特殊能量給你，這是一種支持能量，任你差遣。這個能量不是星座的能量，也不是你出生星辰排列的能量。你有一個特殊能量來支持你。
+> 還有許多存在——例如龍、樹木、星辰——也會支持你。每個人都被指派了一顆星星。再說一次，你必須在靜心時呼喚它們，才能感覺被指派給你的那棵星，這樣你才能與那個星星合作並獲得能量。
+> 你的後援隊不僅是星辰。你的合作對象還包括龍、樹靈、動物之靈、花靈、植物靈、還有鳥之靈；此外還有某些氣味、聲音和幾何形狀。它們全都等待開啟。除非你開口請求，否則它們就無法給予你。〕
+
+## 靈魂 DNA
+
+愛西尼人很了解如何善用不同的時段，因為他們都是大師，更直接與星子合作。他們與星辰和植物有非常緊密的連結，特別是能影響疾病的植物。
+
+在屬於你的特殊時段，你將能觸及更高意識，你也能與自己的 DNA 合作。在這些時段，你必須呼喚自己新的意識，並塑造意圖讓你努力導引出的意識幫助你開啟揚昇絲線。
+
+我是聖哲曼。現在我們要回答各位的問題，接著其他大師將會來到。
+
+## 所有人類均創造為平等
+
+在之前的聚會中，您提到 DNA 有十二束、144 束和 144,000 束。您所指的是一般的人類 DNA、不同的次元等級或是某些特殊的人的 DNA？
+
+首先，沒有所謂特殊的人。每個人都是平等的。每個人都有潛力能活化自己 DNA 的所有層次。這是每個人的藍圖，就像種子一樣，小小的橡樹子能成長變為巨大的樹。不過，不是所有橡樹種子都能長成大樹，有些長到某個年紀就會死去。人類也是如此。如果樹木種子能夠自然成長，或許它也會完整長大。如果人類可以自然發展和成長，不受干預，他們也將完整地發展自己的 DNA。
+
+人類 DNA 源於昴宿星人，因此當你與自己 DNA 的這個層面連結，你會記得自己真正的源頭和過去。當你提升自己的意識，DNA 將自然地活化。這本書的目的是要提供工具、資訊、知識和智慧，藉此支持你提升自己的振動和意識，好讓你的 DNA 能自然地活化。省思自己的意圖和信念。如果你相信自己能提升意識，你就能自然地活化自己的 DNA，那也就成為你的真理。可是如果你相信這個機會屬於他人，相信自己只是簡單的人，那麼這當然就不會發生。你的信念會創造實相。
+
+要相信自己是神的孩子，相信神的本質就在你身體的每個細胞內，相信你來這裡是要活化自己的最高層面，亦即亞當·卡德蒙密碼。你來這裡要在每個當下經驗並表達神。每個存在都將靈帶入物質，以這個方式在每一刻活出你的真理就是神的經驗。
+
+在上一次聚會，您談到我們同時存在於許多層次，也說到 DNA 也在自己進化的層次自發地同時工作。這是真的嗎？
+
+這是真的，不過它正在休眠，就像時間密碼一樣。除非你來到某個等級，下個等級是不會活化的。這就像啟蒙密碼一樣。例如，對高一學生來說，微積分早已存在，不過你仍須從小一一路讀到高中，才能對微積分稍有理解。
+
+我明白了。這是漸進的進化。假設我們某天過得很不順。DNA 是否會在此刻、會在每一剎那受到影響？
+
+這會影響你的基因，進而直接影響你的意識和能量場。
+
+## 娛樂和靈性進展
+
+## 我們是否會受到其他人負面的低等振動所影響？
+
+當然。如同你上一次提到的，每個人都是海綿。人會吸收每個經驗的能量——即使是看電視。你必須捫心自問你正在汲取什麼樣的能量。要繼續支持自己當前的實相，亦即你要建構自我嶄新的存在。
+
+看看某人的娛樂你就能知道這人的進化程度。你能透過他們所謂的娛樂和有趣來分辨人的進化程度。你怎麼利用自己的空閒時間？你的娛樂預算消費在什麼事物上？你看多少電視？你看多少電影？你花時間在什麼樣的電影和節目上？這個月你讀了多少書？你參與了多少音樂會？你看了多少芭蕾舞表演？你聽什麼樣的音樂？這一切對你是否重要？
+
+## 反應與回應
+
+心靈的養分和身體的養分並無不同。你放入什麼就會收成什麼，還要乘以三倍。我們持續受到自己的思維和他人的行動所影響，尤其是在我們反應或回應時。如果對電視節目有反應，這和誰對誰錯並沒有關係。如果你產生反應，你要知道有什麼事物正在你的內在運作。
+
+大師從不反應。大師能維持身心平衡和意識等級。當你對某事產生反應，你需要檢視自己。為什麼這件事會影響你？你在看某個電視節目，這時你心裡在想什麼？你內在某些事物被觸發了。這個觸發會影響你的基因和意識。
+
+人要提升自己的振動很容易，要維持就沒那麼容易。在新的意識中，沒有什麼是靜態的，所以你要不是往上就是往下。麥達昶說正因如此幾乎所有文化都無法維持自己的最高成就。
+
+世上有許多偉大的時期。看看任何文化——義大利、羅馬、希臘、美索不達米亞或埃及。人們成就如此之高，卻無法維繫。
+
+為何他們無法維持自己的偉大？因為他們只是思考，卻不曾明白能量如何運作。當你接觸到能量，你必須問：「這是否支持我成就自己希望為自己最高的善所創造的事物？」在新的實相中，一切都會影響你的基因、你的意識、你的 DNA。你所做的一切都必須支持你的基因和能量場，好讓你維持最大的意識來自然喚醒你的 DNA。你覺得這有沒有道理？
+
+你不能只是反應。有些時候你必須採取行動。可是，反應來自過去的記憶。某些事物迅速觸發過去發生的某個事件的記憶，你也立刻反應。回應是來自當下。你必須問自己：「我該如何回應？」反應來自過去，回應意味著你進行思考並接受責任。
+
+## 即使你面對著低下能量？
+
+是的，正當如此。例如，一位女性走到雜貨店，遭受到攻擊。一位男性舉槍瞄準她的額頭，說：「給我錢。」
+
+這個勇敢的女性對這位男性說：「我看到你內在的神。我看到你內在的神。我看到你內在的神。」
+
+這位男性告訴她：「你是個瘋巫婆。」然後他就跑開了。這就是大師風範。
+
+> 〔大天使麥達昶：要為這個故事提供明確參考資料相當困難。重點在於，如果你能看到另一個人真正的身分，而非他們向你表現出的樣子，那麼你能將這點反應給對方知道，而他們便能立刻改變自己的行為。
+> 再說另一個故事，一個聖者在印度的某條河流洗浴。他走出河水，發現河岸邊站著一個人，他並不喜歡這位大師。他向大師吐口水。大師什麼也沒說，走回河水再洗一次。他出來，那人又向他吐了口水。大師又走回河流。這發生了大概二十次吧。
+> 最後一次，這人跪在大師雙足前，對他說：「啊，大師，請原諒我。」
+> 大師說：「你在這麼做的時候，我只看到你內在的大師。感謝你提供這個機會，透過吐口水的過程來喚醒你內在的大師。」那就是偉大。〕
+
+聖雄甘地（Mahatma Gandhi）怎麼做？這個偉人選擇在這裡完成揚昇前最後一次轉世。他正要走去祈禱時中槍。他最先說出的幾個字是「請原諒這個人。」他唸誦神的名字三次：「Ram、Ram、Ram。」然後他就倒地。大師就是如此。耶穌在十字架上說了什麼？「父啊，赦免他們，因為他們所做的，他們不曉得〔路加福音 23 章 34 節〕。」
+
+他幫助其他兩個靈魂，在他左右兩邊同樣被釘上十字架的兩人。他解脫了他們。那就是大師。請了解這個等級的大師風範是非常困難的。
+
+讓我們再舉達賴喇嘛當作例子。你認為他沒有挑戰者嗎？認為他沒有遭受迫害嗎？不過他仍然能維持自己的風範。他選擇自己在每一時刻要如何回應，包括如何回應批判和他接到的死亡威脅。他至今仍然在做出選擇。
+
+透過選擇，你會定義自己的模樣。生命就是選擇。要相信自己能維持在意識的高頻振動之中。透過選擇，藉由那樣的意識，你能夠在每一刻選擇你要如何表達自己。因此這一刻稱為當下。當下（present）的意義為何？當下就是禮物¹。你要如何運用當下這個禮物時刻？這是你的選擇，取決於你希望如何根據自己所做的決定來生活。你做的每個決定都有振動，也決定你會是什麼樣的人。你生命的每一刻都向世界傳達某個訊息。而且那個訊息乃是藉由你活出這一刻的方式來表達。
+
+讓我問你一件事。如果這一刻你想選擇大師風範——或選擇絕對平靜或絕對的神聖之愛——結果你在這一刻死去，這難道不會成為你帶著離去的能量嗎？正因如此，古西藏人總是說：「好好活過這一天、這個當下，就像這是你在地球層面的最後一刻那樣。」就像那樣，想著你可能明天就會死去。〔大天使麥達昶：這並不是從哪一本書中摘錄出來的。這是西藏人普遍的認識，在他們的心中根深蒂固，以口傳方式代代相傳：「去活，就像你下一刻就要死了。」你希望還沒與眾人和解就離開這一世生命嗎？你要帶什麼到下一世生命？你只會在心中帶著愛與平靜。〕
+
+你可以如此選擇。每天都可能是你的最後一天，或者說每一刻都可能是你最後一刻，因為每一刻都是死亡的一刻；那一刻消逝，然後再度回歸。耶穌曾說：「你以為自己只有一個死亡嗎？」[大天使麥達昶：這是所有文化都知道的古老真理。這是一種智慧的體悟，而非文本的引用。每一刻你都正在死去。對過去的時刻而言，你已死去。]只有物質身體才只有一次死亡，不過你每一刻都在死去。一刻逝去，再也無法挽回。那一刻已經結束，你生命經驗的一部分已經死去。許多死亡正在發生：人際關係的死亡、工作的死亡、夥伴關係的死亡、摯愛者的死亡。請選擇在每一刻的死亡中看到自己當下的模樣和真正身分。
+
+在生命的最後，你的靈魂所關心的不是你曾經是什麼人或你做過什麼事。靈魂唯一關心的就是，你是怎麼活著的？你慈悲嗎？仁慈嗎？曾愛過嗎？願意寬恕人嗎？這一切都會影響你的意識和 DNA。因此，當你開始選擇，你自然就會提升自己的振動。那麼你便能活化 DNA 最高的層級，不僅是你的地球 DNA，還有你的銀河 DNA 和太陽 DNA。
+
+現在，如果你還有任何問題，請再發問。
+
+## 取用阿卡莎檔案
+
+我有個關於阿卡莎檔案的問題。您提過取用阿卡莎檔案來與我們曾在過去世生命經驗過的天份、感覺或情緒連結。您能否能解釋如何取用阿卡莎檔案？是透過觀想嗎？
+
+首先，要知道阿卡莎檔案是你各個面向的歷史。它包含你曾經有過的每一個經驗以及你自己源頭的歷史。它存在於你的氣場。在你靜心的時候，有意識地請求回想起並取用你意識的特定層面。思想形式、能量模式、一本書、一種感覺、一個形象或者就只是色彩會向你展現。如果你堅持下去，你將能清晰地解讀。
+
+你不需要特定的技巧。有些引導靜心能帶你在內心深處觀想阿卡莎檔案存放的位置。這些地點的其中之一稱為阿曼堤大廳（Halls of Amenti），就在人面獅身像下方。你可以在靜心時前往該處，會被帶領到你的阿卡莎檔案存放的地方。你無需練習特定的技巧，而是應遵循自己的道路。當你在靜心時請求取用阿卡莎檔案，我想在五到七天內，你就能輕易地前往這個地方。
+
+您也曾談到在阿卡莎檔案中取用我們的前世生命。我想知道有什麼方式讓我掌握這一點。
+
+是的，當然。是透過靜心。當你請求自己的靈魂和指導靈來找到特定的前世生命來支持你或能對此世有益，那將會展現出來。每次靜心都非常獨特而不同。每天都要與你的靈魂連結並表達：「帶我前往光，因為我希望將這個特質加入我的生命。」例如，你能詢問：「我如何能更完整地信任自己？我如何能相信我自己？」接著請求能看到你對自己有完整的信念和信心的某一世生命。那可能是七百年前，或者是兩百年前；你的靈魂會讓你看到。當你能前往那一世生命並且觀想它，那麼你將能立即導引出支持的能量。這只能透過個別靜心來取得，可以多次進行。一旦你掌握此原則，你將能反覆進行。
+
+## 滿月的力量
+
+我想了解在滿月時靜心的事。人是否需要在夜間做，或者在白天做也可以？
+
+每天有特定時段，每週也有特定幾天對你的工作相當有益。此刻，我們正進入一個非常美好的時間。滿月是個力量強大的時間。之前我曾告訴各位滿月的用處之一〔參見第八章〕。它有個非常特殊的功能。滿月有種非常強大的能量，會影響第一和第二脈輪，特別是性脈輪。滿月會啟動這些脈輪。不過滿月不僅服務人類，其影響更為廣泛。
+
+滿月的主要功能是支持所有活在水下——尤其是海洋——的有機體。這些重要的有機體是海洋生存的絕對關鍵。一切由造物主所創造並且具有生命者都需要光才能繁殖。某些有機體活在深海，在海洋的最深處，幾乎沒有光的所在。沒有足夠的光，牠們便無法繁殖。在滿月時，光能穿透到海洋的最深處。如此一來，這些生物便可以繁殖並保持海洋的活力。〔大天使麥達昶：通靈傳導的材料無須引用書目。真理不需要援引參考書籍。〕
+
+由於滿月會影響我們的第一和第二脈輪，因此它會影響到我們的創意和情緒，同時對我們的血流也有所影響。許多醫師不會在這個時間開刀，因為血液更強、流速也較快。這是特殊的靜心時段。滿月有非常強大的能量，能淨化你的情緒和感覺，因此會支持你的更高意識。這也是培養你的開創性概念的好時間。
+
+如果你在滿月時祈禱，你將能觸及更高次元實相。在靜心時，你也將能與更高次元合作與連結。如果你想傳送療癒能量給某人，先在滿月時靜心和祈禱。滿月前後二十四小時是力量最強的時段。
+
+力量其次強的時段或許是在凌晨三點左右，不過最佳的時段因人而異。另外一個好時段或許是下午六點半到七點二十分之間。這些都是力量很強的時段。在這些時候，所有力量會結合以創造新的實相。在這些時段，你能請求氣候的改變，因為你能與氣候交談。透過祈禱求得你正尋找的強大轉變。在這些時段中設定意圖。如果你希望提升自己的意識和 DNA，那麼這些時段是進行這類工作最好的時機。
+
+## 創造和切斷絲線
+
+為何不打通電話給造物主之心？你能連接你的心和造物主之心。你也能請求在你的心和麥達昶的心之間放置一條絲線，一條永恆連結的絲線。你也可以連接一條絲線到生命中所有美好的事物、創造的力量以及許多你在生命中尋找的事物。一旦你釐清自己背負的所有渣滓，你便能開始連接絲線到你希望生命擁有的所有美好事物。
+
+請記得，你努力要療癒的是自己的負面成分，而你該要的事物只有一樣，就是能量。建立一條絲線連結生命中所有好事，並且擁有放鬆而喜悅的生活，讓每一天都像在放假。你仍然能在假期中討生活，做自己最喜歡的事。工作變成遊戲，這就稱為喜悅的生活。你可以說：「我要切斷所有苦難、痛苦、只有辛勞工作才能謀生的絲線。」就將它們切斷吧。我們所攜帶的一切都是觀點。
+
+親愛的各位，絲線非常重要。絲線是雙向的，會通往好事，也通往負面的事。當然，你不會想切斷連結造物主、連結其他更高的光之存在、或連結生命中好事的絲線。相反的，你應該只與那些不再能有益於你的事物切斷連結。你另外還有絲線直接連結大地母親。這些絲線讓你安定於物質層面。你能淨化並精煉這些絲線，甚至是連結大地母親的絲線。你在地球上的生命存在變得更加喜悅。你的生命不可以成為負擔。
+
+請開始精煉你與地球整體意識連結的絲線。在神的眼中，這樣的絲線並不好。切斷連結全世界能量矩陣的絲線。檢視自己的態度。你是否相信「贏者全拿」這樣的事？只有辛苦才能有收穫嗎？或者，當一切就位，就會有人扯你後腿？我們攜帶著連結全世界能量矩陣的絲線。在靜心中切斷這些絲線，告訴自己：「我切斷將我束縛於群體意識的能量絲線，這樣的絲線藏在我的潛意識、無意識、還有當前的意識心裡面。」
+
+只需使用這樣的陳述：「我會切斷這條絲線。」在靜心中，找出自己攜帶的渣滓，例如「痛苦才會有收穫」。你可以切斷連結這類負面態度的絲線。每天切斷三條絲線，很快你就會看到不同。你會開始感覺更輕盈、更平靜、更加喜悅。切斷負面絲線會影響你的基因和 DNA。
+
+## 土葬者的意識
+
+你經過墳場會看到許多墓地。你知道它們也帶著能量嗎？當一個人死去，身體會繼續帶著死者的能量——憎恨、憤怒、悲傷、或任何在世時所帶有的情緒。意識離開了身體，但是那人的能量身仍然完整，會繼續保有其情緒和感覺。人會將這帶入大地。不知情的人——未受保護的人——走進墓地就會受到這些能量場的影響。
+
+聖城耶路撒冷之所以沒有平靜，原因之一就是有這麼多人為這美麗大地奮戰而死。生在這塊土地的人收到土地能量的影響，因此他們仍然戰鬥著。有這麼多恨。如果你想療癒國家，先療癒土地。與所有對你無益的存在切斷連結，因為你們已走上不同的道路。切斷你和自己出生之國家連結的能量絲線。
+
+假設某人因癌症死去，並且埋入土裡。幾年之後，身體將會分解，融入元素之中。癌症的能量會進入大地，進入附近種植的蔬菜，因為這個能量會透過大地擴展，範圍至少五到七公里。這個地區的植物將會帶有癌症的意識。它非常細微，但仍然存在。
+
+## 如果身體是火葬呢？
+
+這比較好。不過世界各地，大地母親都背負著所有埋入土地的身體。海葬最好。身體一旦投入大海，就會回到其自然狀態。當然，海葬不見得隨處可行。火葬是次好的選擇。
+
+> 〔大天使麥達昶：海葬是古人奉行的古老智慧，所根據的教導或許尚未揭露。古人知道身體在水中更容易分解，一切都不會浪費。就土葬而言，分解更為緩慢，大地會受到身體所帶的意識所影響——憎恨、憤怒等。這些能量會擴散到植物和樹木。在海中，身體通常會被魚類吃掉，牠們的消化系統會重組情緒，所產生的廢物不會帶有同樣的情緒張力。〕
+
+將人埋葬於大地可以完全沒問題，只要死者的親屬在死者離去前幫助他們尋回平靜，或是在人過世的前三天內處理他們的能量場。在那段時間，死者仍與地球層面緊密相連，需要三天時間才能穿越死亡河道。如果你想知道更詳盡的訊息，請參閱蓮花生大士所著的《西藏度亡經》（The Tibetan Book of the Dead）。這本書會解釋透過祈禱、靜心以及傳送光來療癒瀕死者有多麼重要。如此他們將獲得療癒，也會幫助他們以不同意識重生。大地母親也會獲得療癒。
+
+## 您在前面提到我們能協助療癒耶路撒冷，針對所有埋葬於該地的人。
+
+首先，你需要切斷所有埋葬於該地之人的絲線，特別是在恐懼、憤怒、憎恨或類似負面狀態下死去的人。
+
+---
+¹ 註：英文中，present 除了表示「此刻、當下」之外，亦可表示「禮物」，與 gift 為同義字。
+
+## Chapter 13 喚醒意識的吉祥時刻
+
+## 我們如何療癒以色列這個國家或耶路撒冷這個城市？
+
+你必須導入金色的光，觀想大地鋪滿金色的光織成的地毯。有如此多的能量已經鑲嵌於大地。這個工作必須集體進行，也是項大工程。但是在個人層次，你能請求切斷此時正在耶路撒冷運作的國家絲線，裡面包含著死於戰鬥者的能量，死於憤怒和憎恨者的能量。你也可以請求創造新的絲線，連結你和偉大智慧的導師、拉比（rabbi，猶太教教師）和其他偉大的大師。
+
+> 〔大天使麥達昶：要進行這項工作，請觀想自己與許多道能量之光連結。每個人都像海綿。你會從你所站立的大地吸收能量。如果那個能量是恨，如果你的能量場不強，那麼你絕對會影響。真正的大師能在最黑暗的地方也不受影響，因為他能抵禦並反彈來自大地的能量。不過如果你的意識有弱點，有需要解決的問題，那麼你無論到哪裡都會吸收該地的能量。
+>
+> 你覺得為什麼你在自然中，尤其是在原始的自然環境中，你會感覺這麼好？這是因為土地非常純淨。你不會從純淨的地方吸收任何負面事物，因為自然本身就是神。記得你會承受能量的轟炸，非常容易受到四周能量的影響。你得知道如何運用能量，該釋放什麼能量，該融入什麼能量。〕
+
+## 所以您的意思是要連結那些偉大的大師和先知？
+
+正是。創造一條絲線連結大衛王（King David）。消除與希律王（Herod the Great）的連結。以絲線連結先知伊利亞（Elijah）。當你消除一條絲線，以連結偉大的光之存在的新絲線取代。連結安娜和其他偉大的光之存在，他們擁有偉大的智慧。許多來自以色列的大師選擇不以自己的肉身揚昇。他們決定要回饋大地，因為他們的身體能為大地母親帶來療癒。他們做出偉大的犧牲。儘管他們有能力揚昇，他們選擇不這麼做。他們在死後才揚昇。
+
+> 〔大天使麥達昶：連接方式是觀想絲線由你的太陽神經叢脈輪延伸，進入這些偉大存在的本質，然後請求他們的許可。
+
+## 要切斷與希律王這類人的絲線連結，需要再請求嗎？這正確嗎？
+
+是的。或者你可以說：「我的意圖是要釋放這條連結著我與希律王的能量絲線。我同時允許我的絲線連結伊利亞大師，並且透過這條絲線導入伊利亞大師的高頻振動之光來支持我自己的揚昇過程。我用愛來請求。」
+
+你必須請求。這是本實用的書，在這項修持中有兩件重要的事。第一是請求。第二是塑造意圖。如果你不請求，根本就不會給予。在舊的能量中，無知是福。在新的能量中，無知是危險的。人們需要知道這一點。舊的思想方式已經走了。造物主不會降臨來支持你。你必須透過請求來參與創造，並且藉由持續努力來支持自己。〕
+
+## 心的四個顏色
+
+齊瑞爾大師（Master Kirael）說，隨著我們將更高能量注入肉身，肉身也會重新塑型，而這會由顯著的普拉納呼吸開始²。
+
+> 〔大天使麥達昶：許多印度大師都示範了這一點。看看巴巴吉大師。他仍然維持著十八歲的身體。所有在地球上活躍的大師都能選擇自己喜歡的身體。當你揚昇，你將能選擇自己想要的物質外貌。你是否看過任何年老或枯槁的揚昇大師？你能選擇擁有自己希望從此保有的那類身體。〕
+
+這麼做會讓我們獲得身體啟蒙，也就是說，我們的身體會隨著我們用來讓自己接近大地母親的顏色而振動。我們帶著黃金的核心本質，我們也帶來明確的顏色以振動自己的物質系統。我們攝取的食物和飲料會影響我們的顏色？問題是：我們的四種顏色是什麼？很明顯的，這會對我們的一切造成巨大差異，包括我們的肉體、心智和情緒狀態等等一切。
+
+基本上，這四種顏色是金色、銀色、白金色和藍綠色。
+
+## 那些顏色是不是每個人都會帶來的顏色？
+
+這些是每個人帶有的基本顏色。
+
+## 所以讓我們釐清一點：這四種顏色在哪裡？他們存在於能量場嗎？
+
+是的，在你的能量場。
+
+2 註：參見弗瑞德·思特靈（Fred Sterling）所著《在覺知中創造十大法則》（Kirael: The Ten Principles of Consciously Creating; Honolulu: Lightways Publishing, 2005）。
+
+## 所以每個人都帶著這四種顏色嗎？
+
+是的，他們還帶著 144 種神聖幾何模式。
+
+齊瑞爾說每個顏色都象徵著我們在這裡的工作的某個面向³。等到我們知道自己的顏色，那麼我們就不會再受到限制。所以問題是：每個人都有同樣的顏色嗎？
+
+> [大天使麥達昶：那個特定顏色是你的支持能量。如同我們先前提過的，你擁有來自龍、星辰、植物、樹木、聲音、顏色的支持能量。所以你必須藉由請求來找出最適合你的顏色是什麼。]
+
+在核心層次，每個人都有相同的顏色。藍綠色代表你的無限，代表你領悟自己是永恆生命的能力。金色代表領悟你是物質身體形式的造物主。銀色代表你的神聖和神性。白金色代表你與萬有造化的連結、與萬物的溝通。
+
+這些顏色會因為日常生活經驗而改變。首先，沒有人知道這些顏色。這些顏色會埋得越來越深，你也真的忘記自己是誰。如果你能將這些顏色帶到意識之中，並且將它們再次融合，你就會像大師一樣生活。這些顏色會影響你的 DNA。你或許想以這些顏色做實驗，因為它們能給你重大的突破。
+
+> [大天使麥達昶：挑個顏色做為靜心對象。綠色給你什麼感覺？你覺得棕色如何？你必須這麼問。為什麼你生活中會穿特定顏色的衣服？許多人根本不穿棕色衣物。某些人不穿橄欖綠的衣服。有些人不穿黑色，其他人則非黑色不穿。為什麼人會選擇？有時候，當你看到或穿上某些顏色，你會處在事物的流動之中。運用顏色，看看那個顏色讓你感覺更有能量。]
+
+3 註：參見前引書。
+
+話雖如此，我仍會告訴你，每個人都帶著一個特定的原初色。例如，充滿活力且正向的人帶著接近淺紫色的藍色。內向的人、從不分享經驗或情緒的人，他們的原初色是淺綠色。生來就神經緊張、不喜歡人群、會咬指甲或抖腳的人，白色就是他們的原初色。這些顏色可以與其他療癒的顏色混合以強化。我們要你實驗這種迷人的智慧。我們感謝你提出這個非常重要的問題，因為顏色真的可以開啟人心，讓人接受新的可能和啟示。
+
+## 古老人類DNA
+
+關於回溯自己的本源或記號自我（signature selves），如果我們回到五萬年前，回到我們還在列木里亞或亞特蘭提斯的時代，當時我們的DNA和今日有何不同？
+
+在那個時候，DNA是完全覺醒的。現在的DNA是沉睡的。這是唯一的差別。在那個時候，人們意識到自己十二束DNA已經完全活化。
+
+## 所以我們退化了嗎？
+
+是的，人類已經退化了。當時，你的心之中心的三重焰完全綻放。此外，你的松果體的尺寸已經縮到非常小。
+
+您的意思是當時松果體更大嗎？
+
+當然。松果腺是你的靈性腺體，是腦中的光之腺體。當你開啟松果體，你開啟自己的更高次元心靈。
+
+## 心的三重焰
+
+可否請您說明心的三重火焰？
+
+這是愛、力量、智慧的火焰。顏色分別是淡金色、粉紅色、藍色。這些是神的三種顏色，分別代表愛、智慧、以及顯化的行動。現在它在每個人的心中已經小於十六分之一英吋。你必須能停留在明亮燃燒著的三重焰內，彰顯神的這三種特質——神的愛、神的智慧、並且運用愛和智慧來顯化這些特質。
+
+愛西尼人知道神的這三個面向，不過他們對此有不同的解釋。他們的概念是人類會與許多力量互動，包括可見與不可見的力量。我們有許多能量身會持續互動。有三種身體是我們每天會使用的；愛西尼人稱它們為行動身、思維身、感覺身。
+
+思維身最高的思想——或能量——就是智慧。感覺身最高的能量是愛。行動身最高的能量就是將愛與智慧帶入現實，進入我們的物質生活，好讓我們在生命中能與我們文化的宇宙和乙太力量——也包括社會力量——互動。這些是你內在重要的三個面向，你也必須努力發展它們：愛（粉紅色）、力量（淡金色）、智慧（淡藍色）。
+
+> [大天使麥達昶：這與心的三重焰有關。每顆心都帶有這三種能量，它們與神的前三道光有直接關係。我們愛神，愛神的智慧與愛、愛神的創造力量和顯化力量。讓你靈魂和靈魂的意志相應，運用靈魂的愛和智慧將靈魂的意志導入你的實際現實並顯化。這正是大師所做的事。
+>
+> 首先，他們問自己：「這是我靈魂契約的一部分嗎？」接著他們會問：「我如何運用智慧與愛來顯化這點？」最後，他們會採取行動以將它帶到物質實相中。許多人都有很棒的點子，但是他們不知如何顯化。即使他們顯化了，也不知道如何用愛與智慧來辦到。所以這直接連結到每顆心的三重焰。這是揚昇本身非常重要的一部分。這是關鍵。」
+
+## 那可不可以說這些位階更高的心輪？
+
+這並不正確。你的更高心輪位在稍高的位置，偏左邊。它大約位於左肩，接近胸腺。不過你也必須鍛鍊自己的更高心輪，而且當你這麼做，你將能護持越來越多的光。你的胸腺將會擴展增加。在列木里亞時代，胸腺更加擴展。
+
+## 普拉納呼吸
+
+能否請您談談普拉納的重要？普拉納呼吸如何重新活化並補充我們的細胞，淨化細胞意識，並且增加我們的壽命？
+
+這是真的。你也必須擴展你內在的普拉納管道。這個管道需要變得更大，好讓它能容納更多的光。普拉納呼吸非常重要，簡單的做法就是在呼吸時想像你吸入金色粒子。每個粒子的形狀都像金色的星星。這也許需要時間才能習慣成自然。每次吸氣，你都將金色的星星粒子吸入。
+
+〔大天使麥達昶：只要將它吸入即可。想像美麗的星形金色粒子從你的頭進入。
+
+## 您的意思是從嘴巴或鼻子進入？
+
+不，是從你的頭部。
+
+## 從頂輪嗎？
+
+是的，接著進入你的腦部，讓它充滿這些金色粒子。觀想那松果形狀的松果腺隨著這道光開啟，讓兩側的大腦充滿這道美麗的光。這要每天練習。]
+
+你怎麼知道自己做法是對的呢？在三到五天內，你會感覺自己的飲食習慣改變。你或許不會再吃那麼多，會覺得自己飽飽的。做這種呼吸最好的方式就是想像你由偉大的中央太陽汲取這些金色粒子。將這些粒子吸入。每個星形的粒子都一一進入你數十億細胞。幾天內，你會感覺到不同。或許食量變小，不像以前那麼餓。這是很好的練習。當你開始進行普拉納呼吸，這不僅影響你的食物攝取，也會影響你細胞的重生，好延長你的壽命。
+
+## 在列木里亞當時的生命中，普拉納是我們賴以生存的能量。
+
+普拉納確實是主要的力量。普拉納是創造的力量。你可以有意識地設定意圖要吸入普拉納或生命力量。你將會在幾天內感覺到差異。你的心智會變得更清明。這是不進食的人的秘訣之一。他們吸入普拉納，有意識地維持一種自己沒有匱乏的心態，即使他們沒有錢。你攝取的食物將會減少，能不需要食物而活。你生命中的匱乏和你攝取的食物有直接關係。如果不覺得匱乏，沒有活不下去的恐懼，那麼食物的攝取將會最小化。
+
+你的細胞會將你吸入的空氣中的生命能量直接轉化為食物。中國古代偉大的先知與聖者，那些偉大的道教大師，有一種啟蒙考驗，許多美國人現今仍會前往中國接受這種考驗。〔大天使麥達昶：就在崑崙山脈裡。〕人們會被引導在岩石的破口間坐下。那裡什麼也沒有。他們被要求單獨在那裡待上七天。不會給予食物。到了第七天，某人會前來查看他們是死是活。活下來的唯一方式就是與大地母親溝通並請求來自偉大中央太陽的普拉納。啟蒙者呼吸這個普拉納，完全不想著要結束這一刻。他們活下來或死去都沒有關係。他們心中沒有匱乏，也沒有恐懼。
+
+## 成為含一力場的一部分
+
+我是麥達昶。我祝福你們每一位，因為我就是你的一部分。我存在於你的每個細胞內。你們許多人都認為我在你們之上。不要在你們的外面尋找我，要在裡面尋找我。你們擁有的每一位指導靈、每一位大師，全都是你們的一部分。這些大師也在外面，不過他們也在你的裡面。雖然你們尊崇我們，我們也感謝這樣的榮耀，但是我們永遠在你的內在。所以要先從內在尋找。
+
+你所尋找的是真正的你。有了這個領悟，就再也沒有分離。從現在起，要視自己為麥達昶的一部分。人們提到的分離不僅是與造物主分離，還有與造物主創造的萬有分離。過去，你這樣想是為了服務造物主並支持宇宙。如果你能將焦點轉向和宇宙力量、造物主、以及你的「我是」存在合一，你就命中核心。所以，從此開始，要致力於由這個「合一力場」（Unified Force Field）來觀看並經驗一切事物。〔大天使麥達昶：合一力場即為造物主。〕要視自己為合一力場的一部分。
+
+你經常聽到你是某種群體能量的一部分。這是什麼意思？這是整個宇宙智慧的群體能量。小螞蟻的能量也在你的內在。最偉大的大師瑪哈特馬的能量也在你的內在。當你領悟者這點，當你努力將這融入自己的細胞，你將會體會一切。如果你要，你會讓造物主的本質在你內在。你看到一朵花便成為那朵花。當你見到樹上有一隻鳥，你會成為那隻鳥。現在你有能力這麼做，而且你會在某些時刻這麼做。
+
+在我走前，我想挑戰你的心。你們全都非常了解氣場。一切都有氣場。建築有氣場，樹木有氣場，水池有氣場，動物也有氣場。大多數時候，樹木的氣場是帶點綠色的美麗金色。建築的氣場是帶點灰色的白色。
+
+我們要你開啟第三眼。心中設定意圖要看見創造之美。接著，當你看到建築，你不會看到它的邊邊角角，而是會看到它的氣場。你會看到美麗樹木的氣場，你會看到花的氣場。你將能看到一切的氣場。最好的情況是你會開始以神的眼睛看事情。你只會看到美。當你只看到美，這還只是觀點。請用愛，用你能有的最偉大的力量來看。這會改變你的 DNA。祝福各位。我是麥達昶。
+
+## 提升你食物的振動
+
+哈囉。我是食物的天使，明確地說，是蔬菜和植物界的天使。我的名字是薩彌爾（Samiel）。今天，我想簡短地擴展你的意識和心靈，來看看你吃的水果 DNA。
+
+地球上所有活著的事物都有意識和 DNA。水果有 DNA，不過如果你食用的水果的 DNA 和你的 DNA 並不相容，你的意識可能會受到影響。最好能從果樹摘下水果，因為這樣它便包含最純淨的原始 DNA。不過，如果水果經歷許多處理過程，DNA 就會沉睡，會萎縮。請試著取得最佳狀況的水果，然後雙手捧著水果，請求水果的 DNA 和振動層次能變得與你相容，這樣你和水果就會平等。
+
+任何食物都可以這麼做。如果你居住在城市，那麼你或許無法獲得新鮮而自然的食物。所以你必須在超市購買食物或者吃罐頭食品。這樣的食物，由於處理方式，已經失去多數的原始 DNA 或分子結構。
+
+雙手捧著食物，或是讓你的手由食物上方滑過，請求將這個食物提升到你的振動層級。你所攝取的食物對你的振動、基因、意識都有很大的影響。請有意識地請求你的食物能提升到你的振動層級，尤其是水果。多數的水果包含高頻振動，與你的 DNA 有很高的相容度。它們有意識，都是光的生命。它們來到地球是因為它們想要支持人類。不過如果用化學合成物質來種植水果，它便會開始完全失去自己的意識。
+
+大師們對自己的食物非常謹慎。許多古代大師自烹自食，因為烹調食物的人的念頭會影響你所吃的食物。人們常說，最好的烹調來自母親，因為當母親為孩子烹調，食物就包含了她對孩子的愛。所以為你準備食物的人非常重要。如果這個人覺得烹調是個重擔，很不喜歡煮飯，那樣的感覺會影響食物。這個人的想法會進入食物之中。
+
+你或許無法每天烹調自己的食物，不過至少你能運用意圖來增進食物的振動，請求食物能符合你最高的振動。我是薩彌爾，是食物天使。感謝並祝福各位。
+
+## Chapter 14 揚昇大師如何能幫助你揚昇
+
+2013年8月21日
+耶穌、巴巴吉、查亞、鯨魚之靈、大天使麥達視
+
+哈囉，我們是耶穌大師和巴巴吉。願我的家人諸位均享受祝福和愛。你們身處地球的此刻非常重要。人們以自己的方式努力，要提升自己的振動並支持自己和人類的進化。請記得要請求宇宙領域的支持。支持將會無償給予。我們注意到許多人類都不會請求宇宙的支持，那怕這樣的支持永遠向他們開放。請每天請求宇宙的支持。
+
+有許多存在都要服務你。要知道造物主的法則：如果你不請求，大門便不會開啟。你可請求擁有地球經驗並獲得啟蒙的導師來協助。幾位較受歡迎的大師包括伊利亞、安娜、還有偉大的印度導師斯瑞·奧羅賓多（Sri Aurobindo），以及許多其他人。當這些導師離開地球，他們會留下銘印，就像地上的足跡，至今仍然存在於地球層面。由於你們活在地球層面，你或許能取得他們留下的銘印。無論他們如何揚昇，他們的足跡仍會存在。
+
+我們要你找到這些人，研究他們的生平，好好學習，接著你便能接收到揚昇的強大能量。他們要服務你。他們要協助人類進化。有許多宇宙大師會支持你，你必須每天請求他們的支持。詢問你的指導靈和大師，他們都支持人類，尤其是針對揚昇這件事。
+
+此外，還有許多樹木支持著人類。麥達昶最近提到大橡樹、美洲杉和紫杉。還有其他大樹是你能合作的對象，例如大榕樹和其他樹齡超過百歲的大樹。他們能夠導入更高能量。
+
+你也可以呼喚龍的支持。〔大天使麥達昶：你可呼喚它們並感受他們的支持。龍是你的支持能量之一，就像星辰一樣。坐下來，呼喚些偉大的生命。你怎麼呼喚它們？有特定的聲音，特定的聲波振動。（這些聲音的資訊請參見本書「附錄一：與龍的能量合作」。）〕
+
+在人類出生時，他們會接受許多支持。其中一項支持存在便是偉大的龍。呼喚龍前來支持你提升自己的振動，尤其是揚昇所需的振動。
+
+## 以聲音提升你的振動
+
+我們還想談談聲音。某些聲音，例如印度音樂中的「拉格」（raga）還有其他文化的某些音調可以在一天的特定時段吟唱，藉此強化你的意識。因此拉格會被編寫出來而且無懼時間的挑戰。我們要你研究這點，因為某些拉格能帶你進入更高層次的意識。你將能取用更高的智慧和更高頻振動的能量。我在印度時便練習這些拉格以提升自己的振動。
+
+現在我們開放提問。
+
+## 我們曾有十二束 DNA，但是過去五萬年間我們一直退化。這會如何影響我們的 DNA？
+
+DNA 永遠是開放的，是一個完美的密碼。影響它的是你的意識。你需要有某些振動，某些等級的水晶意識，如此才能擁有揚昇密碼，進而打破揚昇封印並將之開啟。提升你的意識，這將自然影響你的 DNA 和其開啟。當你連結曾活躍於地球的揚昇大師，你便連結了他們揚昇之前所具備的強大能量。揚昇的那一刻是力量非常強大的一刻。
+
+## 換句話說，我們此時正進行基本的訓練，好為那神奇的一刻做準備？
+
+正是。當你連結這些大師，你便連結了他們揚昇的神奇時刻。他們在星球歷史上留下力量如此強大的足跡。你正與這些足跡連結。你能否想像自己站在伊利亞大師面前，看著他準備揚昇？那是榮耀的一刻。
+
+## 最後晚餐之後的煉金術轉化
+
+讓我告訴你另一個力量非常強大的時刻，尤其是對於居住在以色列或曾去過那裡的人。一個力量強大的時刻發生了，就在耶穌被逮捕前的那個晚上。這稱為最後晚餐。
+
+在最後晚餐之後，在我們歷史上有一刻，兩個對立的力量——光明與黑暗——對峙升到最高點。最後晚餐後，是一個
+
+## Chapter 14 揚昇大師如何能協助你揚昇
+
+魔法和轉變的時刻。抹大拉的瑪利亞和我前往客西馬尼園¹（Gethsemane）並且與造物主連結，請求指引。在那一刻，天空開啟，無條件的愛湧過抹大拉的瑪利亞和我。
+
+那一刻的能量仍在客西馬尼園中。如果你能與它連結，你便能連結自己意識的黑暗面與最崇高的光明面。這正是揚昇的真義：徹底的化鐵為金發生了。你自己最黑暗、最未受啟蒙的部份與自己宇宙性、魔法般的部分結合，然後真正的轉化就會發生。
+
+前往客西馬尼園，尋找四棵樹齡高達兩千到三千年的偉大橄欖樹，與其中之一連結。他們護持著我的能量，抹大拉的能量，還有許多人的能量。與最後晚餐這個事件連結。
+
+## 超越疼痛
+
+## 最後晚餐是否為逾越節（Passover）的第一晚？
+
+是的。在最後晚餐之後，我和門徒前往客西馬尼園，在那裡，最黑暗的黑暗與最光明的光明結合，煉金術轉化在我、在抹大拉的瑪利亞、在許多其他人內在發生。所以儘管我知道自己將受釘刑，這個轉化如此徹底改變我的意識，讓我能改變自己全身的運作方式。我經歷鞭刑、戴荊棘冠、承受折磨，但是我並不覺痛苦，因為我已經徹底轉化我的身體。我從細胞中收回所有疼痛和折磨，因此不論他們對我做了什麼，我都沒有感覺。你們全都有這個能力。
+
+> 1 註：位於耶路撒冷的一個果園，在上十字架的前一晚，耶穌和門徒在最後晚餐後於此處禱告。
+
+## 這是不是像將你一部分的意識由物質身體中收回？
+
+是的。這是你能做的其中一件事。當你提升自己的振動，你便能在經歷痛苦時控制自己的身體、感覺、情緒。你能用自己的思想來脫離痛苦。
+
+## 我想我曾經如此做過。
+
+運用這個力量的方式就是增加你的能量直到你感覺不到任何疼痛。
+
+## 你所說的是不是心理治療師所謂的「有意識的抽離」（conscious disassociation），亦即有意識地放下自己身體的感覺？
+
+不是的。你非常意識到正在發生什麼，但是你由疼痛抽離。此外，如果你能覺知自己的身體，已經與自己的身體溝通，那麼身體就會更容易回應。你可以收攝，也就是去除疼痛的意識。多數的疼痛發生在心智中。
+
+大約三十年前，我遇到一次電鋸意外，切掉一根手指的指尖。那真是錐心之痛。到了第二天快結束時，我學會與身體交談，告訴它疼痛的目的是要警告我。我知道自己遭遇了問題，所以也不再需要接收警告了。因此疼痛就消退了。
+
+## 您說的是類似這樣的事嗎？
+
+正是如此。你可以微調，可以收攝。許多巫醫大師都示範這一點。例如，假設發生了地震，你被埋在瓦礫堆裡。你知道自己絕無生路，也不會有人伸出援手。你就要失去自己的生命。你可以使用某些聲音、吟唱和音調，讓你的靈魂有意識的離開身體。你可以更和諧、更平靜地離去。每個人都能做到這一點。方法存在，所以去尋找吧。〔大天使麥達昶：頭痛或是看牙醫時，你都可以有意識地做這個練習。〕
+
+當士兵受傷，能幫的一切都做了，但他知道自己就要死去，他能使用某些聲音、音調和吟唱，能慢慢將意識由自己的大腦收回。那麼他便能優雅而平靜地轉換。
+
+## 您是否能告訴我們一些這類的聲音？
+
+這些只能有老師直接教給學生，這點必須加以尊重。你或許該與你自己的指導靈和導師連結以獲得這項資訊，因為這是師徒之間口耳相傳的個人教導。〔大天使麥達昶：這些口傳教導是針對高度進展的靈魂。他們需要學到這些。西藏和每週原住民巫醫都會練習這個修持。
+
+假設你被一塊大石頭壓住，知道自己快死了。你不希望讓死於大石碾壓的痛成為你的負擔。透過有意識地吟唱這些字句，痛苦不再，你也不會帶著痛苦的意識到下一世。這樣的吟唱也會支持你的靈性身軀。你不會想損傷自己的靈性身軀；你隨身帶著它，希望它盡可能保持最好的狀態。〕
+
+我有另一個問題，和客西馬尼園的那一刻有關，當時偉大的光明與黑暗兩相碰撞，產生煉金術反應。我覺得這很難理解。這是否代表參與其中的每個人的黑暗或負面層面向前顯現並獲得提升？您說的是這樣嗎？
+
+不是的，當時有巨大的黑暗，來自羅馬人對以色列的子民和對我的迫害。像人類一樣生活和死去的可能性比起多數人認為的更加巨大。你必須真的知道死亡只是褪去物質軀殼。我示範了這一點。那是巨大的轉變，為人類意識揭下了一層帷幕。人類根本想不到。想像一下，兩千年前，一個人類復活並證明死亡並不存在。
+
+這是此刻我們希望教導人民的。其實真的沒有死亡。如果你具備這個意識，那麼生或死都不會讓你恐懼。生命是永恆的。為生命永恆的這個意識定錨，這正是我們所要談的。
+
+〔大天使麥達昶：你可以視死亡為結束，或只是你所擁有的永恆生命的某個過程的結束。這些觀點大不相同。所有經典、所有宗教都教導生命是永恆的，而且你也是永恆的。所以不要將死亡²視為一切的結束。它只是你正在擁有的特定經驗的結束。〕
+
+所以一切還是攸關那影響如此廣大的神奇時刻嗎？我們正嘗試要慢慢了解到我們的意識才是那神奇時刻的真正控制者。
+
+正是。揚昇就在一刻之間發生。
+
+我的導師和我的大師，大天使愛達赳，會說每個人都將揚昇。重點是什麼時候。
+
+> 〔聖哲曼：這是來自一場通靈聚會。由我們的時間觀點來看，地球上的每個人將會在 275 年到 300 年之間揚昇。〕
+
+## 使用符號來祝福水
+
+我有個問題和之前的討論有關。您提到可用無限大的符號和生命之花來創造儲水容器。可否請您解釋這些符號與能量活化有什麼關係？
+
+這些符號符合你物質身體內的幾何圖案並會與之互動。你身體的每個細胞都會轉變成無限大符號。每個人類身體都帶著 144 個神聖幾何圖案，其中 44 個位於喉輪。這些符號會與你內在的幾何圖案互動。這很簡單。這個〔符號〕是否引發任何感覺？它是否讓你覺知事物尚有全貌？宇宙自有平衡與完美。天堂和地球全都完全平衡。
+
+符號會直接與你說話。符號能夠繞過心智，直接進入你的潛意識和無意識心靈。因此說符號會溝通。符號是跨次元的。要以線性方式傳達某個符號的意義可能需要好幾天，有時甚至是好幾年。不過，當一切都濃縮了，你不會看著線條，而是看到整個符號。同樣的，如果你以線性方式觀看自己的生命，從 A 點到 B 點，由於符號的多次元性，其意義變得更深。符號就如同繪畫，會對每個人類的跨次元層面說話。
+
+施予祝福也會提升你的意識。你可以說：「祝福所有創造。」你也可以分別祝福事物：「我祝福所有創造」或「我祝福所有支持著我的事物，包括帶給我滋養的所有食物。」施予祝福會帶你到達更高的存在層面。當你給予祝福並感覺到愛和感謝，你會自然地在生命中接收到恩典——帶著恩典活出每分每秒。
+
+## 自閉症兒童
+
+各位好，我是蓋亞。最近，在一個稱為美國的美麗國家，發生了對自閉兒童和其家庭的攻擊。這些孩子有非常高頻的振動，他們也帶著最純粹的愛。再過三十到四十年，許多家庭會希望獲得一位自閉兒童。不過，此刻這些人在美國正承受著攻擊。
+
+〔聖哲曼：此處所謂的攻擊意味他們受到毀謗、貶抑、或者被迫表現得比自己真正的樣子更加渺小。敏感的人能夠看到這些孩子所具備的明亮光芒。他們是人類的禮物，因為他們帶著最純粹的振動。在他們的存在面前，你會自然地感覺與自我連結。他們有能力喚醒你看到自己的神性、自己對自我的愛。他們的光如此強大，如果還不習慣的人感覺到他們的光，便會感到害怕。這在歷史上經常發生。在大師行走時，光會伴隨著他，因此人們會攻擊大師。同樣的事也發生在這些孩子身上。會有越來越多的這些孩子誕生，他們會帶著明亮的純粹的光。
+
+在 Google 上搜尋「attacks on austistic child」（攻擊自閉孩子）會有數百則結果。〕
+
+我們要你將這些孩子放在自己心裡，因為我們需要他們。他們帶來非常高頻的愛，將它安頓在大地裡。我們需要他們留在這個星球上。他們會受到攻擊，是因為他們的光如此明亮。觀想所有自閉兒童都很安全，都能持續進行他們來到這裡要做的工作，也就是安定並持守非常純淨、振動的愛的能量。他們和其他次元的連結非常緊密。
+
+〔聖哲曼：將他們放在光裡。觀想一道美麗的金色光芒由你的心湧出，環繞世界，前往所有自閉兒童。這要在靜心時進行。〕這些孩子帶來非常高頻的光。當你擁有更多的光，人們會攻擊你。這些孩子有如此純淨的心，此時我們正需要他們。
+
+## 以閃電的力量揚昇
+
+現在我們想擴展你們對另一主題的想像力。在這場通靈聚會發生的時間，你們所有人正在經歷夏天。在這個酷熱時節，有些時候會有大雷雨。看著這些史詩般的閃電、打雷、狂風暴雨會相當有趣。人們會歡迎雷雨，因為它們會冷卻大地。
+
+在閃電打雷的時刻，巨大的力量會釋放。科學家正在努力捕捉閃電的力量，因為一次打雷便足以提供一個城鎮的用電。你能與這股力量連結。我們知道你們某些人一直鍛鍊生物相對性，會傳送自己到不同地方接受療癒。我們要你前往雷暴的中心。要勇敢。你會受到保護和指引，你也將感受巨大的力量。要確認你和自己的身體說話，好讓身體開啟，讓你能容納越來越多的能量。你將發現自己的力量倍數增長。
+
+> 〔聖哲曼：記得，你就是你的注意力所及之處。無論你的意識前往何處，你就在那裡。將你的意識投射到雷暴中心會讓你與偉大的力量泉源連結。你可以用呼吸進入。這是力量非常強大的泉源，不過你必須能夠以自己的肉身容納這個振動，因為這可能會燒灼你。
+
+首先，你必須詢問自己的身體它是否能夠接受這個不可思議的強大光明。要記得，暴風眼也是神的一部分，而且你要與那個意識連結。一切都屬於神。有趣的是，就像你會在接下來幾年看到的，將會有科學家發現如何駕馭閃電。〕
+
+揚昇會在剎那間發生——當你內在發生能量爆炸。那個能量就像推動火箭的能量。火箭帶著巨大力量爆發，會飛向天空然後分離。同樣的，你能駕馭透過閃電而下載到地球的龐大能量，與它連結並藉此點燃你揚昇的火箭。你的內在會發生化鐵成金，你將會踏出物質實相並進入一嶄新的梅爾卡納場（merkanah field）。
+
+想像你是一枚火箭：你正準備起飛，而且你透過強大力量知道自己將會分離。揚昇就是這麼一回事。你會與地球的意識分離，完全進入一個新的意識。
+
+根據您所說的，那麼其實並不需要梅爾卡巴（merkabah），是嗎？這完全純粹就是意識。
+
+正確。這純然就是意識。我們感覺你有能力做到這一點。前往閃電打雷的中心。這是一種爆炸性的力量，所以你必須預作準備。你必須詢問自己的心這個作法是否妥當。那裏有強大的力量，難以置信的力量。
+
+所以您的意思是，如果人很肯定也無所忌憚，那麼就成為閃電與雷鳴？
+
+正確。你正駕馭這個龐大的力量。想像一下，當雷擊中某人，他們受到燒灼。它的能量如此龐大，能推動你由當前的意識層次到達不同的層次。這是立即發生的煉金術。
+
+在連接閃電能量時，可不可以請求能量的程度控制在此刻的肉身能夠安全處理的範圍之內，或是提出類似的條件？
+
+要控制能量流動非常困難。此一能量的降臨是如此強大，如果你還沒準備要處理，我會建議不要進行。你的心智必須足夠地開放才能觸及這更高層次的意識。這就像使用藥效很強的精神科藥物。這會擴展你的意識，但是如果你還沒做好準備，這樣的藥物可能會對你產生巨大影響，你可能會神智不清。
+
+您會將這個資訊納入書裡嗎？本書的讀者可能包括還沒準備好要這麼做的人。
+
+這是一本實用手冊，書中內容全都要根據你自己的內心共鳴來謹慎使用。如果你準備好了，那麼這些技巧可以在一瞬間帶來徹底轉變和轉化。我們要你開始鍛鍊這些，以它們作為靜心對象。你將會在靜心中感覺能量來到。
+
+## 所以我們需要強調做這些練習的人需要自己評估分辨嗎？
+
+正是。可是人們也需要知道。有些能量，你必須謹慎且在完成準備之下使用。如果不這樣，你可能會瘋狂。如果你無法處理降臨的光，那麼你的心可能會瘋狂。這就像讓五千瓦的電流通過一百瓦的電線。電線會立刻燒毀。你必須做好身心準備，你也必須詢問你的靈魂，因為你的靈魂才是你生命的主控者。
+
+如果你們有些人曾與朱力安諾（Juliano）這位偉大導師合作，那麼你們也許要與他討論如何運用閃電打雷的能量。接著，如果你能吸收這樣的能量，便可以將它用在你的生物共鳴（bio-resonance）練習。有一段時間，你會感到難以忍受的熱，會很不舒服。不過你將能容納這樣的光，能將它用在同時身處兩地或更多地方上。
+
+對於這個練習，你必須請求自己靈魂的完全支持。請想像整個黑暗受到即刻降臨的、最強大的光明力量襲擊。詢問你的靈魂。這是完全並短暫將自己傳送到嶄新意識層級的最佳方法之一。這個能量非常強大、非常好。閃電和打雷並非意外發生。它們有偉大的意識，就像颶風也有意識。許多巫醫和魔法師會在雷暴時工作。偉大的孔雀會在這時舞蹈。禮讚這個能量。如同麥達昶所說的，你不提升就會墮落；你不會保持不動。你必須記得這點。〔聖哲曼：這句話引自一次個別教學，並無文字記錄。〕
+
+在討論更高層級的責任時，我會用下行電扶梯來比喻。這就像從下行電扶梯往上走；你不能停著不動，因為如果你站著不動，你會往下。
+
+再也不能站著不動了。每一刻都是持續的進化過程，要有意識地面對。這全都在意識中發生。我親愛的家人，今天在結束之前，我們有位非常特殊的客人。
+
+## 鯨魚之靈
+
+我們親愛的家人，我們是鯨魚之靈。我們深愛人類，因為你們正在進化並踏上神聖旅程。我們知道這並不容易，有許多挑戰和黑暗。儘管如此，人類仍持續進化。這讓我們許多都感到驚訝。如果人類並無進步，我們便不會在此地。諾斯特拉達穆斯（Nostradamus）曾預言世界戰爭將會於 1999 年發生，到了 2012 年世界將有大量人口死去。你們卻透過有意識選擇提升自己的意識來改變這一點。嬉皮運動²（The Hippie Movement）協助轉變了人類意識。儘管他們會使用毒品，不過他們也教導愛。
+
+> 2. 註：關於嬉皮運動的歷史，參見（http://en.wikipedia.org/wiki/History_of_the_hippie_movement）。
+
+我們腦中帶著重要智慧和許多資訊。我們帶著星球進化的歷史。朱力安諾曾提到我們的功能，其中之一就是為大地母親擔任使者。大地母親在不同地方有不同需要。〔聖哲曼：這些是尚未以文字記錄的教導。朱力安諾是來自大角星的導師。〕
+
+全世界的人都喜歡看鯨魚。他們會傾聽我們的聲音，在書中閱讀我們的事，觀看我們的照片。我們帶著整個星球進化的歷史。你的進化史也編碼在我們內在，而且我們的分子結構直接保存人類的 DNA。許多科學家都認為我們唱歌是為了呼喚伴侶。不過我們其實是在呼喚你們活化自己的 DNA。
+
+所有創造的生物都包含水元素，當他們聽見我們的呼喚，這會觸發他們的 DNA。我們要請你們所有人有意識地與我們連結。有許多生物包含這些銘印，例如偉大的山納·庫瑪拉和大地母親。我們也帶有一個龐大的模式庫，包含你們的能量場、靈魂史、以及在宇宙中扮演的角色。我們邀請你走向我們，與我們一同學習。你可以在睡眠時呼喚我們。我們將會來到。
+
+## 轉移地球磁場
+
+我有個問題。我想知道更多關於地球歷史的轉變，我們如何走在自我毀滅的道路上（直到 1987 年），讓人類種族本來會殺死自己，但是狀況卻改變了。我想更了解這件事：那是怎麼發生的，人類是怎麼做出那個轉折。
+
+這個問題無法簡單回答。磁場大師克里昂〔其通靈者為李卡羅〕在這件事上扮演了重要角色。他轉移了地球的磁場。如果地面有強大的磁場能量，人類便難以覺醒。磁場讓人深陷於自己意識內的某些劇本，時間可能長達數千年。當大地有很強的磁力，就不會有什麼改變。中東便有很強的磁場能量，因此人類不願改變。在美國，維吉尼亞州和康乃迪克州仍然非常保守，那裡也有很強的磁場能量。不過，在舊金山，人們對新觀念相當開放。克里昂發揮了重大功能，轉移磁場的效應。
+
+諾斯特拉達穆斯在描述世界末日時所看見的確實沒錯。那是場景之一。不過他沒見到人類覺醒的場景。嬉皮運動造成很大改變。你們開始經由自己有意識的選擇而覺醒。接著，和諧匯聚發生，而你們被問道：「你是否準備好要轉變？」人類回答是的。所以接下來二十年，地球的使命就是提升自己的意識。地球的守護者觀察著，想知道地球上的意識是否會提升。
+
+當時的意識非常低，所以諾斯特拉達穆斯所說的場景很可能會發生。但從那時以後，地球的意識變提升了，許多的典範也產生轉移，包括蘇聯崩解。蘇聯本來可能在 1999 年開始至 2012 年結束的世界末日中扮演主要角色。不過既然蘇聯崩解了，那個場景就被取代。就在那時，許多人類開始在時鐘上看見 11:11 的數字。接著他們又看見 12:12。這些都是轉變的日期。
+
+## 光明會揭露黑暗
+
+我們現在正經歷一次轉化，穩定這次轉化所需的能量需要時間。有更多的黑暗正在顯現，因為不再有秘密了。光如此明亮地照耀著，有越來越多的秘密都會被召見。這就像一個老舊的空瓶。當你想將它裝滿水，髒水會先跑出來。意識的轉化真的會改變事物，有大量的光已經產生。這會揭露更多黑暗。
+
+在特殊的時代，有更多光會進入大地，好讓更多黑暗能被揭露。美國有一個巨大的黑暗最近被揭露了：美國政府正監視著每個人。這件事本來隱藏著，但是它必須被揭露，因為大地有了更多的光。你會看到越來越多的光開始閃耀，這也進而會彰顯許多製藥廠、保險業、健康照護公司正操控著人類。他們讓人們繼續生病，好讓自己能夠賺錢。一切都會在未來揭露。關於政府如何企圖控制人民，好讓人民繼續無知的真相也會更頻繁地為人所揭穿。不過他們不會成功，不管多麼努力嘗試。他們會恐嚇、會使用武力，不過光明最終會取得勝利。
+
+看看新聞。一位來自巴西的年輕人〔大衛·米蘭達（David Miranda）〕由柏林搭機，在倫敦的希斯洛機場正要轉機前往巴西。英國首相下令將他拘留了九小時，因為他攜帶著某些關於愛德華·史諾登³的資訊。你認為這會停止嗎。政府們企圖要恐嚇人民。再重複一次，光已經照耀在人們正在做的事情上。這不會停止的。
+
+> 3 註：英國 BBC 新聞。「大衛米蘭達被捕：議員要求解釋」，2013 年 8 月 19 日，http://www.bbc.com/news/world-latin-america-23750289。
+
+## 正在到來的光將黑暗沖洗出來。
+
+正是。你看到某些利益團體正在企圖控制人類。在許多國家，警察和司法系統與大企業攜手合作要控制人民。
+
+## 人類是金錢的偶像崇拜者。人們可以被收買。
+
+每個人都被收買，即使是法官。有些公司撥經費給科學家推廣某樣產品並撰寫有力的報告。銀行家和信用評等公司會收到大量金錢。一切都慢慢地攤在陽光下。
+
+## 一切的創造都支持人類
+
+印度最近授與你們稱為海豚的偉大生物非公民資格。印度政府認為鯨豚類是非人類的人⁴。人們逐漸領悟這類偉大生物的重要。當光閃耀，人便覺醒，會了解一切創造的重要，知道他們如何支持人類。我們還未見到重大的干擾或大量的生命流失，但是黑暗將越來越被揭露出來。為什麼我們要允許這樣的事？
+
+## 好讓人們覺醒。
+
+正是。不過問題是：他們會覺醒嗎？當然，總會有些人將會覺醒。
+
+> 4 註：麥克·亞當（Mike Adams）。「印度政府授與鯨豚人格權」，2013年8月9日，《自然新聞》（Natural News）：http://www.naturalnews.com/041547_dolphins_personhood_intelligence.html。
+
+## 靈魂 DNA
+
+## 我們不能改變人，可是我們有沒有辦法知道自己如何影響他人？或者那並不是我們的事，而我們應該好好做自己的事並希望一切都好？
+
+不，你們正在影響。就像之前提到的，一個心中具備完整、純淨且真誠的愛的光之存在最多可以影響到兩萬人。我們正尋找關鍵多數的人。就是這樣。當 144,000 人用半小時共同冥想和平，世界的犯罪率在那段時間確實降低，這也證明了這一點。
+
+## 向領導者傳送光
+
+我們必須向世界的所有領導者傳送光，因為在領導者做決策時，數百萬人會受影響，因此犯錯的空間相形之下就非常小。為所有領袖護持光，好讓他們能夠做出正確決策。他們仍有自由意志，不過傳送的光越多，效應就越強。如果每個人都向領導者傳送光，情勢就會改變。
+
+讓我給你你們的例子。最近，我們全都向羅薏絲傳送光並為她冥想，因為她經歷一次心臟手術。她在醫院只待了八天就出院了。這難道不是奇蹟嗎？〔來自麻塞諸塞州，大巴林頓（Great Barrington）的羅薏絲·哈特維克（Lois Hartwick）是作者們的個人朋友，並且在 2013 年 8 月進行開心手術。〕
+
+5 註：世界團體靜心，2011 年 10 月 23 日：http://www.wisdom-forum.com/meditation_greggbraden.php。
+
+## Chapter 14 揚昇大師如何能協助你揚昇
+
+要將光傳送給所有領導者，因為當他們做出決策，數百萬人會受到影響。領導者需要做出明智決定。讓我們為所有領導者護持光明，例如歐巴馬總統以及澳洲目前的領導者，總理東尼·艾伯特。澳洲目前正發生著光明與黑暗的大戰。向他和向每個人傳送光明。那麼領導者將能清楚地看到更多的光，並根據那樣的光做出決策。
+
+在我工作的地方，我會見到許多能量療癒的案主。在我仍在那裡工作時，有越來越多渴求靈性的人前來找我。以前不是這樣的，但是現在人們會提出真正的問題，都在試圖將靈性融入他們的生活。幾年前，這相當罕見。這是不是也有部分與自宇宙降臨到他們身上的光有關？
+
+當然——也和你們所有人所做的努力有關。達成越多的關鍵多數，人們就越會受到影響。不過由於地球上的高頻宇宙能量，許多人都相當混亂，不知道該往何處去。他們尋找著答案。你就像燈塔一般閃耀著自己的光要協助這些人。所以你會見到越來越多人覺醒，越來越多資訊、知識、通靈智慧降臨。你必須明辨什麼對人的進化是恰當的，並且據此做出選擇。
+
+## 將意圖注入物質
+
+在先前的聚會中，您提到水〔參見第十一章：清理並淨化你的能量〕。您提到製作手工陶器來儲水。我是陶器匠師，正在考慮製作這樣的器皿。您提到無限大符號以及四個方向，您也提到底部的生命之花符號。如果我要製作儲水器皿，是否還有什麼是我該知道的？
+
+你只需要知道一件事：你行為背後的意圖。在你製作陶器時，讓你心中具備最大的愛，並且塑造意圖要讓你的陶器能裝水並且支持、啟發你，喚醒你內在的神的能量。那麼這便是最恰當的開始。
+
+無論你做什麼，最重要的就是每個行動背後的意圖。在製作陶器時，對陶土說話、對粘土說話、對加入其中的水說話，接著你要請求支持，它們也會給你支持。這些事物也都擁有意識。它們也是大地母親的一部分。當事物結合起來，請求它們彼此合作，它們就會完全支持你的意圖。
+
+家中許多事物都很悲傷——桌椅、窗簾、沙發——因為它們被使用、被取得、被羞辱、違抗意志被放在屋子中。沒有人曾請求它們的同意。它們也是大地母親的一部分。你會開心嗎？你是否希望別人問你：「你願意為我做這件事嗎？」兩者是有差別的。要感謝你家中的每件東西。請發自內心將愛與祝福帶給這些事物。
+
+你該如何感謝它們？在靜心時，你可以在心中觀想綠色森林或綠色的樹木。當你為自己的床單、為家中每樣東西做這件事，每件東西都會感到放鬆。碰觸窗簾、床單、或是音響——無論你的臥室有些什麼東西——然後對它們說話。將心的能量傳送給它們，並且感謝它們。每樣東西都會放鬆。下次你走進那個房間，你會立刻感到放鬆，因為你周遭的一切都處在放鬆狀態。
+
+## Chapter 14 揚昇大師如何能協助你揚昇
+
+在你製作陶罐時，先請求同意。尊重大地母親的材料，因為它們提供自己的生命和本質讓你創造這個實相。當你這麼做，你便帶來高頻振動能量。〔大天使麥達昶：當你請求陶土和其他製作陶罐材料的允許，它們將會願意支持你。當你請求，就會有更多的能量給予。未來，以陶器製作食物將會越來越流行，許多旅館將會提供陶器。食物會更可口，也更能滋養你的身體。〕
+
+高度發展的社會就是如此製造太空船的。製造者會呼喚他們塑造太空船所要的一切，塑造意圖和自己的渴望，好讓太空船永遠不會衰敗。未來，一切都是這麼製造的，包括電腦。衰敗不會發生，因為你們會請求材料同意合作。
+
+假設我告訴你：「你要為我做『這個』或『那個』！」你會開心嗎？如果我先徵得你的同意，兩者比較一下。你或許會更輕鬆地完成。關鍵在於合作。所以，在你製作陶罐時，先請求陶土、泥巴、水或任何必須加入的本質一起合作。你所做的事情背後的意圖最重要。一切都會水到渠成。這便稱為善。你請求宇宙力量的支持。
+
+我們是鯨魚之靈。祝福各位。在我們結束前，麥達昶將與各位說話。最親愛的各位，我是大天使麥達昶。我們天使存在最愛和人類共度時光，可以辯論交談，即使是與神有關的主題。正是透過如此，你們才能學習——只要討論是出於願意知道更多，而非出於自我感。我們真的喜歡與諸位全體交談，因為你們每個人都努力要更加認識神。生命就是這麼一回事。千萬別停止追尋，我親愛的家人，千萬別停止追尋。
+
+## Chapter 15
+## 這段旅程屬於你
+
+2013年9月2日
+蓋亞、瑪哈特馬、大天使麥達昶、聖哲曼
+
+我親愛的家人，你們好。你們的努力讓我的身體不一樣了。在這次通靈聚會的时刻，美國正值颶風季節，而今年你們沒有很多颶風。這是因為所有覺醒靈魂共同祈禱的結果。這正在讓世界不同，而颶風只是範例之一。我們要你比以前更努力護持光明，好讓下個戰爭不要爆發。你們的祈禱有助於帶來改變，而你們也會看到效果。今年你們會遭遇比以前更少的野火。某些州已經發生野火，不過如果你和其他年比較，今年發生的少得多了。
+
+現在我要你為另一個目的的工作，為一個自私的目的：為了我。我需要移動自己的身體，而在我移動時，有時會顯現為火山爆發或地震。今年〔2013年〕或許我的身體會有動作。我要求你們護持著光，好讓我能以非常優雅的方式動作，不要造成太大的動盪。因為，就像你一樣，我有時也需要移動，不過如果有人支持我，我可以更優雅地行動。
+
+你們是我的後援隊。你們在這個星球上所做的事對我的身體有巨大的影響，因為我們在DNA層級、神聖神性層級、在構成你而我也是其一部分的元素層級有所連結。我們已經一起跳舞。所以我請你持續祈禱並設定意圖，好讓我能夠輕鬆、更優雅的行動，因為今年我需要移動至少三次。
+
+有時候我需要特意安排自己的身體，因為在地震發生時，有許多事物由大地釋放出來，新的振動能量以及靈性真理會公諸於世。如果我們能和諧且平衡地合作，我能繼續做自己需要做的事。這個知識是你 DNA 的一部分。你們都正在成為大師。耶穌弟兄說：「我實在告訴你們，你們若有信心，不疑惑，便能行這樣的事，而且更多」（馬太福音 21 章 21 節）。他已經向你們展示這一切。
+
+當風暴來臨，他對風暴的靈說話。他怎麼能做到這點？因為他已連結自己的量子存在、自己完整的 DNA 束，所以他能在那個層次與風暴溝通。我們要你從今開始從那個層次溝通——所有類型的溝通，不僅是與我溝通，也包括與人類的溝通。在你說話之前，設定意圖要發自你的量子存在來溝通，而不是基於一組成見概念。你的溝通將會出自更高的層次，並且創造雙贏的情境。
+
+我們要你從此刻開始考慮這一點：你說的一切都出自量子層次。這是另一項禮物：當你開始喚醒自己的 12 束 DNA，你該怎麼知道你已經有意識地喚醒 DNA 到什麼程度呢？證明或衡量標準為何？你的實相將會慢慢轉變，不再由個人的觀點，也不是由你的自我感或人格，而是由跨入量子存在的觀點。
+
+今天，我們會觸及其他仍與 DNA 有關的主題。全世界許多光之工作者都想取用不同的更高能量——例如亞特蘭提斯的黃金意識或列木里亞的黃金意識。或許他們不能感覺多少能量。不過，如果他們改變自己的觀點，相信自己能從自己的肉身內在感受這種能量，他們便會更加成功，因為在那裡更高意識仍然存在。
+
+## 第一人稱的肯定語和觀想
+
+肯定語和觀想不總是如人期待或渴望的方式生效，因為這些做法都是在第三人稱的層次進行。它們必須在第一人稱的層次進行。例如，如果你想觸及大角星的更高能量，這些能量也存在於你內在。請求取用你內在的這個能量。接著你的連結將會在更高層次發生。至少你是在大角星人的層次遊戲，而且你正在與大角星人合而為一，因為你正在喚醒自己內在的這個能量。
+
+> 〔大天使麥達昶：要由第一人稱來修練，你必須相信自己是萬能造物主的本質之一，和造物主擁有同樣的能量。這或許需要很多工作，因為有許多信念系統需要去除。當你來到這個層次的大師風範，你會記得自己真正的身份，具備所有創造的力量。即使在你入睡時，你也在創造自己的生命。
+>
+> 你會記得自己是以物質的人的型態存在的神，而你會和耶穌做一樣的事——甚至更多。許多大師都證明了這一點。耶穌不是唯一行使奇蹟的大師。巴巴吉曾經行使許多奇蹟，賽巴巴（Sai Baba）也是，最近一次就在三年前。要行使奇蹟，你要知道自己乃是萬能造物主的本質，而這樣的認知、這樣的覺知不僅要存在你的物質心靈，也要存在於你全部的心靈——無意識、潛意識、超意識——要充滿你的全部。當你發出命令，由那個空間設定意圖，它自然在你發號施令的那一刻便已創造。這會連結你內在的力量泉源。〕
+
+類似地，當你與人面獅身像合作，請由第一人稱的角度工作：從你的身體內部。由第一人稱開始，而不是第三人稱，那麼你將看到自己意識內產生量子轉變。
+
+「今天我為什麼來？」理解自己的量子本質是衡量的標準，讓你知道自己已經走了多遠，進化了多少，活化了多少DNA。當你看見一道波浪，你會看見它的美。當你看到一朵玫瑰，你會看到它的美。當你看到一個小孩，你會看到他的美。美從何而來？美在你的內在。在剎那之間，你便能觸及自己擁有美的那個部分，讓你能夠看到自己以外的美。
+
+## 取用內在的高頻能量
+
+從現在開始，當你想取用大天使米迦勒（Archangel Michael）、大天使麥達昶、或任何其他光之存在的能量，向你內在請求這樣的能量完全活化，因為就你所知，你就是群體能量。神是群體能量。數百萬的能量結合並構成了你。其他光之存在也是數百萬的能量結合。現在我開放各位提問。
+
+在亞特蘭提斯和列木里亞，我們的十二束 DNA 完全活化。是否有幾束 DNA 從那時起便逐漸衰退，不然退化是怎麼發生的？
+
+你必須記得一件事：就你最真實的本質而言，你永遠都是完美的。你的DNA是完美的。改變在細胞和基因層次發生。因此我們要你回到量子自我。
+
+## 回到史前、地球之前?
+
+當然。回到你原初自我，那是在地球創造之前。那時你是誰？你來自原初泉源，不是嗎？你的名字是什麼？「我是」。
+
+〔大天使麥達昶：要這麼做，就請求。原初型態是一個光點，由造物主的燦爛中爆發出來。你能想像自己由「萬有」中爆發出來嗎？觀想一個巨大的圓圈，充滿明亮的光，你將看到生命力量在禮讚，就像煙火一般。想像和觀想是你的靈魂使用的最高工具，藉此記起並成就大師風範。因此它們是我們高度推薦的工具。所有靈性傳統都持續使用它們。
+
+如果你能觀想它，你便能成就它。如果你能專注於某個地方，那裡就會是你所在的地方。將你的注意力放在這個誕生中的星，這個正在萌發的能量，然後與這個能量連結。即使在現在，你會感覺麻麻癢癢，那個不可思議的能量正降臨你的內在。〕
+
+## 我們如何辨認自己的DNA變化?有方法嗎?
+
+你怎麼知道自己正觸及DNA的更高意識？你會知道，當你開始從量子層次過生活，從量子層次溝通，喚醒自己生命內在的一切，而非向外在的泉源請求。
+
+讓我問你一個問題：你認為麥達昶在哪裡？他在你內在，不是嗎？無所不在也包括你！所以為何不先在內在觸及他？接著你和他的連結將會變得更加堅強，只要你在內在喚醒他的能量，並且讓自己的能量層級與他呼應。這是我們此刻要你做的事：不要向外尋找。能量存在，你也是這個能量的一部分。不再用第三人稱。一切都在你裡面。當你開始用這個角度看待每件事，你便會觸及自己 DNA 的最高一束。這便代表你的 DNA 已經活化。
+
+從此刻起，若你想與某人溝通，這個溝通不僅要出自於你的人格，更要出自於你全然的真誠、你的能量、你的生命。當你開始以這種方式思考，你的觀點便會改變，就會自然知道自己正在觸及自我內在更高層次的意識。親愛的各位，這就是關鍵。
+
+所以，讓我們假設你想取用某些水晶科技，而你正尋找某人為你通靈傳達亞特蘭提斯所發生的事。你將能找到能量的線索，因為能量無所不在。不過基礎能量，亦即最高真理，將在你能由自己生命內在取用這種能量時才會找到。記得，當你想取用更高層次的能量，首先要從你的內在取用這樣的能量。
+
+有個問題：「我們該如何在大腦左右半球之間編織線索？」正是透過這個量子層面。如果你每天都用這個層次生活呢？這代表你正活化越來越多，並取用越來越多更高的 DNA 束。
+
+## 賦歸
+
+## 誰在等待著什麼？為什麼？
+
+你在等待自己。你是自己光輝的未來！你在等待自己回家！你是否曾經閱讀我們摯愛的克里昂經由李卡羅所寫的《返家之旅》（The Journey Home）？這是麥克·湯瑪斯（Michael Thomas）的故事，這人踏上自己的旅程，想找到神。最終，當他看見神，他是如此驚訝，撲跌在地，因為他見到的神長著他自己的臉。這是本絕佳的書，有豐富的洞見，是來自摯愛的克里昂大師。他帶我們踏上這個旅程，經歷許多不同主題和情緒，最終他回到家鄉，在神身上看見自己的臉。
+
+所以你們等待著自己。這段旅程屬於你。這是你們所有人未來生活的方式，發自這個量子層面，發自你完整的本質——物質身體結合心智身、情緒身、靈性身、當然還有其他的身體。當這個結合發生，生命就成為完整的經驗，不再有分離。
+
+性會成為狂喜，因為不再有空虛；一切都是喜悅的分享。在你獨處時，你會很快樂，當你有人陪伴時，也很快樂，因為你充滿澎湃的能量本身。你吃東西不再是為了填飽肚子。進食成為喜悅的經驗。工作變成有趣的經驗。未來，工作將稱為喜悅的創造，是一種充滿，完全的充滿。你將會以物質身體、靈、物質的結合來經驗一切。你做得到；你們全都正在到達這樣的層次。你們某些人會有這個層次的階段性表現，會來來去去，但這將成為你們新的常態。
+
+## 透過量子自我來溝通
+
+當您提到量子自我，您的意思是與地球、宇宙、眾人、岩石、樹木等等相關的自我嗎？
+
+從更高的觀點，當你提到自己的量子自我，你說的其實是你所有分離的部分回來並融入你所有的身體——物質身、心理身、情緒身、能量身、乙太身、星芒身和靈性身——這些全都由所有的次元回來並結合。
+
+我給諸位一個小例子來練習：在靜心時，想像自己是公司總裁，晨間要召開董事會議。你坐在會議室內主席的位子，有十一位董事環繞著會議室坐著。這十一個存在都是你。你可以為他們每一個取名字，你能自己選擇。總裁的期待是什麼？就是這十一位董事能完全和諧地彼此合作，促進公司最大利益。當你能觀想這十二的存在完全和諧地工作，這便是所謂呼喚自己內在的十二個量子存在前來合作。
+
+就像前面提到的，如果你想進行溝通，你必須請求這樣的溝通由你的量子自我啟動，而非出自你的人格。偉大的導師威尼斯人保羅曾說，說話之前要非常謹慎地思考。偉大的導師孔子也說過同樣的事：三思而後行¹。所以讓交談不僅是發自心智，更要發自那量子存在的古老又古老的心。如果能每天做這個練習，以董事會場景結合所有其他部分，就會幫助你觸及更多部分的自己。
+
+例如，當你要進行決策，想像這個董事會議場景，許多董事參與決策過程。假設一位總裁想導入某個新觀念，他會怎麼做？他會向所有董事提案。如果所有人都說：「這是個好主意。我們就這麼辦吧，」你就知道自己的路是正確的。不過如果發生內鬥、不和諧的辯論、人人意見不同，你就必須謹慎考慮自己的提案是否真的是你想做的。不和諧代表某些部分的自己並不同意這個提案。
+
+或許你在靈魂層次或靈魂道路上並非百分之百肯定。如果超過半數的你說這是件該做的好事，你也許可以做。不過你也許也不該做。你是分裂的，會面臨挑戰，而此一行動只會創造更多業報能量。
+
+## 呼喚你的量子自我
+
+明天早晨，當你醒來，不要只是起床。留在床上幾分鐘，說：「我呼喚自己其他量子自我在此刻結合，而我設定意圖在今天藉由量子存在來經驗一切。」你會感覺一道白金色的能量穿透你。你會處在更高的位置。
+
+在一天的開始，你最初、最重要的想法將會影響你整天所有其他想法和行動。那個想法，那個醒來的那一刻最重要的想法就是會影響你的潛意識心的想法。所以為何不用呼喚自己的量子存在來開始這一天？塑造意圖要從那個層次來經驗並共同創造當天的每個經驗。
+
+你會立刻感覺不同。如果你花點時間，每兩到三小時休息一會兒，你會捫心自問為何自己從前沒這麼做。你會更處在流動之中，會享受一天中的每一刻，包括掃地洗衣。你不會將它們視為瑣碎家務，而是將它們當成喜悅的創造。你的觀點會立刻改變。我們鼓勵你從此刻起要以自己的量子自我來生活。呼喚這些存在，你的存在，你就能看見。
+
+人們會說：「如果我有更多覺知，我的生命就會更好。」
+
+親愛的諸位，你們全都是量子存在，你們也會透過這個練習而更加覺知。
+
+## 開啟金色道路
+
+你必須請求自己的情緒智能提升以呼應自己的這個量子層面。有許多導師都相當善於寫書，不過他們的情緒智能就像五歲小孩一樣。
+
+我們要再次提醒你們，要在清晨設定意圖。允許你量子自我來喚醒自己內在的量子情緒和感受。最重要的是量子之愛和量子恩典。你的生命會有全新的道路，你能像火箭一樣飛行。這種生活方式稱為開啟金色道路。
+
+這是黃金時代的開始。這是亞特蘭提斯金色意識的真正意義，因為那時人們以這種方式生活了好久。所以從此刻起，願金色道路能為你開啟，由你自己藉由活化完整的十二束 DNA 來開啟。
+
+## 療癒蓋亞
+
+每個想法、你對自己每個好的感覺，都會滋養並支持我。
+
+所以，無論你是閱讀摩西五書（Torah）或傳送祝福，你都在療癒我。每個祈禱都會療癒。你的每個善念都會療癒我。每次你對他人慈悲都會療癒我。每次你寬恕他人都會療癒我。每次你以微笑、慷慨、慈悲、笑聲、天真或純潔打動某人，你都會療癒我，因為我們乃是一體。你如何帶給我最佳的療癒？當你全面療癒自己時。
+
+人們問我：「蓋亞，我如何療癒你？我能為你做什麼？」答案很簡單：療癒你自己。當你療癒自己，我便得到療癒。我是你，具備你內在包含的同樣元素本質。當你療癒，想像我是你雙手捧著的藍色珍寶。將你的祈禱傳送給我，我會在量子層級收到，好讓它們能深入我的胸膛。當你將自己的能量安住於心，並由你的雙腳而進入大地，這會以量子能量來到我這邊。每個祈禱和思維都會有助於支持我的健全。
+
+我們藉助其他光之生命，經由「和諧匯聚」這類事件，改變了這個星球的意識。所以千萬別懷疑祈禱的力量——包括你的祈禱和其他所有人的祈禱。
+
+透過你的祈禱請求與大地母親相應，支持她完成轉變。祈禱和相應有其不同。當你請求相應，你正進行大師所做的事、人們自古以來會做的事。在他們跳舞擊鼓時，他們請求與大地母親的意識相應。請求相應，你的能量和振動立刻就會不同。會有更高頻的振動，特別是當你想與我合作時。請求相應。在你所做的每件事中，都要與我相應，這就在你的 DNA 內。
+
+我的家人，還有疑問嗎？
+
+## Chapter 15 這段旅程屬於你
+
+先前您提到與第五和第七次元合作。我聽過有人在這些次元內工作。您能否解釋這些次元到底是什麼？
+
+親愛的人，他們是意識的狀態，是你能達成的不同振動層級。當你在第五次元，你成為更完整的自己。你擁有更多意識，內在有更多的光。所以每個次元都只是不同的意識層級。它會開啟你內在另一層封印，更進一步穩定更高脈輪，並導入更多的光來造就更多意識，讓你觸及更高的意識層級。關於誰呢？關於你自己。所以這些層級都只是指出你將要看到的只是冰山一角；僅此而已。
+
+## 透過釋放來觸及DNA
+
+幾千年前，在野蠻年代，我們沒有任何神的概念，只有動物性的本質和低等振動。慢慢地，經過進化的過程和自我認識，我們提升了自己的光明含量，開始思考生命並不僅只是殺戮。這個想法喚醒了內在的光。
+
+我們個人的 DNA 是否會隨著我們釋放、解決、轉化自己經驗資料庫的每件事物而改變與突變？
+
+不會的。當你釋放，你會觸及更多自己的 DNA。這就像開啟另一層次的 DNA 意識。DNA 永遠都是完美的，都在等待你發號施令來喚醒更多 DNA。
+
+> 〔大天使麥達昶：要這麼做，你要請求你的細胞和脈輪，並與它們溝通。請求你脈輪內的能量以完美和諧來旋轉。與天使或其他存在的明亮的光合作，清理並淨化你的脈輪，好讓它們以完美的和諧旋轉，並讓鑲嵌在脈輪中的密碼能夠開啟。與你的指導靈合作，幫助你開啟這些密碼。〕
+
+## 所以這是活化的過程嗎？
+
+是的。你是否聽過封印？打破封印稱為去除——打破七個封印，找到內含的鑽石。我們將這類比為釋放。
+
+> 〔大天使麥達昶：這是開啟第七脈輪的象徵。每個脈輪都會有內嵌的能量。這些內嵌的能量就像密碼。鑰匙只能開啟相應的密碼。能開啟脈輪的密碼之一就是聲音。另一個是你的意識。裡面的鑽石就是提升的意識。這是你的「存在」部分。〕
+
+## 某些人的 DNA 在他們不知情或不同意的狀況下升級，他們的症狀和覺察整個過程的人會有不同嗎？
+
+症狀之一就是不會腳踏實地。沒有腳踏實地的人會看起來很快樂、很平靜，不過他們需要有人照顧。他們可能會成為其他人的負擔。這個世界需要人付出能量才能生存。經驗到自發性覺醒的人會處在平靜之處，他們的光也是明亮的。不過他們也需要為世界付出。重要的是要完全活在第三次元當下。不腳踏實地的人會說他們不想工作，會說他們只想靜心。不過，他們該如何支持自己？
+
+## 情緒成熟
+
+也有些人獲得了重大的覺醒，但是情緒上卻不成熟。他們成為表面先知。
+
+> 〔大天使麥達昶：表面先知只關心外表的華麗，而非藉由自己的靈魂獲得內在的偉大。他們或許成就了某種啟蒙，但是他們以此自滿，不再修練自我。他們的焦點在外而不在內，只關心有無追隨者。他們失去自己所成就的，變成如同演藝人員一般。「來跟隨我吧，因為我碰觸到神的手。」人絕不可以停下腳步，說：「我已經覺醒。」人必須持續努力，因為總有更多需要努力的地方。〕
+
+如果你在網路搜尋，你會看到新聞說有位印度的偉大導師因為性侵而遭到逮捕。他的追隨者有一千萬人之眾。
+
+> 〔大天使麥達昶：他的名字是巴普·阿薩朗（Bapu Asaram）。他就是我們提到的表面先知。他成就某種程度的啟蒙，但從未能知行合一。〕
+
+許多所謂的神聖之人都遭受逮捕。他們全都有巨大的力量，也向眾人示範奇蹟，但是他們沒有腳踏實地，所以他們虛偽的自我感佔了上風。這就是為何喚醒拙火必須謹慎施行。你需要了解人體，你必須有能力護持高頻振動的光，並且完全活化自己的量子存在。
+
+想像一下，如果你的十二束 DNA 全都活化，但你並不是個平衡的人，你會怎麼做。你可能會大大誤用自己的力量。這曾經發生在亞特蘭提斯，造成巨大災難。
+
+所以，如果有自發性覺醒，而且那人並未做好準備，那個人可能因此變得失衡或者開始虛假地展現神的存在。一個真正覺醒的靈魂永遠謙遜的。他或她的生命代表了覺醒實相的真理。一個真正覺醒靈魂的話語表達了生命自身，為真理代言。不需要表現。愛和神性都是在靜默中為人經驗。真正的大師是沈默的。如果當事人在靈性上、心理上、物質層面上都未做好準備，那麼自發性覺醒會有可怕的後果。如果你的生命力能量已經累積到高等級的氣，完整啟蒙了大腦的左右兩半球（在埃及，這稱為 sekhem，意為「生命能量」），你的內在將擁有更大力量和性的能量。你能控制它嗎？
+
+## 2038年更高的意識層次
+
+## 社會中已活化 DNA 的人和未活化 DNA 的人是否會產生分裂？
+
+讓我們不要說分裂成兩個分離的團體。將會有人與更高的光明含量共鳴，他們心中會有更多的平靜、愛、恩典。會有其他人並不在這個層級振動。人們會說：「嗯，這個人發生了什麼事。當我在這個人身邊，我覺得很好。」到了 2038 年我們將能感覺並覺察到那些意識更為覺醒的人。這就像前往修道院，和聖者處在同一空間。聖人身處的大地都會與他的存在和平靜共鳴，他身邊的人一進入他的氣場就會感覺他的平靜。
+
+據說佛陀的氣場範圍超過七公里，當人們進入此一範圍，他們感受平靜、安寧、愛、並且覺得一切都恰如其分而自己的心智也更為擴展。你的問題答案是：沒錯，我們將能感覺到差異。
+
+## 我們能否傳送光到其他人的更高自我，藉此分享並散布此種升級？
+
+當然。人們的職責就是分享，要像燈塔一樣，其他人將會接收到這樣的光。向所有領導人傳送光也很好，因為他們要做出重要決策；當然傳送給所有人也很好。盡可能與越多人分享。不過，分享不要帶有額外的動機：「我將傳送這個光給這個人，擁抱他的完整，沒有分別心。」
+
+## 透過活化身體器官幹細胞來放大該器官的能量會有什麼益處？
+
+很簡單。你為某件事物充飽能量會發生什麼事？它就能夠發揮最大的功能。假設你要處理腎臟。你為腎臟充滿能量，接著腎臟便能發揮最大功能。你的心能以最大功率運作。鍛鍊身體每個部位，因為這對你真的有益。向身體每個部位傳送愛，你將會強化那個部位。祝福每個身體部位，就像安娜〔耶穌的祖母〕教導各位的。每天早晨當你醒來，說：「我祝福自己的身體。」祝福每個部位，因為當你向它傳送愛，你便賦予它能量並加以療癒。這會讓每個部位處在最佳狀態和功效，你將喚醒一個非常高階的能量。這麼做非常好。
+
+## 靈魂 DNA
+
+## 愛的靜心
+
+閉上眼睛幾分鐘，將注意力只放在你的心。問問你的心：「你還好嗎？百分之百好嗎？」看看你的內在給你什麼答案。親愛的各位，你發現了什麼？雷得到的答案是：「不，我還有工作得做。」
+
+在生理層次，它還好；但是在能量層次，還有工作得完成。我的答案有好有壞。
+
+因此有一種靜心稱為「進入心室」。你可以進入每一間心室，去問：「有沒有什麼地方是我沒有為最高的善護持光明的？我該如何按摩自己的心？」按摩你的心，讓它放鬆，將它釋放，並且愛它。
+
+> 〔大天使麥達昶：你要在靜心時這麼做。記得，你的心有二十四間心室。這些是能量空間。想像你一次走一步，沿著心的水晶階梯往上或往下。最後，你會來到中央的一個位置。這就是你的心室。這是你自己私人的空間。要習慣每天前往那個地方。在此沒有人能打擾你。
+>
+> 觀想自己坐在這間心室。邀請你的指導靈。這是你內在之神的內在聖地。在這裡你能與自己的靈魂、指導靈、造物主溝通。記得每天前往那個空間，沒有人能打擾你在這個空間的平靜。〕
+
+另外還有一個針對大腦的美麗靜心，稱為「大腦呼吸靜心」（Brain Respiration Meditation）。每天，在上床就寢之前，想像你雙手捧著自己的大腦，按摩它並以最乾淨、最純潔的水清洗它。由於各式想法，大腦已經萎縮。所以透過按摩——非常溫柔地按摩來愛它並向它傳送愛和感恩——你就在療癒大腦。
+
+## 為身體不同部位充飽能量並療癒
+
+要療癒你的膝蓋，詢問你的膝蓋此時需要什麼才能發揮最高功能。你會得到答案。針對耳朵，你要問：「我是否依據靈魂完整的力量或量子層次來傾聽？」你可以請你的天使存在來支持你完全開啟眼睛，好讓你能透過靈魂的眼睛來看，透過靈魂的耳朵來聽。同樣的，針對你的心，要用你完全啟蒙自我的心來感受。跟身體的每個部位說話，一一針對每個部位來灌注能量。
+
+## 我們如何透過右腦來控制這段旅程？
+
+你無法在物質層次控制這段旅程。這段旅程會自然發生。在某些靜心中，你可以與右腦和左腦連結，不過這發生在特定時間，你也無法保持。當你努力提升自己的振動，你會自然影響你的右腦。這是個自然的過程。有個增進由左腦流向右腦能量的方式，就是持續專注並傳送光進入松果腺，觀想松果腺擴展並傳送美麗的銀白色光和光的能量束進入大腦右半球，造成右腦和左腦能量的交叉穿梭。
+
+如果你能為大腦左右半球照張相，你會用銀白色光畫一側，用棕色畫另一側。位在中央的是松果腺。有個有趣的例子，就是醫學的象徵符號，蛇杖（caduceus）。這個符號描繪兩條蛇，一黑一白，隔著松果體彼此相對。
+
+如果你想提升自己的拙火能量，你要將它導入普拉納管道，這包含左右兩側，一側屬日，另一側屬月。觀想能量經由這兩個管道提升並進入大腦內部。
+
+這兩個能量管代表大腦中央內部的黑蛇與白蛇，面對著松果腺。如果你能看到這件事發生，你就可以說靈蛇已經上升。正因如此，在古埃及，你會看到法老王頭頂的皇冠有蛇的形象。這代表他的拙火能量已經完全覺醒：他大腦的左右兩半已經完全結合。他隨時都以量子自我存在。
+
+## 如果右腦是擴展的關鍵，左腦是陰陽的旅程，我們該如何平衡兩者？
+
+你需要平衡，藉由物質身體活出物質實相。我們要你不要揚棄這段陰陽旅程。你想更認識神嗎？將更多蓋亞能量導入自己。要完整地認識神，要完整地認識大地母親，你必須完整地將蓋亞能量融入自己內在——父／母神。
+
+> [大天使麥達昶：要導入更多蓋亞能量進入自己的意識，你可以在靜心時呼喚蓋亞的感受。你將看見美麗的金色帶綠色的光進入你的大地之星脈輪，就位在你的雙腳下，並且以這道美麗的金綠色光充滿了你。]
+
+還有其他問題嗎？
+
+## 是否有任何方式讓我們能透過意識或渴望來觸發松果腺的能量？
+
+這全都結合起來，慾望結合了意圖、行動、以及自己能做到的信念。麥達昶說：「靈性進化需要行動；這不屬於軟弱或偷懶的人。」這需要投入。這需要你相信自己能獲得解脫。沒有行動，什麼都不會發生。你必須有意圖要更加認識自己；每天都要全然覺知自己在做什麼，這就能引導你找到自己尋找的事物：終究，神就在你的心中。
+
+## 在之前的聚會中，您提到數字學，也說到那會如何喚醒 DNA，尤其是像 11:11 和 12:12 這類數字。
+
+還有 555。我們說這些數字是標記。這些數字是造物主的能量，要告訴你目前的道路是正確的。不要無視這些數字。你越保持覺知，這些數字就越常出現在你眼前。這些標記不是說某人比起其他人更加進化。每個人的旅程都不一樣，處在不同的振動層級。
+
+會有越來越多的數字出現。未來，將會有 11:21、21:21、89:98、101:101。或許再過二十五年吧，這些數字將會更加重要。或者，數學界看待數字系統的方式就會出現轉變。整個系統將會轉變，而新的數字將會加入以構成基數。不過別將這些數字當成標記，而是當成造物主對你使的眼色，推動你向前，並且提醒你自己這段旅程的方向是正確的。
+
+## 我的問題是有關三個新的脈輪。
+
+不只有三個脈輪，還有許多其他的脈輪。
+
+我指的是藍綠色脈輪、珍珠本質脈輪、還有金色脈輪——藍綠脈輪是力量最強的，是心和真理的結合。可否請您介紹這些脈輪？
+
+此刻，有許多脈輪正在活化並且釋放給這個星球。我們要
+你修練這些脈輪一直到第二十二或第二十四個脈輪。
+
+> 〔大天使麥達昶：練習方法是，想像並觀想頭部上方的各個能量中心。就在現在，親愛的兄弟，請閉上眼睛，想像你的頭上有能量點；往上前進。〕
+
+## 我可以開始感覺到它們，其中某些。
+
+練習。透過這些能量門戶來吸氣並吐氣。
+
+## 我了解了。所以經由它們來吸氣並吐氣，同時將能量傳送給它們？
+
+是的。你越運用它們，每天觀想它們，它們便越能完整地活化。記得，你不只是你的物質身體。你更大，而那更大的部分圍繞著你，而這些脈輪就位在你那個跨次元層面。
+
+例如，鍛鍊位在胸腺區域正上方的脈輪對提升你的振動有很大的影響。這稱為高位心輪（high heart chakra）。這個脈輪是淺藍綠色，因為這個能量直接連結稱為瑪哈特馬這位偉大的宇宙存在，而這個脈輪代表了合一。今天，瑪哈特馬將與各位分享一樣禮物。
+
+## 瑪哈特馬的禮物
+
+我親愛的家人，我是瑪哈特馬。你們所有人內在都帶有我的能量，在你的松果腺內，也在每個脈輪之內。儘管這些脈輪主要的顏色都很明確，但是每個脈輪也都有許多其他的顏色，所以我的能量就在每個脈輪之內。
+
+我請你們所有人舉起右手掌，掌心向上，我將向你們傳送能量。我們要請你進入靜心狀態一會兒，好接收這個能量。請觀想美麗的藍綠色能量來到你們的手，慢慢構成約櫃那樣的盒狀。這個盒子不一樣，因為只有一位天使〔盒子上方〕；通常你會看到兩個。觀想它在你的右手掌心成形，形成約櫃的形狀。
+
+我請你將這隻手還有掌心中的盒子放在你的心上，深深吸一口氣。這個盒子包含三種特定能量。第一種是你那偉大的「我是」存在的能量，是你的靈魂，你強大的「我是」。第二種是父／母造物主的能量。第三種是所有宇宙生命的能量：光之指導靈、導師、大師、天使、大天使、人面獅身神、揚昇大師和光之姊妹、蓋亞、元素、支持著你的友善和慈愛的兄弟姊妹、龍之靈、樹靈、和所有其他的光之生命，它們指引並支持你踏上這段旅程。無論何時，只要你想連結這個能量，請開啟這個盒子，因為這是你的本質和你的後援隊的本質。你必須深呼吸三次，透過雙足傳送安定的能量進入大地母親的身體。
+
+感謝，親愛的各位。這是我們給你們的禮物，因為你們全都到達某種等級的振動，因此促成這項禮物。每天運用這項禮物，你將能在這個新的黃金年代中觸及更多自己的「我是存在」。我是瑪哈特馬。
+
+## 說出並分享你的真理
+
+我們是大天使麥達昶和聖哲曼。親愛的家人，看到越來越多更進化的問題湧現真的很有趣。事情就是這樣，親愛的各位：你越提升自己的振動，所開啟的真理也越來越深入。沒有人擁有全部的真理。真理隨時都在進化。今天你們提出的問題是一般人不可能提問的。所以我們說，湧現的問題指出人的成長程度。你能取用自己大腦的更高層級，你也透過這樣的提問在尋找答案。正是透過提問，人才會成長。
+
+你們聽過這樣的話，需要為發明之母。所以請你們帶著好奇心繼續追尋，繼續探索，因為層次還有許多。你越追尋，我們能給的就越多。因為，我們給你什麼，有一天你將會給予其他人，因為教學相長，就像人的兩個掌心：一隻手接受，一隻手給予。所以我們請你要與所有追尋真理的人分享自己的真理、愛、慈悲以及理解。永遠要說這是「你的」真理；這不是「宇宙的」真理。
+
+## Chapter 16
+## 開始如銀河系存在那樣生活
+
+2013年9月9日
+蓋亞、阿瑪、朱力安諾、天使存在、聖哲曼
+
+我是蓋亞。各位好，你們是此時地球上我最摯愛的靈魂。我們要請你不要再認為自己只是地球層面的生命，因為地球只是宇宙的一個地方。請稱呼自己是地球公民。如果有人問你從哪裡來，不要說「我來自美國」或「我來自紐西蘭」。相反的，要說「我來自地球」，要認為自己是銀河公民，因為你正是銀河存在。以色列人認為這很容易理解，因為他們的語言屬於銀河系，具有高頻振動。請開始在自己的意識中體現銀河系存在的身份。
+
+你已完成多數的地球課題，而你接下來的是銀河系課題。請以銀河系的語言思考——從更高次元的實相。不要自我設限，認為自己只是來自地球。開始活出這個實相，直到這成為你的第二天性，而你將感受自己內在的光出現巨大的擴展。當你成為銀河公民，銀河整合的角色將會轉化。請致力於在自己的能量場內導入更高的麥達昶共鳴。這會影響數百萬人。
+
+我鼓勵你們開始觀想自己是銀河系公民。在你靜心時，想像自己是銀河系存在，持續充滿著光，吸入美麗的銅藍色光，將這個光融入你的存在。
+
+走向銀河系大師。當然，大師有許多，最著名的就是麥喬爾。
+
+> 〔大天使麥達昶：麥喬爾是銀河層面的大師。這個星球有許多層面。地球層面之上的下一個層次就是銀河層次。麥喬爾是個絕佳的大師，能與你合作。〕
+
+你也可以呼喚喜馬拉雅大師（Master Himalaya）和喜馬拉雅女士（Lady Himalaya）。這些大師會支持你，協助你將自己更高的靈性身與銀河意識結合。另外你要努力活化自己不同的心之中心，因為你的心有超過二十四個心室，有二十四的層級——地球層面的心、銀河層面的心、太陽層面的心、宇宙層面的心和泛宇層面的心。一切都屬於造物主。要讓這能發生，你必須真實感受到意識轉移，並且相信自己遠遠超過你所自認的程度。
+
+## 您能否談談如何由第三次元實相進行轉化？
+
+你的信念系統仍然全然奠基在第三次元實相。因此你沒看到多少改變。你的信念系統必須符合這個新的銀河實相，你也必須自己轉移自己的焦點好真正經驗第五次元。你能做到這點的方式之一就是致力連結更高實現，尤其是來自不同次元的實相。
+
+> 〔大天使麥達昶：這必須成為你的自然而然。「何時」不是問題。任何時候都可以是「何時」。想像你隨著呼吸吸入這道美麗的白光以及造物主的金色光，時時刻刻，讓這成為你的一部分。這個金色能量持續在你全身流動，即使在你入睡時。當你吐氣，你要吐出所有其他不屬於光的能量：擔憂、恐懼、不安等等的能量。〕
+
+## 光的孩子，以光為食
+
+我最親愛的光之存在，我是阿瑪，神聖之母。自從去年〔2012年〕的轉化之後，你們的身體發生了轉化性的改變。我們所說的轉化與光的振動有關。你最好的食物就是光。你的身體需要越來越多的光作為食物。你必須持續觀想自己吸入來自宇宙與銀河的光。這個光會成為你主要的食物來源。水晶意識已經出現細胞層次的轉化。水晶意識是什麼意思？你如何能完全達成水晶意識？這需要透過將光當作飲食和睡眠的材料。
+
+在你食用食物時，你必須觀想食物在你體內變成光的能量。接著你會開始攝取越來越少食物，並由宇宙中吸收越來越多的光。光和普拉納相當接近但並不完全相同。宇宙會散發不同類型的光，其中一種光的形式就是能滋養身體的能量粒子，這代表你永遠無須再吃東西。這是某些大師生活的方式。他們並不是將吸入普拉納當成一種練習；他們運用宇宙中這種形式的光為身體提供燃料。他們快樂生活，從沒有需求。所以要塑造這樣的意圖：你將會開始「食用」光。
+
+許多光的孩子來自許多主要的星球——昴宿星、大角星、仙后星座、金星和其他星球，包括天狼星——此刻他們正降生在地球。他們不知道自己來自其他地方；他們習慣於自己所處的地方，食用地球的食物。我們希望它們能保持覺知，記得自己是谁。要讓這能發生，這些孩子需要食用更多的光。所以我們能完成的工作之一就是為這些孩子護持光，好讓他們能食用更多的光，這對他們是自然的事，因為他們有光的身體。
+
+## Chapter 16 開始如銀河系存在那樣生活
+
+你的工作是為這些來自星辰的新孩子提供更多的光。當你雙手捧著食物，想像那就是光。在你食用它時，請觀想這個食物傳送光給所有來自其他星系的孩子，讓來自這個食物的光轉化他們食用的食物，讓他們的食物也變成光。這是我們能提供給這些新孩子的重要服務。
+
+在此同時，許多人能帶有以碳為基礎的身體，所以他們需要沉重、由高密度的碳構成的食物來支持她們。當你將自己的身體改變為水晶本質，自然你所攝取的飲食也必須改變。如果你無法感受所有正在進行的改變，其原因可能是你的食物太過沉重、高密度、基於第三次元。將它轉變為光，你將看見自己的 DNA 出現生命的搏動與加速。
+
+> 〔大天使麥達昶：所有食物都來自生命。但是在經過處理後，它會失去自己的生命力和本質。處理程序越繁複，失去的本質就越多。如果人無法取得自然食物該怎麼辦？你可以提升食物的振動：將手放在食物上方。設定意圖並且命令食物的振動提升到你的層級。由你的心傳送一道光柱到你的手，再從你的手傳送到食物。儘管食物已經烹煮加工，它仍會提升到你的振動層級。〕
+
+我是阿瑪，神聖之母。
+
+## 淨化松果腺
+
+我是來自大角星的朱力安諾。我曾化身無數，藉由許多人來到這裡。我們在特別的時間點與地球合作以帶來療癒，我們也與昴宿星人合作來幫助他們的孩子。我們知道孩子長大後會帶來不同。
+
+我們與孩子合作來幫助他們維持清明且不受污染，協助他們松果腺的發展。我們大角星的神殿有儀器，你們也能前來拜訪。我們能掃描他們的松果腺，看看何處發生扭曲或收縮，藉此淨化並療癒每個松果腺，好讓它們再次完全開啟。我們嚴肅地維持這個做法，特別是針對年輕世代的孩子，因為我們知道一旦松果腺失去連結，靈就會消失，所以我們不允許這件事發生。因此，我們會幫助他們記起自己真正的起源，好讓他們能修練自己十二束更高的 DNA 束。
+
+這是我們希望獻給你們的禮物。我們請你塑造意圖要進入我們的神殿，並請求我們掃描你的松果腺以去除扭曲、收縮、銘印——更重要的——還有那根深蒂固的信念系統。你所相信的事物會觸發身體的化學反應，進而傳送能量到松果腺。某些根深蒂固的信念系統可能阻礙這個腺體的綻放。
+
+在現實中顯化自我信念的能力相當罕見。極少數人能夠顯化，就算他們達成許多大師層級也是，除非他們能創造或共同創造自己在生命中所要的一切。沒有這個能力，就沒有真正的自由。你或許不了解，不過你必須能創造自己想要的一切，就在你想要的那一刻立即創造並且無須費力。那個能量只有在松果腺完全開啟時才能來到。
+
+松果腺是全身的情緒能量感受器，會將你希望創造的事物傳送到物質身體。
+
+最能代表大師的就是他們能立即地共同創造。由心念來創造的時間相當短，幾乎是即時。這是透過松果腺而發生。請你們前來我們的療癒神殿，與我們合作，讓我們可以為你重建松果腺的光輝。我們請你在接下來的二十一天這麼做，自己實驗看看。
+
+松果腺療癒會在晚期才給予人類。我們不希望在此刻將它釋放給每個人，因為若缺乏情緒成熟，松果腺的綻放和靈性能量的大量增加可能會遭到濫用，無論是為了滿足自我感或是個人慾望，都會傷害其他人。
+
+我們還要告訴各位一件事。我們的療癒神殿還有一張水晶床。你可以要求在睡眠或靜心時被傳送到那裡。躺在水晶床上，讓它傳送水晶之光到你內在，觸及你的所有細胞——幾兆的細胞——好讓你的身體充滿水晶之光，將其他一切推擠出來。接著請求獲得液體之愛。愛可以液化。請求這美麗的愛的瓊漿玉液能夠給你；這會裝在容器內送給你（玻璃杯或玻璃瓶），你可以飲下並讓自己充滿神聖之愛。
+
+我們通常會在地球人民睡眠中支持他們，給予他們愛的飲品。因此許多人在無比艱困的環境中能夠維持自己的生命。對許多人而言，生活很不容易，所以我們以愛餵養他們。我們知道他們規劃了自己的生活課題，因此不希望他們在學到之前就離開這個星球。像你們這樣鍛鍊自己的人可以在靜心時請求這種液態的光，我們也樂於將之贈送給你，讓你每日都增加自己內在的愛。所以我們請你利用我們，因為這是一項禮物。
+
+## 松果腺的不同藍圖
+
+## 您能否談談松果腺內的兩套藍圖？
+
+從我們的觀點，藍圖不僅是兩套，而有六到七套。其中之一是你在地球層面會做的基本生活事務。第二套藍圖是關於更高層次，關係到你在銀河系和星辰系統的醫者身份。第三套藍圖作用層級又更高，是關於天使存在和伊洛希姆，要療癒其他不屬於地球層面的星球和銀河。
+
+所以在祈禱時，你可以請求將光傳送到地球層面以及傳送到其他正在經歷類似挑戰和測試的星球、銀河系和星辰系統。因此我們告訴你要成為銀河系公民。你有許多藍圖，不僅兩套。這就像你的記號細胞，此細胞也是松果腺的一部分；記號細胞共有二十四個層次。
+
+我們要你先來到我們的神殿，好讓我們掃描松果腺以移除圍繞並覆蓋著它的渣滓，讓它能正常運作。〔大天使麥達昶：藉由你的意圖和請求來進行此項練習。在你入睡前，要表達意圖，請求你的指導靈將你安全地傳送這些庇護所。〕過去黑暗力量曾濫用松果腺以將人困在黑暗之中，因此掌管地球層面的銀河議會特別將這個腺體縮短，考慮到它可能遭到誤用。古代許多神秘學院的教導都是關於完全喚醒這個靈性腺體。
+
+儘管松果腺位在大腦和頭骨之間，它也直接連結到你的腎臟系統。就像小指和下一隻手指間的間隔一般，它也直接連結到你的心臟中心。儘管這個腺體位在頭部，但是它也連結到其他同樣重要的地方。我是朱力安諾。
+
+## 運用食物來療癒並提升自己的振動
+
+我們是天使存在。有數百萬天使在支持著人類。全部的經驗都有天使掌管：包括協助、商業、創意、結構和建築的天使；慈愛、五穀、農業天使；還有支持食物界、植物界和蔬菜界的天使。
+
+為什麼造物主創造出種類如此多樣的食物呢？這麼多種不同食物的功能之一就是滿足全世界各地區不同的人。為什麼造物主給你這麼多不同的蔬菜呢？為什麼他創造這麼多顏色和形狀呢？
+
+形狀在你的進化中扮演了重要角色。當你凝視形狀——圓形、三角形、金字塔或長方形——你會有不同的振動。形狀對人體關係重大。你的眼睛接收到形狀和相關的振動。例如，如果你觀想自己站在圓形之中，你會由圓形汲取光進入你的整個存在。接著你的意識會相當快速地擴展。我們請你實驗看看。當你置身於圓圈內，請感覺其中差異。接下來，想像你身在三角形內；感覺其中差異。另外，試試長方形和半圓形，並感覺其中差異。
+
+同樣的，蔬菜的形狀和顏色也對物質身體有巨大影響，因為地球的人類身體儘管只是原型之一，但是它包含許多特徵。某些人有昴宿星、天狼星或仙后座居民的身體類型；每個身體類型都有不同的人格、振動和最深層級的功能。男性和女性身體之間也有差異。所以我們要你注意植物的形狀和顏色，以決定何者能提供你最大的支持。〔參見附錄二：陽性和陰性食物以及什麼時候吃。〕
+
+吃一種具備獨特形狀和顏色的蔬菜會增進你的活力。或許你的傾向是過動，那麼你需要讓自己平靜。有些蔬菜能提供如此的支持。紫色和綠色的茄子可以增大你的心臟區域，能幫助你寬恕、釋放、完成並且放下。綠色的茄子能給人滋養，讓人感覺有活力、充滿能量、自然就會對生命抱持很大的衝勁。櫛瓜是輕柔的綠色，有助於療癒腎臟結石。辣椒有很多顏色：綠色、黃色、紅色、橘色。每種顏色的辣椒都有不同特性和本質，味道也都不一樣。
+
+我們要你開始實驗不同的蔬菜。每個人身體都不一樣，對每種蔬菜會有不同反應。當你將一種蔬菜放在舌頭上，舌頭會直接連結大腦內的感覺器官，訊息會傳達到松果腺。開啟松果腺和你所吃的蔬菜的顏色與類型有直接的相互關係。我們要你研究這一點。你吃什麼就會變成什麼。
+
+如果你食用本質和密度沈重、不是用愛來種植，或許甚至用化學物質或其他方式催熟的食物，植物和蔬菜不能處在本身自然的狀態，因此會帶著悲傷和沮喪。已經傾向於沮喪又吃這類食物的人會更加沮喪。如果你吃的肉來自遭到囚禁的動物，或是遭受虐待、只被當成食物來源、沒有接受任何照顧關懷的動物，牠們就會帶著強大的恐懼和悲傷。如果你吃這樣的肉，你的細胞就會帶有這樣的能量。
+
+## 食物和有意識的進食會支持啟蒙
+
+蔬菜比動物更加敏感。當你進入更高實相，你會覺知生命中一切事物的每個時刻。你所覺知的不僅是你知道的世界，還有支持一個生命所必須的每一種能量。所以我們請你舉起你要吃的植物，並且將雙手放在它們上方。請它們支持你最高的善，幫助你進入自己存在的下個階段：成為一個銀河系公民並支持自己松果腺的完全覺醒。我們請你凝視自己吃的蔬菜，詢問它們能如何在你成為銀河系公民時支持你的啟蒙過程。
+
+你有許多不同類型的番茄。許多人會搭配鹽或胡椒或單純地吃番茄——什麼也不加。如果你的番茄搭配少許橄欖油，那便能支持並利益你——如果是小番茄，可以浸在油裡一段時間。
+
+同樣重要的是要尊重你要吃的蔬菜。當你摘下一顆番茄，不要只是將它由母株上摘下。要尊重它，對它說：「最親愛的光之存在，我尊重您。我感謝您賜予生命，好讓我能活下去。我請求能消化您完整的神聖本質，好讓我能喚醒自我存在的真正潛能。」同樣原則也適用在魚類或任何動物上。
+
+顏色也非常重要。如果人感到沮喪，他們應該避免綠色食物。藍色、黃色或金色的食物可以支持他們的療癒。如果人天生容易恐懼，會咬自己指甲，那麼綠色食物將能支持他們，同時他們應避免白色的蔬菜。藍色和深黑色也能幫助這些人。
+
+要覺知自己的身體如何回應你所吃的食物。要願意開放並打破任何習慣性且對你並沒有幫助的食物模式。你可以請自己的天使幫助你辨認什麼食物能支持你。每種食物、每種蔬菜和水果都包含不同振動，因為它們具有階層，其中某些水果和蔬菜比起其他蔬菜水果包含更多高頻本質，同時也包含更多陰性能量。
+
+當你攝取陰性食物，你會吸收創造女神的陰性特質。如果你喜歡吃魚，請覺知不同種類的魚，因為每一種的振動都不一樣。找出何為陰性、何為陽性，然後盡量多吃陰性食物，如此一來你將發現自己的思考、心智的清晰程度、還有氣場都不一樣了。你會知道，你將感覺活力。我們能支持你找出哪種食物對你最好。
+
+將這樣的覺知帶到食物是為了達成百分之百的有意識生活。你已經在覺察自己的念頭、有意識選擇保有什麼想法，有意識地使用語言，有意識地行動。我們也要你放更多的意識在所吃的食物上。你吃什麼就成為什麼，這代表食物對你的感官和你的松果腺有很大的影響，包括全面地活化你的 DNA。
+
+我們是支持蔬菜界的天使。我們希望你能試驗這些技巧。如果你覺得它無法支持你，再將它拋到一邊。時間久了，這真的會支持人類，並且在他們松果腺和感官的進化上有珍貴的功能。
+
+## 松果腺的奇蹟
+
+當你活化松果腺，自然奇蹟就會發生。事實上，沒有所謂的奇蹟。事物的自然秩序便是奇蹟，因為你能立即創造，完全與自己全然覺醒的松果腺相應。
+
+當你感到懷疑或背負沈重的能量包袱，松果腺就無法完全開啟。請努力開啟 DNA，自然所有能力就會開啟，包括傳送、心電感應、靈視、靈聽以及更重要的高階分身，能夠分出多個自己。
+
+## 變身
+
+你們有人相信自己能變身嗎？你可以的，而且對你的靈魂來說，這是自然的事，因為靈魂已經做過了。有沒有人讀過赫曼·赫賽（Hermann Hesse）的小說《流浪者之歌／悉達求道記》（Siddhartha）？他在 1940 年寫成這本書，一本絕佳的書。這是一位獲得啟蒙的大師所寫的。在佛陀得道之前，他和許多人在森林裡。他曾變成死去的豺狼和死去的鳥。他將鳥體驗為死去的鳥。他透過變身來改變型態。
+
+變身是靈魂的特質。每個人的意識中都內建了這個特質。這是每個人與生俱來的能力。我們要你實驗並運用它，你將能有更多成就。或許你想前往大金字塔內部、或者飛行、或者體驗魚的生活、或者變成深海的大海龜，和大地母親有緊密連結。大地母親需要牠。除了海豚和鯨魚外，大海龜也扮演重要角色，能讓大地母親知道還需要做什麼。
+
+大地母親會與其他遙遠銀河系和星系溝通。她使用山脈作為天線。你能變身成山脈的一部分。要達成這點的方式之一就是透過有經驗的巫醫來食用某些藥用植物。每個人都有變身的能力。這是我們要你開啟的一個新特質，此外還有自我重生的能力以及閱讀阿卡莎檔案的能力。你的生命將會起飛，將會非常有趣。
+
+〔大天使麥達昶：做法就是：請想像你變成一隻鳥，能夠飛翔。在這麼做的時候，你要將意識帶到那裡。想像你是一棵樹。你與樹合而為一。或者你和石頭合而為一。這很簡單。表達意圖，發自內心連結你希望變成的事物的本質。
+
+練習變身。這能開啟你接受許多新的事物，因為你能從全新的角度看到自己舊有的問題。當你變成鳥，你能看到自己所有的問題並了解如何處理。你可以前進，因為你能從上方俯瞰自己。你的靈魂也有轉變到另一世生命的能力。這是個有趣的概念，應當每天練習。變成鳥、變成蛇、變成鯨魚。如果你用從你頭上飛過的金色老鷹的眼睛看事情，你會如何看待自己的生命？你能看到自己的能量束縛在哪裡將你卡住。
+
+變身。變成熊。所有的巫醫都能變身。這是一項禮物。你的靈魂已經這麼做了。這是在靜心時透過請求而完成。當你食用阿亞滑斯卡，你會變成蛇，會變成鳥。到底發生了什麼？你讓這能發生，因為你放下自己的心智，追尋自己的靈魂。這會帶你前往另一實相。你的心不再能控制你，所以你變成熊或其他由你的靈魂所出現的一切。〕
+
+祝你們所有人有美好的一天。我們是天使存在。
+
+## 以高頻思維稀釋低頻思維
+
+我是聖哲曼。請叫我愛的兄弟。為了支持你，我要你們所有人與我溝通，因為我非常平易近人。我們是朋友。我在地球居住過好幾次，所以要與我連結非常容易。我們有許多主題可以共同分享。
+
+我想簡短分享的主題之一是關於此刻在地球層面蠢蠢欲動的戰爭場景。會發生戰爭嗎？連我們都說不準，但是你可以透過意識來轉化戰爭，觀想需要對戰爭做出決策的世界領導者，他們會操控真理來創造戰爭。請觀想他們的非真理因你的光而完全改變並轉化。傳送光到他們的更高自我，好讓他們能看到更遠。
+
+你們全都非常了解統治者能量（archon energy）和思想的力量。〔大天使麥達昶：統治者能量是思想的力量，所以傳送更高思維的振動進入領導者的高等心靈就能影響數百萬人的生命。光之工作者可以結合起來，傳送美好的能量進入領導者的高等心靈，好讓領導者能看的更清楚，想的更清楚且更平衡，並且從這樣的狀態做決策。這只會為眾人帶來利益。〕
+
+更高的思想能稀釋低層的思想。當智者或偉人走進村莊，他可以療癒許多人，因為他的振動相當高頻。同樣的，來自少數光之工作者的光就能穿透並弱化想要創造戰爭的領導者所傳送的思想能量。你們所有人就是這麼有力量。
+
+我們還要你們更進一步：運用統治者能量的思想力量，用更高頻振動的力量來稀釋正在散發的破壞性能量。當領導者想著戰爭或決定開戰，能量就已經傳送出來。這個想法會進入宇宙，而你也能接收它們，以高頻的思維將之解剖。這就是你們改變自己實相的方式。
+
+當具備高頻的光之存在走入黑暗的空間，會發生什麼事？他們會淨化大地。你們或許有人聽過這樣的說法：「聖哲行走時，所有乾枯的大地都開始重生，接著大地就獲得療癒。」聖者是透過能量場來做到的。同樣的，你的能量場可以改變戰爭，稀釋統治者能量。你們全都有能力集合起來，去稀釋那些呼喚戰爭的領導者所傳送出的能量和思想模式。他們的思想模式會被你的高頻思想模式所稀釋。
+
+## 為最高的善請求支持
+
+為療癒大地母親所傳送的祈禱真的會被收到並完全運用。千萬別懷疑你正做出的貢獻。繼續你在做的事；它是有效的。任何時候你傳送祈禱，它都帶有高頻振動。它的效果不僅在於正在發生的事，也在於許多其他的層級。
+
+石造結構帶著強大的力量，因為它們儲藏許多能量。你們的集體能量對石頭的影響遠超過你們所以為的。石頭是巨大的能量倉庫，扮演非常重要的角色。你能設定大小石頭的能量好讓它們彼此溝通。假設你使用大峽谷這個偉大的門戶，並且將大峽谷的岩石和峽谷的能量傳送到地球正在準備戰爭的所有領導者。你的努力將有很大的效益。
+
+請運用現有的自然資源來支持人類。事實上，你可以設定一切事物傳送能量，因為一切事物都具有意識。當你為人類最高的善請求支持，幾乎所有創造物都會前來。如果全世界的人類都不祈禱要支持大地母親，那麼世界上的物種將會處在比現今更加艱困的境地。
+
+千萬別懷疑。當你懷疑自己正在進行的事，你就是向自己的松果腺下了命令，這時你向松果腺傳送的能量就讓它無法完全開啟。在所有限制你顯現實相的因素中，最大的就是懷疑。例如，如果你進行生物共鳴，同時詢問這會不會有用，你就知道答案將是否定的。當你開啟松果腺，即刻顯現和療癒就能發生。我是聖哲曼。
+
+## Chapter 17 天使對 DNA 活化的支持
+
+2013年9月16日
+聖哲曼、大天使加百列、大天使麥達昶、朱力安諾、
+師利·伯納托(Sri Bonato)、祖虛(Zoosh)、
+主克里斯納(Lord Krishna)
+
+我是聖哲曼。讓我們一起確認意圖，要讓最高頻振動的智慧能在此時來到。我們正創造一條能量廊道，讓最高振動的能量可以經由此一廊道流動。我們感覺，如果能設定這條能量廊道，這便能帶來天使存在的能量，因為他們對你的 DNA 研究能有許多貢獻。天使幫助你活化 DNA，這點多數人類都不怎麼清楚。
+
+你能連結某些特定天使，讓你以更高幅度活化自己的 DNA。你有個人天使在與你合作。一切事物都有專屬天使，像是農業、食物、商業、組織、結構以及療癒——連烹飪都有天使。
+
+如果某些條件獲得滿足，甚至會有天使來活化你的 DNA。他們能準備好基礎工作，設定正確的振動條件，讓你更容易地活化 DNA。想想你如何能呼喚天使協助你的 DNA。DNA 最終層次的活化是來自團體努力。你或許曾經讀過，沒有指導靈的協助，揚昇不會發生。這是團體的努力。天使會向你傳送光，在揚昇過程中幫助你。在古老時代，人們揚昇時會舉行儀式。
+
+所以今天讓我們塑造集體意圖，允許我們能導入最高頻振動的智慧：
+
+> 「喔，父／母神，我們請求您神聖的支持。擁抱我們進入您神聖之愛，因為我們是您的孩子。我們請求今日在這個經驗中，我們能自始至終與您全然相應。我們集體的意圖是要導入嶄新的更高真理，那與提升我們的意識和 DNA 有關的一切。
+>
+> 我們個別地呼喚自己的指導靈以及我們有力的『我是』存在，能在此時伴隨著我們，為我們所有人護持能量，好讓我們能分享並導入更高智慧。請讓我們的願望實現。我們也要呼喚大天使米迦勒的存在，請求光的護盾此刻起保護著我們。」
+
+## 要知道你真的是大師，知道你能揚昇
+
+各位好。我是大天使加百列。我親愛的家人，長久以來我的名字就與智慧劃上等號，因為我為世界帶來許多智慧。你能呼喚我。
+
+今天我們希望談談有哪些事物能支持你保持更高振動。有件事我們還未討論過，就是思想的力量。你必須保持這樣的想法和信念，也就是你是能夠揚昇的。
+
+如果你問許多人——包括光之工作者——問他們是否相信自己能揚昇，大約百分之九十五的人會說他們相信自己不行。請開始相信你辦得到，因為思想的力量是如此強大。當你廣播自己的信念，這會由另一邊吸引能量向你過來。你的思想與另一邊的連結越強，更高存在就越會傳送能量給你。大角星人提
+
+## 靈魂 DNA
+
+過這點。這很重要。請相信這點，並且廣播這些思想模式，因為另一邊將會有相對的回應，會傳送支持給你。由於他們的思想屬於高頻振動，因此你的思想會被拉近他們的思想。
+
+我們感覺，儘管人類已經等待 2012 年 12 月 21 日這麼長的時間，許多人仍不相信自己能夠揚昇。許多人仍然相信揚昇只是幻想或是奇蹟，只有大師才能成就。你必須改變這個想法。這本書是寫給相信自己的人，他們相信自己能夠揚昇、相信自己能活化 DNA 的十二層次。如果我現在問你，你是否相信自己能活化 DNA 的十二層次？
+
+## 我得說我對自己有許多懷疑，而我知道那是我的問題。
+
+你呢？親愛的家人？「對另一位提問人說話」
+
+## 我知道庫圖彌大師在 2014 年我從南非回國時活化我的第十三束 DNA；那一點我確實知道。我不知道的是現在發生了什麼。
+
+你現在是否相信你能做得到？
+
+## 嗯，我當然希望是。
+
+兄弟，你呢？〔對另一位提問人說話〕你相信嗎？
+
+## 我不相信任何事。我知道我明天就能揚昇。只要給我一個提示。
+
+這就是我們想知道的。信念必須成為知道，只有從知道出發，你才能變成一個存在：「存在！」你必須在心中保有這個想法，就是你辦得到，因為這就是你與生俱來的權利。
+
+你們有多少人持續修練自己的更高自我，例如每天？你如何能結合自己的更高自我，如果你並不完全知道自己的更高自我？你必須持續修練自己的更高自我，在你生命的每一刻。
+
+> 〔大天使麥達昶：做法就是要覺知自己乃是靈魂，而你的物質身體只是工具或儀器，是要幫助你經驗並且直覺地知道自己的靈魂要什麼。〕
+
+你越與自己的更高自我合作，你的更高自我越會與你合作。這是絕對的關鍵，所以請努力更全面地認識你的更高自我。請說：「我想結合我的全體，我全部的自我。」去認識你自己——每天要發自內心地為此付出時間、能量、愛。請說：「我愛造物主。我愛我的指導靈。我向它們傳送能量。我由它們下載能量。」每天鍛鍊你的更高自我；這點無比重要。
+
+現在時機已到，該換上大師的服裝。你必須相信自己是大師，讓自己的思想、行動和表現都像大師。你必須開始相信自己是大師。戴上大師的帽子，然後捫心自問：「大師會怎麼做？」在思考之前、在行動之前，問自己：「大師在這個情境會怎麼做？大師會如何回應？大師會有什麼反應？」當你開始相信並知道自己是大師，你便完成這段旅程的四分之三。
+
+你必須開始擁抱這個真理，每一刻都以自己的生命實踐它。每一刻你都要相信自己是大師、行為舉止像大師、以大師的方式思考並且經驗生命，那麼這便會創造更大的時刻。水滴雖小，時間一久，涓滴也會成河。每天早晨醒來時，要說：
+
+![](img/c6a8ed3c4a485062a87e0115adfec353_404_0.png)
+
+## 靈魂 DNA
+
+> 「今天，我的每個行動都會像大師，每個創造都會出自我的大師身分。」
+
+## 大天使夏彌爾、大天使丁坦金、大天使麥克羅
+
+呼喚大天使夏彌爾（Archangel Chamuel），他和特定振動之束有直接關係。他手中握著一支棍棒，會通過棍棒傳送能量並藉此啟蒙人。山納·庫瑪拉也會做同樣的事。在靜心時，你要請求大天使夏彌爾將這支棍棒放在你的第三眼，好完整地在此安住宇宙能量。這會開啟你的第三眼。你該如何有意識地保持它開啟呢？方法之一就是每天透過你的第三眼做深呼吸。
+
+你也可以與造物主合作，請求造物主的平靜能量或類似能量進入你的內在。經由你的喉輪吸收這個能量，並且透過第三眼將能量傳出。你的第三眼會保持開啟，你的靈魂也會分享這個經驗。你的靈魂是透過第三眼經驗你的生命和能量。
+
+當你傳送能量前往需要療癒的地方——例如降雪較少的科羅拉多州、例如敘利亞——請透過第三眼傳送。你的第三眼會變得強壯，你的靈魂會體驗到光經過第三眼。進行這個練習，你將發現第三眼大大開啟，第六和第七脈輪間也有緊密的連結。
+
+天使脈輪就在第三眼上方。這是個八角星脈輪。當它活化，就讓你能更清晰、更深刻地連結你的指導靈和其他支持的存在。當你開始透過這個脈輪與指導靈密切合作，你會開始更記得自己靈魂的目標以及你為何出生。
+
+## Chapter 17 天使對 DNA 活化的支持
+
+當你知道自己為何出生，你就能採取步驟走上自己的道路。你就會向 DNA 提出指示，表達自己已經準備工作，也就是完整活化自己的十二束 DNA。
+
+你的靈魂藍圖——喚醒靈魂契約——直接連結至你的 DNA。你越在靈魂道路（你出生的理由）上努力，你就越能加速自己的 DNA 活化。
+
+我要你呼喚大天使夏彌爾、大天使丁坦金（Archangel Tintanjin）、大天使麥克羅（Archangel Macror），因為他們全都是來這裡要支持你的十二束 DNA 活化。在你心中保有這個想法、這個知識：你是生來要活化自己的十二束 DNA 的。兄弟，你曾用非常美好的方式表達：「前來一個知道的地方，那麼你便能存在，這是一個存在狀態的地方。」
+
+安娜在她的書中提過不同的回春技術〔克萊兒·哈特頌著，《安娜，耶穌的祖母》〕。她知道自己會以新的身體和完整的活力出現，而她也能辦得到。許多為了最後啟蒙而進入大金字塔棺柩內的啟蒙者都死去了。他們會死去是因為他們懷疑。當你懷疑，那種能量會影響松果腺並阻礙你想創造的事物實現。在你心中，要明確知道自己來這裡是要揚昇，要知道自己不會放棄。我是大天使加百列。
+
+## 新的孩子
+
+我是聖哲曼。有大天使加百列前來真好，因為他能提供一些的資訊，這些關於天使、大天使和 DNA 的資訊至今仍未公諸於世。某些新的天使之名也提供給各位,你們也許會想與他們合作。所以歡迎這些存在並與他們合作,因為他們能支持妳。我準備好回答問題,稍後可能還會有另外的貴賓前來。
+
+## 我聽說新孩子將會帶著三個已經活化的新脈輪降臨——亦即金色、珍珠和藍綠色脈輪——而且他們能夠以自己的四體系統聆聽。可否請您詳細說明?
+
+親愛的各位,他們能夠擴展是因為他們知道。他們帶著刻骨銘心的知道而降臨。我們正是希望諸位到達這個層次。由於他們已經知道自己是新的人類,因此當他們有了適當的環境,他們就不會猶豫。如果他們沐浴在愛之中,在年幼時經常獲得擁抱,那麼他們就會記得自己真正的目標:要用自己的四體系統創造一切。
+
+北韓的領導者金正恩是個靛藍小孩。在他深沈的睡眠中,他覺醒到自己的真理和出生的目的。他能完全與自己的四體連結。他看到自己的藍圖和生命契約。不過在他的環境很難實行,因為那是完全受到控制的環境。所以讓我們為他護持著光,好讓他記得更多,並且將他的國家帶上一條不同的道路。如果他能記得更多,這會敦促他成為本世紀最偉大的領導者之一。
+
+〔大天使麥達昶:他是個特別的孩子,不過孩子需要環境才能綻放並感到舒適。如果他此刻就帶來改變,可能會因此被殺害。這些孩子需要能提供他們安全感的環境,好讓他們能導引出自己的天賦。他們正對抗著舊有的能量。
+
+## Chapter 17 天使對 DNA 活化的支持
+
+我認為那是最無法支持的環境；那是史達林式的國家。
+那是由誰所創造的？
+
+是他的家人，他的父親和祖父。
+
+但同時也獲得許多其他力量的支持——包括中國和美國。
+你真的以為美國希望脫離這個處境嗎？美國向南韓和日本銷售
+武器，讓他們處在恐懼之中。如果南北韓統一會怎麼樣？美國
+派駐在南韓的士兵會怎麼樣？每年賣給南韓和日本、價值數百
+萬美元的裝備會怎麼樣？親愛的各位，眼光要放遠。事物不完
+全是表面的樣子。]
+
+這個男孩能成為現代歷史上最偉大的領導者，只要他能顯
+化自己的意義。他在潛意識層次知道，而他也設法避免四月的
+危機〔2013 年北韓危機〕。本來在世界的那一端會發生大
+戰，但由於他能入睡時連結自己的四體系統，他彰顯自己的意
+義。如果新的孩子擁有正確環境，他們就能記起自己真正的目
+的，記起自己為何出生。
+
+在你自己的國家，許多新的孩子正在誕生。這些孩子如果
+在愛的環境中長大，將會完全改變中東地區，會帶來全面的富
+足、和平、樂趣。以色列會成為喜悦的地方。數百萬旅客將會
+來訪，更加促進經濟發展。人們會說：「能來拜訪這裡真
+好。」它也會成為像香港一樣的世界金融樞紐。這會在二十或
+二十五年之間發生，新的孩子能造成這一切，只要他們透過自
+己的更高脈輪記起自己的使命。他們會透過四體系統結合一
+切。對這些孩子，最重要的是在愛的環境中獲得滋養。
+
+## 靈魂 DNA
+
+〔大天使麥達昶：你可以與新的孩子合作。由你的心向他們所有人傳送光，你就可以幫助他們。你不需要親自見他們，因為在最深的層次，你連結著所有生命形式。這道光會給他們一種安全感，讓他們能做自己來這裡要做的。他們需要感到安全和安定。當你感到安全、安定，你會更加地展現自己，自由地表達自己。
+
+你可以透過自己的心所傳送的明亮的光來支持新的孩子。觀想從你的心發出的光碰觸星球上每個孩子，給予他們提升和力量。當他們感覺安全，就會更加開啟。假如你不覺得安全，你還能不能分享自己的真理？〕
+
+這些孩子特別需要在有愛的環境中獲得滋養，因為他們的主食是光。你也可以像此時的新孩子一樣結合。早晨當你醒來，要說：「今天，我自己的合一能量場工作。」每天早晨都要導出你的合一能量。當你醒來，請說：「今天我要戴上大師的帽子。我將導入自己的合一能量，而且我將與地球的合一能量場連結。」這會讓你和整個星球的創造相應。事物就會開始流動。
+
+現在請提出問題。
+
+## Chapter 17 天使對 DNA 活化的支持
+
+接著這個問題是關於如何讓這些新的孩子生活好過一些。他們的能量交織入全腦（omni-brain）之內。和一般人或和老師建立關係可能會讓他們感到挫折，因為別人通常只用百分之十二或十四的腦能力在運作。你會建議新的孩子如何彌補這個鴻溝？
+
+這些孩子帶著高頻能量降臨，可能會覺得生活在地球層面相當困難。他們並不以線性方式思考，而是以跨次元方式思考。如果他們和自閉兒童相處，他們可能會覺得舒服多了，因為自閉兒童掌握了全頻譜、最純淨的愛的振動。目前，他們是地球上唯一這麼做的人。
+
+另外還有海豚和鯨魚。如果這些孩子能接觸鯨豚，那麼他們就能保有自己更高層級的意識。如果這些孩子不能運用自己的全腦，全腦就會傾向於逐漸關閉，就像不動的肌肉群會逐漸退化一樣。他們必須使用自己的全腦。讓這些孩子接觸良好的環境，好讓他們能維持自己全腦的功能。
+
+## 增進腦部功能
+
+今天我們也希望給諸位一個聲音。這個聲音會鍛鍊你們的腦部功能，你們全體都可以練習。它會激發你們的大腦，在腦內創造更多能量。
+
+這個聲音是 ramliyoh，讀音為 RAM-LEE-O〔瑞姆——李——歐〕。練習這個聲音時，應該捏起拇指和食指，同時專注在第三眼上。在發這個聲音時，手指的氣能量會開始向上流動，沿著雙手、手腕、手臂、肩膀、最後進入心臟。接著它會進入你的喉輪，繼續又進入你的第三眼脈輪。從那一點，它會進入松果腺和腦下垂腺。
+
+## 靈魂 DNA
+
+如果可能，請在早晨和傍晚進行這個練習。如果你覺得這個經驗對你有效，我們還要請你將這教給別人，特別是教老年人和患有阿茲海默症的人。這會溫和激發他們大腦的能量。
+
+三到四年內就會有新的電子科技能夠治療阿茲海默症，這或許會稱為電子腦部治療（electo-brain therapy）。電脈衝會在高度控制的狀況下傳送到腦部某些神經中樞，重新激發它們存在的每個層面。
+
+在你運用這個聲音時，你就在傳送光束。當你溫柔地捏住並摩擦食指和拇指，你會感受到溫暖。如果你繼續摩擦，你的心臟區域就會感覺溫暖，這是你的愛的能量。當你問道：「我如何感受自己的愛？」你必須在心中感覺到溫暖。如果你能將溫暖帶到心臟區域，你就能經驗到自己的愛。如果你無法專心，摩擦食指和拇指幾分鐘。這會開始產生能量，而能量會滲入你的雙手並進入松果腺。Ramliyoh（瑞姆 李 歐）：這是宇宙的聲音。
+
+## 水祭和燭祭
+
+水祭很重要，可以提升你的振動。遵循印度和西藏的古老傳統，你要在日出時雙手捧著水並獻給太陽。接著喝下這捧水。做三次。你會吸收太陽能量的完整精華，並且在幾天或幾週後,你會讓自己充滿普拉納的最高頻振動。你會獲得聖化和淨化。水的能力不僅在於清結合淨化,也能賦予神聖。將此神聖的意識導入你自己。
+
+如果你想再進一步,可以在清晨點一根蠟燭,維持幾分鐘。燭光代表你那壯麗靈魂的光明,不過你的靈魂之光當然比燭光偉大千倍。在進行水祭之後,以話語表達這個意圖:「透過這個光,我要呼喚我強大的『我是』存在的全部本質。」在傍晚,點亮同一根蠟燭,維持幾分鐘,並且說:「今天我要透過這道光來感謝我的『我是』存在。我放下一切我想釋放之物,它們是我今日所收集且不屬於最高的愛,我將它們獻給這道光。」
+
+你可以結合水和光來帶給自己非常高的覺知。當你用水賦予自己神聖,你便連結自己強大的「我是」存在。這些簡單的程序,你可以每天用水和光練習。你會將更多自己的靈魂本質導入自己的存在。
+
+## 以大角星人的艾斯卡利亞鏡來放大能量
+
+下一個問題非常簡單。什麼是艾斯卡利亞鏡(Escala Mirror)?
+
+艾斯卡利亞鏡是來自第五次元的鏡子,由大角星人所安置。它就放在阿拉斯加,因為那裡有個傳送門。就在這裡,拜爾德將軍駕駛飛機穿越其他次元並見到其他實相。當他回來,告訴別人他看到什麼,人們認為他瘋了。
+
+艾斯卡利亞鏡的功能非常簡單。假設你想傳送持續的光到需要療癒的地方。你一個人，就只能傳送有限的能量。但是，將能量傳送到艾斯卡利亞鏡，那麼它會將你的光放大一百萬倍，接著將它傳送回你要傳送的地方。如果你想將能量傳送給某個人或某件東西，先將你的能量傳送到艾斯卡利亞鏡。它會自然地將它放大一百萬倍傳回。所以你傳送的能量會變得更加強大。這是大角星人所贈予的禮物。
+
+## 以艾斯卡利亞鏡提升自己的振動
+
+我是來自大角星的朱力安諾。今天我們來這裡包圍著你們，因為我們非常高興你們要創造這本書。我們想要盡可能支持你們。所以對我們的打岔請多包涵。艾斯卡利亞鏡是第五次元的鏡子，就像乙太水晶那樣。我們在大角星的療癒神殿還有一件相同的鏡子。當你運用艾斯卡利亞鏡，你不僅可以放大自己要傳送的能量，你也可以傳送自己的光到那裡，並且請求讓這個光放大並反射回你身上。
+
+## 我要將它帶回矩陣。
+
+兩者你都可以進行。艾斯卡利亞鏡是放大鏡，透過你的意圖，它的能量能傳送到你要的任何地方。所以為什麼不偶爾傳送回你自己呢？你會立即提升自己的振動。
+
+## Chapter 17 天使對 DNA 活化的支持
+
+## 如果有人起了惡念，將壞的能量投射到艾斯卡利亞鏡，那會怎麼樣？
+
+親愛的兄弟，你們也知道，我們的科技全都是針對更高頻的良善意圖所設計的。那樣是不會有作用的。由於亞特蘭提斯和其他地方所發生的事，因此我們已將那個部分移除。我們不會允許那種事發生。你不能使用靈性科技來傷害其他人。某些科技也許被使用來做壞事，但是我們的不會，因為我們不會允許黑暗心靈來使用我們的科技。不過那不是我們討論的重點。
+
+我們請你試著使用艾斯卡利亞鏡。呼喚你的能量場，傳送這個能量到艾斯卡利亞鏡。請求它送還給你。你的脈衝會提升到更高層級，因為你們也許知道，你需要處在某種層級的脈衝才能揚昇。這個能量需要夠強，好讓你能像火箭一般升空。某些事物會離開你的身體，前往其他方向，就像火箭一樣。艾斯卡利亞鏡可以幫助星球療癒，也可以幫助個人療癒。這就是艾斯卡利亞鏡的美妙之處。我是朱力安諾。
+
+## 新孩子概論
+
+## 再回來談新孩子——太陽孩子、蓮花孩子、抹大拉孩子、當然還有已經來到的靛藍孩子——可否請您簡略談談他們的差異和我們可以有什麼期許？
+
+他們全都帶著某些高頻振動特質和感覺而來。他們要服務人類，每個都有特定功能。某些會直接與環境合作，某些會直接參與農業和作物生產，因為作物種植的方式將會有很大的改變。將會有新科技導入，可以不需要化學物質就讓土壤保持肥沃。土地現在需要休耕才能重生並且再次肥沃。隨著新科技出現，土地將會永遠保持肥沃，產量也會更高，也就是會有足夠食物來餵養人類。
+
+某些新孩子會與水合作，其他則會投身於科學、數學以及工程，增進對創造原則的認識。每一群孩子都會有不同的功能。所有孩子都會和諧地工作，因為他們全都知道自己為何前來這裡。
+
+麥可·傑克森是個靛藍孩子。不過他並未學習如何腳踏實地並且負責。許多靛藍孩子如今都已年屆四十、五十或六十。靛藍孩子和新孩子的一個問題是：如果他們沒有能提供支持和鼓勵的環境來成長，他們很容易忘記自己是誰，忘記自己來這裡要做什麼。他們多半都很有天份；如果他們培養自己天份，就真的能為世界創造驚奇。某些新孩子並不是在良好且滋養的環境中長大，後來便離開了他們的父母。他們會說自己不在意獨身一人。他們不會留在父母彼此交戰的虐待關係中。他們會離開這樣的環境。
+
+這些孩子帶有特別的振動。抹大拉孩子帶有並教導陰性力量。陰性力量的意思並非取代男人，而是關於如何平衡陽性與陰性力量。這些新孩子的符號是外圓內方，內部四方形的四個角與圓相切。在古代，方形也會在圓裡面。方形代表陽性能量，圓形代表陰性能量。外圓內方代表陰性的情感和陽性的心智達成平衡。這會賦予女人力量——但不是要取代男人。我們的意圖從不是讓這樣的事發生。人們說現在是陰性能量的時
+
+## Chapter 17 天使對 DNA 活化的支持
+
+代——的確，但不是讓這種能量主導其他能量。
+
+你的情感和心智會和諧地工作，你的情感會主導心智。兩者你都需要。心智是陽性的部份。直覺的部分，亦即陰性的部份，會導入直覺和創造力的能量。不過還需要物質的、陽性的部份來讓事情發生。例如，女性可能有個點子，不過也許需要陽性的物質力量才能讓它顯化。和諧意味著你的情感和心智處在更和諧的狀態。
+
+我還想再問問有關新的孩子。某些人現在可以「關閉」某些基因。如果他們罹患疾病，像是癌症，他們到底怎麼關閉那個基因來讓癌症或疾病消失？
+
+是的。這是可能的，因為他們知道該碰觸自己身體什麼部位，該將能量和呼吸集中在何處。他們知道該碰觸何處才能立即療癒。他們一點也不需要藥物。他們將會示範這點。
+
+世界上新的孩子也許連這種新的療癒科技都不需要，因為他們能夠透過呼吸、設定意圖、集中注意力來療癒自己身體的失衡。他們會讓其他人知道，只要他們相信，他們就能控制自己的身體。耶穌大師教導了信念的力量。當他的門徒彼得遇見一位跛腳的乞丐躺在河邊，他說：「金銀我都沒有，只把我所有的給你：我奉拿撒勒人耶穌基督的名，叫你起來行走！」（使徒行傳第3章第6節）他改變了那個乞丐的信念系統。
+
+這些孩子也會展現同樣的事：當你帶著身體將會療癒的信念來溝通，身體就會療癒。這是降臨到世界的嶄新禮物，不過這需要一點時間。我們要請你研究以色列的這家公司¹。
+
+你們在大地母親裡面。所以你們在各層面均相互連結。你必須記得，發生在你身上的一切都會發生在大地母親，發生在大地母親的一切都也會發生在你身上。你和大地母親之間沒有分離。
+
+## 您是說我們是人類兄弟的保母，也是我們星球的保母？
+
+這就是真理。地球沒有進化，你就無法進化。你們之間是共生關係。生命結束後，你會回歸元素，而你也是由元素而歸來。你就是大地母親。不要去區分自己和大地母親。記得，重點是「我們」。「我」已經結束了；現在是「我們」。現在有一位貴賓來到。
+
+## 搭便車
+
+我親愛的光的孩子，我的名字是師利·伯納托。我是這個星球的靈性守護者、靈性創建者。早在原型龍來到這裡之前，造物主神便邀請我前來這裡，將靈性能量定錨。我種下種子。我在每棵樹、每個分子、每個原子之中。你們可以與我連結。我是造物主所派出的十二位使者之一。這十二位使者增添了十二種屬性，而這十二種屬性正是你們 DNA 的十二束的一部分。
+
+¹ 註：原文中的這句話似為誤植。
+
+## Chapter 17 天使對 DNA 活化的支持
+
+我當時的規劃如今已經開花結果。這是覺醒。這是透過有意識地喚醒你的十二束 DNA 來記起發生了什麼。要加速你進化的方式之一就永遠使用英文中所謂的「搭便車」（tag-along）。假設一隻蒼蠅或螞蟻想從這裡到那裡，一公里。螞蟻要走一公里大概需要不少時間。不過，如果螞蟻搭了便車，跳上正在奔跑的斑馬、母牛、或是鹿，那麼螞蟻就能更容易完成這段旅程。
+
+同樣的，我們請諸位真誠的真理追尋者，要使用搭便車的技巧。大師很樂意讓你們搭便車，因為他們知道你的誠意，願意伸出援手。我們請你研究過去兩千到三千年間由地球揚昇的大師。數量並不多，其實不到一百位。然後與他們進行能量連結，請求他們讓你搭便車。由於這些大師有能力經常穿越次元，因此在這個特殊時間，其中許多都已經回來並留在這裡。
+
+從遠古以來，所有曾在這顆星球上活動的大師都以能量型態留在這裡。某些是以物質型態，某些此刻就活在星球上。在他們寧靜的時間裡，他們會回到揚昇的狀態。我們要請你連結一位自己感覺親近的大師，說：「我想與你進行這段旅程。」他們會持續允許人類搭便車。
+
+> 〔大天使麥達昶：呼喚一位大師的能量，一位你在靜心時感覺有連結的大師。當你感受到共鳴，就在內心請求要與這位大師前往一段旅程。多數的大師都會同意。大師在飛翔，你只需碰觸大師的衣物，大師便會帶你前往更高的學習中心。
+
+你或許曾見過人類碰觸天使的圖像。這也是一樣。這就是耶穌為他許多門徒所做的事。他會允許他們碰觸他衣服的縫邊，然後他便會將他們傳送到其他實相。〕
+
+例如，最近偉大的賽巴巴過世了（1926-2011）。他已經活化了许多高等的 DNA 束；我會說 144 束。這位大師在能量上與我們非常親近。你可以請求：「請讓我跟隨您。」
+
+這個技巧還有另一層面。你必須有意願且真誠地努力，才可以請求他們讓你搭便車。如果你只是請他們帶著你，他們不會。他們要看到你的努力，那時他們才會推你一把。「來吧，上來吧，我們一起飛行。」同樣的，人們說神助自助者。只要你付出百分之五十的努力，他們就會投入另外百分之五十。
+
+所以搭便車吧，親愛的諸位。你的旅程會變得更加順暢、更加容易，因為大師總是來來去去，此刻地球的能量場比以前更高。他們比以前更容易由第三次元超越次元，停留幾個小時，然後再回到更高次元。
+
+現在我要問各位一個問題，讓各位為下一次聚會思考。長久以來，這個宇宙就有十二個主要行星在影響著你們地球的生活。這稱為天文學的基礎。讓我問你們所有人這個問題：這十二個星球和你們的十二束 DNA 是否有關？你們曾經想過那一點嗎？這是個非常有趣的概念。為什麼就是十二？可以是十四或十六或十七。這不是意外，而是數學。想想那一點，然後由數字學思考。
+
+祝福各位。我是師利·伯納托。
+
+## 支持造物主的十二個存在
+
+親愛的家人，我是祖虛（Zoosh），是你們的造物主的朋友。在造物主規劃地球實驗時，有許多事需要討論並計畫，因為這件事從來沒人做過。愛希斯（Isis）、許多其他人還有我都加入議會來支持造物主，因為這個造物主相當年輕，沒有多少經驗。沒有其他造物主曾開始這類的實驗。我們支持這個實驗，因為我也曾經是一顆星球。所以我的智慧、經驗、觀點都從此而來。
+
+造物主有十二個支持團隊，是十二位光之存在。你們全都可以接觸這些存在；他們不是專屬於造物主。儘管他們從事更高階的工作，但是你能接觸這十二個存在。
+
+> 〔大天使麥達昶：呼喚這些存在前來。你知道祖虛也是其中之一。所有都能支持你，只要你呼喚他們。讓我舉個簡單例子。假設你在尋找某個東西，不過你從沒去圖書館。圖書館一直都存有這個資訊和所有答案。你找呀找，找了好幾年，但是從沒想過要去圖書館。只要你去了圖書館，你就能找到自己一直尋找的資訊。
+
+你必須問，你必須尋找。資訊是開放的。大師都準備要支持你，不過你必須敲門並詢問。在你一生中，資訊都是由此而來。換句話說，你必須跨出第一步，開始詢問，然後事物就會開始打開。
+
+那就是神的秘密。你的愛會吸引神靠近你。你對神的愛會吸引神進入你。你對大師的愛會吸引大師能量進入你。對自己靈魂的愛會吸引你的靈魂進入你。〕
+
+接著他們就會指引你、教導你，分享所有優缺點，好讓你創造自己的宇宙。如果你能知道事物的優缺點，然後再開始做某件事——不只是你眼前的面向而是所有面向——那麼多數的創造都會變得非常美好，因為你會從每個角度認識每件事。這些存在可以支持你，讓你的創造接近完美，因為所有角度都可以提供給你。
+
+假設你已經準備好要進行祈禱，以便傳送能量來療癒地球，而你有些問題想問。如果你呼喚這十二個存在——造物主的後援隊——並且請他們讓你看到你想創造的事物的所有而完整的層面，你將有更多智慧。接著，從那裡出發，你將能夠創造，而那樣的創造將會是完美的。
+
+我們希望告訴你的是，如果你尋找並仔細觀察，你可以獲得更多幫助。當人們說：「我想去美國（或其他國家）的大學」，那樣的學生會怎麼做？他們會研究，會研究自己想讀哪所大學，該怎麼進行。他們會申請補助和獎學金。他們做好萬全準備，好讓自己能前往就讀。同樣的，如果你想要揚昇，你必須研究。有個支援隊伍，有獎學金供你申請，有補助可以給你，但是你必須尋找。這可能需要填許多文件，進行許多聯繫，不過你將能獲得補助，將能夠前往揚昇的學校，在此你會換上金色的涼鞋和帽子，伴隨大師行走。
+
+今天我們進行了非常有意思的對話。各位可以找我搭便車，還有其他許多大師，因為我們全都是原型能量，不過具備很強大的力量，就像古埃及的神祇一樣。我們全都帶有造物主的獨特振動。
+
+最最親愛的朋友們，我是祖虛。
+
+## 能提升你意識的聲音流
+
+我是克里斯納。在一天中的某些時刻，你可以用某種聲音振動溝通。這些聲音在傍晚及清晨最為有效。這些聲音對提升你的意識有非常深沉的影響。有趣的是，你最愛的音樂家貝多芬便運用了這些聲音流。在他創作那著名的〈快樂頌〉時，他運用了這個聲音流。
+
+〈快樂頌〉能夠帶你進入更高意識。如果可能，可以在就寢前聽這首曲子，你將能自然處在更放鬆的空間，也能將這個高頻振動帶入你的睡眠。在最為平靜時它的功效最大，就是在清晨三點半到四點半之間，最晚不超過五點，以及在傍晚六點到七點之間。它的聲音是這樣的：「ohhh aaaa ohhh」[^1]。這個聲音流儲存在陶罐製成的圓柱型物體內。
+
+這麼做就像開啟圓柱體的蓋子，能量就能在特定時間透過特定振動來傳導。這個修持是古代偉大賢者所創造，要讓你升到更高意識。他們練習這種聲音流，因為這是許多創造的基礎結構。我是主克里斯納。
+
+[^1]: 註：聲音接近「喔呵呵呵 啊啊啊啊 喔呵呵呵」。
+
+## 一切都是我們
+
+我是大天使麥達昶。願諸位我的家人獲得祝福。造物主提供這麼多機會來提升你們的振動，這不是很美好嗎？不過又有多少人知道呢？造物主給予各位走上這條道路的人龐大的能量支持系統。時時刻刻找出這些幫助，因為它們確實存在。你從不孤單。你敲門必獲得回應，所以要一直敲不要停。當你獲得答案，繼續敲門來獲得下一個答案，因為每個真理都會開啟一個更高真理。你將會獲得支持。
+
+我們是一體的。你的父親、母親、我們都是一體的。一切都是一。「我們」，不是我和我的手——而是「我們」。身體是「我們」。要開始從「我們」的層級思考每件事。不是我的肚子——是「我們」。從此開始，一切都是「我們」。這是個困難的概念，不過當你開始越來越接受「我們」，慢慢地這會滲入你的細胞層次，成為你的實相。你再也不會說「我」了，只會說「我們」。
+
+## 神聖的跨次元繪圖
+
+親愛的各位，我們要請你在一張紙上畫個神聖三角形。先畫一個等邊三角形，然後在那三角形內，橫跨中線以及在此三角形的下半部，再畫另一個三角形——變成一個金字塔，然後在將此金字塔對切，變成另一個金字塔。所以會有兩個金字塔，就像雙圓光輪（vesica piscis）那樣坐著，不過是金字塔的形狀。
+
+在這兩個金字塔式的雙圓光輪中，我們要請你畫上兩朵生命之花。然後在雙金字塔的上方畫一個生命之花，然後在下方畫一個更大的生命之花。由上而下畫一條線將中央的生命之花對切（參見下頁圖）。
+
+我們請你做這個練習是有原因的。當你能畫出這張圖，並且凝視它，你就會感覺到能量由自己所畫出的圖像發散。這是你的一部分，也是一個結合母／父神能量的練習。中央的線代表能量管，你的生命力經由它由父親造物主的天空進入母親大地的身體。
+
+這個簡單的練習是讓兩個三角形彼此穿過，進入兩個生命之花，接著是上方的生命之花和下方的生命之花，然後是一條線穿過中央。不過，線要畫粗一點。我們要你為這些三角形和生命之花著色。看看自己的畫。當你做這個練習並且完成，你的心、胸骨、雙腿都會感覺到能量。這是專屬於你的個人奇蹟，能將你傳送到更高次元的實相。我是麥達昶。
+
+## Chapter 18
+## 動物界給人類的禮物
+
+2013年9月24日
+蜘蛛奶奶
+
+每個生物都有禮物要給人類。它的禮物就是它能教導人類的事。如果你仔細地觀察動物，你會看出它提供的是什麼，會知道人類該如何接受這樣的禮物並加以應用，好強化自己的生命。
+
+例如，許多中國和台灣的武術修持都是由蚱蜢拷貝（或者我們可以說「贈予」）給武術老師的。如果你去研究兩隻蚱蜢如何對打，你會注意到牠們使用的技巧和武術相同：運用腿腳和手臂的方式，以及所採用的每個動作。師傅觀察蚱蜢，武術因而誕生。我們能從每個動物接收到這些禮物，因為萬物中每個生命都帶了某種禮物。
+
+## 圓形智慧和線性智慧
+
+看看我，一隻蜘蛛。我怎麼能製造蜘蛛網，能讓我安全、給我保護、跌落時還能幫我緩衝？如果有人來摧毀我的網的許多軸線，我也不會掉到地上，除非最後一束軸線也沒了。假設我織了五十束線來編成網，但有人摧毀了四十五束，我還有五束線可以支撐。除非最後一束線也斷了，不然我不會跌落。圓形智慧也是一樣。你還是可以堅持；你不會被改變之風吹破。
+
+剩下少數幾束線仍然可以支持你。
+所有宇宙、星球、星辰都運用圓形智慧。圓形智慧在哪裡，該如何取用呢？這是透過後頸部來進行的。這個智慧可以給人支持。
+心理治療師可以運用圓形智慧來幫助案主。他們可以教導母親如何運用圓形智慧而非線性智慧來與孩子溝通。母親也許想教導小孩，對孩子說：「現在就去坐下來！」那是非常線性的表現。母親如何能以圓形方式溝通，好讓孩子不覺得恐懼或受到威脅？母親不需要嚴厲。如果她嚴厲或生氣，最後就會耗費許多能量。
+活在線性方式，選擇只有一個，你也無法適應改變。當你開始以圓形智慧面對生命，這會利益人類，因為你能看到、聽到、感覺到更多。
+
+## 運用完整的五感來溝通
+
+有個很好的練習：每天早晨醒來時設定這樣的意圖，要在這一天完整地運用自己五個主要的感官。設定意圖讓你的眼睛睜大，讓你的感覺清晰，讓你的感覺全然回春，讓你的嗅覺提升，讓你的味覺純淨。當你在早晨設定這樣的意圖，你就會自然地開始使用自己全部的五個感官，而這也是開始運用圓形智慧的方式之一。
+你的身體會持續給你訊息，你也應該提升。你的身體會告訴你。你的舌頭直接連結到你的直覺感覺。你的耳朵和聽覺允許你聽見其他人在說什麼，不受成見的干擾。
+
+想要教訓自己小孩的母親可以使用自己所有感官，由自己核心的整個存在來和小孩溝通。這樣的完整可以支持小孩和母親。
+
+來自你身體的訊息來自非常高的地方。當你織網，記得以圓形的動作來進行。每天都要學習納入並培養圓形智慧。
+
+我們是造物主的使者，要來支持人類，因此我們請每個人以新的眼睛來看整個動物界，好讓自己能看清我們真的能提供的事物。我是蜘蛛奶奶。
+
+## Chapter 19
+## 你的內在羅盤：自然的身體智能
+
+2013年9月27日
+天使存在、大天使麥達昶、大天使米迦勒、奧露吉
+
+我們屬於天使存在。當你與天使存在合作，你的生活自然會開始有好事發生。你會隨著宇宙流動。我們鼓勵你持續溝通並且將天使存在的能量導入自己。我們護持造物主最純粹的振動。當你開始與天使溝通，你也會與元素和自然存在建立強壯、友善的連結。在這個覺醒的時代，這個修持確實會支持你。天使也會支持你進行這個修持。
+
+當你與元素存在建立連結，你自然就會連結到整個地球的光譜。地球的 DNA 和天使存在能支持你進行這樣的轉換，讓你體驗元素並與它們相應。這些元素連結到四個方向，也連結到內在深處的羅盤。
+
+你的內在有個羅盤。每個人類和每個動物都有這個羅盤。剛孵化的小海龜知道怎麼進入水中；他們使用自己內在的羅盤。人類的嬰兒知道用嘴尋找母親的乳房。如果你和自己內在的羅盤完全相應，有許多事都能改變並達成。古代的巫醫用自己的雙手當成魔杖來找到前進的方向。他們所做的就是與自己內在的羅盤相應。
+
+在古代，人們過游牧生活，於不同地方遷徙以尋找食物、庇護、更好的環境、安全感。他們怎麼知道該去哪裡？他們使用一隻手朝向某個方向，同時兩隻手指指向地面，感覺身體所傳導的能量。他們能感覺溫暖，那麼他們就知道：「我在這個方向感覺更多熱度；這個方向比較好。我們會找到庇護所、會找到水。我們會很安全。」
+
+你的內在羅盤隨時都在，你只需要去感覺。你可將所有的經驗與內在羅盤相應。你怎麼知道自己是否與內在羅盤相應？你會在體內感覺到溫暖。你會感覺很好、喜悅、擴展。你會知道自己走到正確的道路。更重要的是，當你與自己內在羅盤相應，由那個層級創造經驗，你也會與自己的靈魂和神聖意志相應。你會走上正確道路，你會做正確的事。這對你和其他所有人相當有益。請求自己內在的羅盤能夠活化；它位於你的脊柱，是你的內在導航系統。
+
+> [大天使麥達昶：要活化你的內在羅盤，請呼喚你覺得親近的那位指導靈，並請求那個存在為你活化這個羅盤。你可以呼喚造物主前來支持。或者你可以請求大天使米迦勒、蓋亞或是我來活化你內在的羅盤。]
+
+現在我開放在場各位提出與內在羅盤相關的問題。
+
+## 旋轉你的三角星
+
+內在羅盤是否奠基於地球磁場？如果是，那麼當我們轉換到水晶意識之後會怎麼樣？
+
+內在羅盤直接連結你的靈魂，和大地磁場或磁極轉換沒有任何關係。這是你的內在雷達系統。不過你必須呼喚這個內在羅盤獲得活化。它就像三角星，這是內建於你脊柱底部的神聖幾何圖案。如果你與它連結，你就能幾乎總是知道自己能採取什麼最高、最善意的行動。這就像磁針，會在你相應時移動；你的全身都會說話，你將知道該做什麼正確的事。
+
+當你與自己內在羅盤相應，你就會處在知道的狀態。我們請你們來到這個知道的位置，在此你們的每個部位都能說話。當你聽見偉大真理，你幾乎立即同意，因為你知道此一真理。你的內在羅盤會立刻提醒你。
+
+> 〔大天使麥達昶：你是透過練習而來到知道的位置。這需要你進行請求，不過這不僅是請求。你必須來到存在的場域。當你來到存在的場域，自然你就會處在知道的過程中。這需要努力熟練。〕
+
+內在羅盤活化需要運用白金色、藍綠色和金色等顏色連結三角星。觀想此三角星旋轉，請求你的羅盤獲得活化，然後三角星經由你的脊柱旋轉，上下移動並散發能量。接著引導這個三角星進入你所有的脈輪；觀想脈輪隨著你的羅盤能量旋轉。
+
+> 〔大天使麥達昶：你要在靜心時做這個練習，並且允許三角星往它想去的地方旋轉。〕
+
+尤其要鍛鍊喉輪。連結你的內在羅盤（三角星），將它的能量導入喉輪。你將看到這個脈輪在旋轉，而在喉輪內，你會看到三角星。經過一段時間，這個練習就會見效，你將只會說出真理，符合當下時刻的真理。你會知道何時該退一步，何時該開口、該說多少。你會知道，因為你會感覺說話對象是否有能力了解，而當你觀察，你會發現自己的話語會如何影響那個人的能量場。出自你口的話語,無論是為對方或是為自己,都將是恰當且符合當下的時刻。
+
+你的內在羅盤也可以導入第三眼或身體任何器官。你可以請求全身器官都進行全面微調,好與你的內在羅盤相應。
+
+像鋼琴、單簧管、豎琴之類的樂器都能創造美好的音樂。這些樂器需要規律調音。你的身體是交響樂團,每個器官共同譜成動聽的交響曲。不過,由於壓力、時間、個人思維、生活方式,這個樂團可能會走音。你必須規律微調全身器官,好讓你能創造和諧。當所有器官都能恰當地工作,發揮最高功能,那麼他們就能創造美好而和諧的歌曲。
+
+你也許需要找個調音師來微調你身體的交響樂團。醫師只會檢查不舒服的身體部位。不過問題可能是身體其他地方造成的,因為你的經脈連結著身體各個部位。中醫會整體的檢視身體。你的內在羅盤就是微調儀器。將它在全身器官運行。三角星會旋轉並釋放能量,修復損傷處,調整身體所有器官使之相應,讓它發揮最高功能。
+
+我們建議你每天鍛鍊自己的三角星、你的內在羅盤。當你的身體完成微調,所有的感官都會高度警覺。你將能運用環繞著你的圓形智慧。當你這麼做,你就會活出自己存在的整體、你的量子自我。你會看得更清楚——感受、觸覺、味覺、嗅覺也都會更加清晰——因為每個器官都與你的內在羅盤完全相應。
+
+藉由意圖,你能校準自己的內在羅盤,好讓它與自然界的元素溝通。你不會看到雨,而是感覺到雨、融入雨。你會感覺到風，並且變成風。你的三角星的目的是以圓形方式相應於所有你要完整地活著所需要的事物。
+
+我們的意思是什麼？許多人只看見眼前的事物，不能以更完整的感覺來看。他們或許害怕未來，但是如果他們更像蜘蛛一些，與自然相應，那麼他們便能穿越自己的恐懼。蜘蛛必須高度覺察周遭的一切，要完全掌握自己的網才能確保生存。牠必須非常小心才能活著並且抓到自己的食物。牠必須全然覺知自己環境中的危險。牠自然知道如何生存。如果強風暴雨來臨，蜘蛛立刻知道自己需要做什麼。因此，牠與自然完全相應，知道如何存活。正因如此，牠沒有恐懼。
+
+當你取用圓形智慧，你會開始無懼地生活。鍛鍊這點的工
+具就是你脊柱內的三角星、你的內在羅盤。你一出生，內在羅
+盤便已開啟。
+
+每隻動物都知道這點。如果你觀察小牛出生，你會看到對母牛而言這相當困難，但是牠保持站姿，接受痛苦。當小牛出現，牠自然知道該去喝奶，無需醫師指點。小牛自動找到母親的乳頭，即使牠的眼睛尚未張開。綿羊、大象、還有許多其他動物也是一樣。如果動物的感官從一出生便精密地校準，那麼更高層次的人類又會如何呢？他們的內在羅盤必定處在更高的層級。不過人類還未使用它。他們目前尚未覺知到它。
+
+從今天起，開始活化自己的內在羅盤。那麼你就會知道，當你走在聖地並感覺到自己的天命，你會對自己說，「那是我的內在天線、我的內在羅盤與我今天想做的事相應。它與我今天將拜訪的這個特定地點相應。」這稱為與第三語言連結：你## Chapter 19 你的內在羅盤：自然的身體智能
+
+  已經分分秒秒都完全連結自己生命內部的的內在指引。
+
+## 當我們開始旋轉這個三角星，它是順時針或逆時針旋轉？
+
+這其實無所謂。你可以水平或垂直旋轉，或以任何你希望的方式旋轉。只是要觀想它在轉動，以我們前面提過的三種顏色來上下移動。
+
+## 松果腺修持
+
+還有另一個重要主題，各位一定要知道，就是鍛鍊自己的松果腺。這個修持的真正本質可能會因為我們努力以書寫來溝通而遺失。最重要的是，你要在意識中護持著這個修持的意圖。當你命令身體，塑造的意圖是你是神聖又屬神的，那麼能量自然就會創造出來。意圖就是鑰匙。手的位置（手印）會創造高頻振動。以下是由三個部分所組成的練習，會用到兩個手印。
+
+第一個手印稱為：我是神聖且屬神的。閉上眼睛。雙手拇指分別碰觸食指指尖。右手置於左手上方（雙手彼此碰觸），同時雙手都置於身體前方，手指指向身體相反方向。保持這個姿勢並且感受能量。
+
+下一步，雙手拇指碰觸食指指尖，分別做成一個圓。將拇指和食指放在頭部兩側耳朵上方處，開始在頭部兩側用拇指和食指比出兩個圓。讓你的手指慢慢向前移動，比出圓圈，直到抵達你的髮線。接著碰觸兩隻拇指指尖，將它們放在額頭上。
+
+## 靈魂 DNA
+
+方。碰觸兩隻食指指尖，將它們放在頭頂上，構成一個神聖的三角形。
+
+你的松果腺就在食指相碰之處下方。將你的手放在那裡。觀想你的松果腺釋放淡淡的白金色光，接著是淡藍色光、淡綠色光、淡藍綠色光、淡粉紅色光、最後是淡紫色光。
+
+第二個手印稱為活化松果腺。雙手位置和第一個手印一樣，不過雙手拇指要碰觸食指和中指中央。右手疊放在左手上，雙手都放在身體前方，指向身體相反方向。這個手印能活化松果腺。
+
+搭配這個活化的聲音是「ohm, ooo, wah」（歐赫姆·歐歐歐·瓦哈）。導引出這些聲音，讓「瓦哈」這個音由自己最深處發出。重複這三個聲音四到五分鐘，或是直到你感受到能量為止。你的太陽神經叢或許會有感受，第三眼會看到陽光，或者看到海洋深處的影像。你和海洋一樣深。你也許也會感受到深刻的歸屬感。
+
+## 額外的能量練習
+
+運用雙手進行身體動作可以清理大量的能量，對你的能量身會有巨大影響。例如，如果你有便秘的問題，你可以溫柔地按摩右手食指，由根部往上按十五分鐘。這有助於釋放便秘的能量。如果你有痢疾，希望運用能量來療癒，你可以使用同樣一隻手指，但是這次由指尖往根部按摩。
+
+運用手印所創造的能量會影響人體的氣脈（nadis）、絡點、神經中心，會與你希望創造之物的意圖同步。儘管某些手印看起來很奇怪，但是它們能夠帶來療癒。自己試試松果腺活化；在一天至數天內，你會感覺你和自己的「我是」存在有更緊密的連結。〔大天使麥達昶：做法是由上方導入一美麗的金色或銀白金色光。感覺這道光進入你的頂輪並完全充滿你的腦部。透過鼻子吸氣，將光導入頭的後方，接著由頭頂將光推出。這是活化松果腺的方式之一。經由頸部後方將它推出，然後經過中央將它往上往外推出，然後再由頭頂推出。
+
+你可以做的另一件事就是閉上眼睛，輕咬自己的舌頭，然後觀想自己說出 naha naha¹這個字（不要發出聲音）。或者你可以試著將白光吸入，輕咬舌頭，然後說另一個不同的字：sa ha no²。
+
+> 1 註：聲音接近「那哈 那哈」。
+> 2 註：聲音接近「撒哈諾（不發ㄨ音）」。
+
+許多人，基於良善的意圖，專注於造物主及他們的指導靈以下載能量，這非常好。不過，他們沒有在自己的更高自我上投入相等的時間。許多人在連結自己的「我是」存在時遭遇困難。他們知道自己有，不過他們雖然希望卻不能體驗並感覺到它。
+
+等到你開始進行自己的松果腺活化，你會開始越發專注於自己的「我是」存在。你將變得更加平衡。你的「我是」存在將會開始更加顯著，你也會開始更常與它一起靜心。藉由大師的指引，你的意圖是要將自己帶回對自己的「我是」存在有所覺知，並且將這個存在結合到自己的意識覺察之內。
+
+我們想向你介紹的另一個練習類似足部按摩。坐下來，右手握住右腳的大腳趾。接著左手向下握住左腳的大腳趾。溫柔按摩腳趾。大腳趾連結到人內在的核心智慧。這些能量與世俗智慧有關，是關於如何以物質身體來生活並與大地母親及她所有的創造保持和諧。
+
+腳趾正下方，在雙腳腳底，是主要的脈輪。腳趾四周圍全是脈輪。腳趾間有較大空間可能代表人帶有巨大的內在智慧，心中也有深刻的愛。這象徵內在有偉大的光。如果你開始按摩大腳趾，你將能活化更多自己內在的智慧。
+
+當你與大師、天使存在和其他光之存在連結，他們會在你的氣場投入智慧。這連結著地球的智慧。所以要開始溫柔地按摩左右腳的大腳趾。不要按摩所有腳趾，只要按摩大腳趾。大腳趾的能量和經脈直接連結到你的心之中心、第三眼、以及你的核心智慧。如果可能，請每天按摩左右大腳趾。
+
+另外一種腳底按摩的方式可以幫助睡眠。人難以入睡有不同的原因。光之工作者有許多光和能量，這代表他們不能睡得很深。有時候是因為年紀大了。人們可能會在晚上頻繁起床上廁所。或者他們醒來就不能再睡得很久。許多人睡不好是因為大腦由於壓力、日常活動或者太多光的能量而過於活躍。
+
+要解決睡眠問題，試試以下方法：上床就寢時，雙手握拳，溫柔按摩腳底。如果你會感覺痛，那麼你就知道身體出了問題。接著，溫柔按摩腳踝。這個區域直接連結大腦。
+
+如果你是因為壓力、日常活動或太多光的能量，那麼你需要放鬆大腦。做法是，溫柔將雙手手掌貼放在雙眼上，這就會開始處理你的大腦。這和靈氣的一個手勢一樣。〔大天使麥達昶：雙手蓋住眼睛八到十分鐘。你也許三分鐘就會有感覺，不過剛開始你要做久一點好感覺到能量。〕你會立即看到效果，會開始感覺更加有活力、放鬆、穩定、平衡。
+
+## 運用雲
+
+接著我們想分享的資訊是關於如何有效地運用雲。雲具備能量和意識。觀察雲，你會發現它們朝不同方向移動。它們具備意識，帶著大地母親的能量，就像水體上的波浪。雲帶著天空父親的能量。雲之中有許多能量存在，它們持續向人類傳送訊息。不過人類並未意識到這些訊息。
+
+如果你有問題希望獲得答案，例如今晚該為孫子煮什麼或是該不該出門買菜，請將那個想法傳送到宇宙。然後去看看雲。雲的型態和圖案將會與你溝通；你將能解讀自己需要聽到什麼。〔大天使麥達昶：你會透過感覺得到答案。你將會知道這就是所謂的內在知道。〕
+
+一旦你知道該怎麼運用雲，你可以取用宇宙智慧這座龐大的圖書館。如果不相信，測試一下你是否能移動雲。走到戶外，讓一個雲的構成移動到另一個地方。溫柔地抬頭看，透過你的嘴吹氣；運用你的意圖讓雲開始移動，它將會移動。這顯是你正在與宇宙意識互動。有能量由你傳送到宇宙意識。
+
+與這些雲玩遊戲。它們會豐富你的生命。教導你的小孩。
+
+## 靈魂 DNA
+
+如果你有疑問，需要答案，請跟雲說話。你會在雲的形狀中找到答案。時機已到，要運用造物主所賜與你的一切事物。你們都知道水非常珍貴，雲也是。雲都是白色的，這並不是意外。在造物主的創造中，一切都不是意外。一切都有目的。你們都是彩虹的一部分。
+
+## 呼喚氣元素
+
+我想問的是關於雲和氣元素——所謂的風之精靈——他們在進行某些工作以淨化大氣時也會裝扮成羽狀雲。可否請您談談他們？
+
+一切都是創造來為地球和人們帶來療癒。氣元素內在有自己的靈存在，而不同文化會使用不同名字。在靜心時，你可呼喚自己生命中的元素存在來創造、散播、釋放。
+
+讓我們談談釋放。如果有人帶著高密度的能量來到你家，你可以呼喚氣存在來釋放這些密集能量。氣的存在會來將能量吹散。你可以邀請氣元素協助淨化的過程。
+
+許多人共有的問題就是他們的元素失衡。例如，如果氣元素失衡，要釋放能量就很困難。執著的人可能覺得要接受新工具或改變自己的思維很困難。有太多氣元素的人則會難以腳踏實地。他們有絕佳的點子，但是什麼事也辦不成。
+
+你可以在靜心時呼喚氣的存在來淨化你並與你合作。請求氣元素來臨並帶給你一片白色羽毛。接著觀想這片白色羽毛在你體內如同扇子一樣運作，扇著你，從腳趾一路往上到靈魂之星脈輪。讓它扇吧，清理並淨化你。你也可以呼喚這個偉大存在為你的國家進行淨化和療癒。例如，在負面存在所在之處，你可以呼喚氣之存在來到並淨化那個空間。無論何時何地，只要你需要淨化，呼喚這個存在來臨並淨化。
+
+當部落在尋找問題的答案，希望以溫柔、慈愛、善意的方式解決某事，它們會請求風元素的指引。當你要求這個元素支持你找到你尋找的智慧，這會創造大量的氣或是陣風。它能運用來自其他地理區域、擁有你所尋找的智慧的气，並且藉由將該地區的土壤放置到你所在的地區，將智慧轉移到你需要的位置。當人們與土地連結，他們能獲得啟發並與更高智慧連結。這是自然元素努力支持人類的方式之一。
+
+例如，非洲一個人口十萬的小鎮有個小孩，他希望為整個小鎮找到答案。在此同時，非洲另一個村落已經解決這個問題。能量存在阿卡莎檔案內。風的氣元素會前往非洲，拾取那個村落大地的塵土並且將它放在前一個小鎮裡。你可以要求元素存在支持你找到所尋找的事物。你不需要膜拜這些存在，只需要與它們相應。
+
+你可以開始一個連結儀式。某些人會在清晨進行，讓儀式與他們工作所需的力量相應。當你開始透過儀式來與自然元素相應，你會與他們完全連結，就可以行使奇蹟。例如，以發生在肯亞奈洛比的大悲劇³為例，由於所發生的事，因此當地有強烈的悲傷和巨大的負面能量，人們擔心悲劇重演。這個悲劇可能會伴隨他們很長時間。請求風元素和火元素前往打散這個能量，那麼這些能量將會把發生這個事件的自然環境中的渣滓能量燒毀。
+
+風元素就像支大掃把，會清理能量。需要三到七天才會發生，不過它將會帶來療癒、淨化，當地會令人耳目一新。如果經歷悲劇的人重新開始，黑暗將會由他們的過去淨化。自然會影響這些人。所以你可以呼喚火元素。在某些文化中，火元素的名字是「歐赫拉」（Ohra）〔美索不達米亞文明和蘇美文明〕。
+
+古時曾發生戰爭的地方，曾有許多死亡的地方，負面能量累積了很多。當土地被人類征服，土地就需要運用自然元素加以淨化，才能再次恢復平衡，讓人們能和平生活。所以運用歐赫拉、火元素存在。也要運用水元素存在和土元素存在。
+
+## 我們的振動成長和身體運動和我們的 DNA 有直接關連，這個說法是否正確？我們能否能透過練習提升自己的振動頻率，即使只有有限的 DNA 束獲得活化？
+
+我們稱身體運動是身體的靜心。運動可以提升人體的振動，可以提升生命能量。這全都是完全真實的。不過僅只是運動並不能支持你所追尋的，除非它結合心的靜心冥想。當你結合身體的能量和心智的能量，你就會處在非常高的位階，創造高度具有光之力的能量。
+
+## 活化連結你和所有創造的密碼
+
+您提到我們的 DNA 和 RNA 都有意識，能夠溝通。能否請您詳加說明該如何與它溝通呢？
+
+每個身體部位都有意識，能夠運用感覺、透過意識、傳送集中的能量來溝通。如果你想和自己的心臟溝通，就專注在你的心臟。發自內心傳送愛給你的心臟，說出任何你需要說的話。意圖和集中的能量會自然開始連結那個身體部位。DNA 和 RNA 具有意識，因為它們直接連結到神聖宇宙真理的創造力量。當你開始與父／母神能量的創造部分連結，你會自然與這股力量溝通。
+
+在靜心時你可以做一件事，就是呼喚那讓你的 DNA 與所有創造連結的密碼能夠活化。DNA 是一部使用手冊，帶著密碼，正是透過這些密碼才能提供指引。請求你 DNA 內連結所有創造的密碼能完整活化。這非常重要。通常人們會說他們想這麼做，不過一切都像個時間所，鑰匙上面有密碼，而這些密碼必須重新活化。
+
+在雷最近一次旅程中，他遇到一顆很美好的樹，樹齡已經一千年了。這棵樹請雷坐下來，對他說：「看看我四周的樹。沒有其他樹和我一樣大。」這棵樹解釋了這是因為它能與泉源連結。它的泉源就在內在，在太陽神經叢的區域，一般稱為力量點（power point）。
+
+那裡有密碼和神聖幾何圖案，當你與這些密碼連結，你便連結了自己最完整的本質。那棵樹說：「每個人都提到心，那非常美好，也很重要。心可以非常慈悲、充滿能量，不過真正的力量泉源不是心，而是位在太陽神經叢和脊柱之間的一點。」
+
+當你與這個泉源連結，你就連結自己存在內的水元素。不要忘記你是水的存在，因為你的核心本質就是水。當你連結這個泉源，你便連結自己的力量中心。當你開始與自己內在的力量中心連結，你就會自然地長得跟那棵大樹一樣強壯，會讓自己回春。你連結了自己的泉源和力量。那棵樹說不要忽略這個部分。許多人都專注在心，不過你也必須專注在這個力量點。
+
+## 活化圓形智慧
+
+我們要你專注在自己身體很重要的一部分：你的力量泉源，這是由你的頸後開始。從你的頭下方，有許多重要的脈輪往下延伸。
+
+在你心中想像甚至用手畫下一個三角形，由頭的後方、頸部上方的位置出發，往下移動到臀部。三角形頂點就在頸部上方。其他兩個點分別是臀部左右兩邊；三角形的底由左臀延伸到右臀。現在想像一條線向下穿過三角形中間。
+
+做前述練習。如果你每天努力觀想這個三角形，想像三角形的三個點散發出光（就像你內在羅盤的三角星），那麼你會開始活化自己生命核心的圓形智慧。
+
+圓形智慧連結的不僅是你的感官還是你的祖先。請想像你能連結父親和母親兩邊的祖先智慧。你可以連結他們在古代艱辛環境中克服困難的方式。你可以連結他們的智慧和理解，因為多數的祖先都是原住民，能連結原住民的智慧。更重要的是，他們與土地有直接連結。影響著你的至少有父母兩邊的五到七個世代。所以圓形智慧不僅是你四周的一切，也包括祖先智慧。
+
+我們要你每天練習這個三角形觀想十五分鐘。你會看到自己內在更加開放。你的觀點會立刻增加，也會開始由更高的實相理解事物。
+
+## 平衡七個主要脈輪
+
+## 能否請您談談如何療癒、和諧、平衡七個主要脈輪？
+
+這很簡單。導入你的靈魂之星脈輪。〔大天使麥達昶：你的靈魂之星脈輪就在頂輪上方。有時這稱為跨人格點 (transpersonal point)。想像一個美麗的星在那裡閃耀，觀想你經由這一顆星來呼吸，而你將永遠經由這顆星來安頓自己的能量。你越努力修練這顆星，你越能與自己的靈魂建立聯繫。許多人只專注在自己的七個脈輪。你也必須專注在更高的脈輪。〕觀想你的靈魂之星脈輪進入頂輪，接著進入其他脈輪，慢慢穿越每個脈輪。你的靈魂之星脈輪能夠輕易飛越所有脈輪。如此一來，你就能將更多靈魂能量導入自己全部的脈輪。想像靈魂之星脈輪進入你的頂輪，進入第三眼，接著一路向下。想像它像個鐘擺進入所有脈輪，向上然後向下。
+
+這個觀想非常簡單但影響深遠。真的你必須能將更多靈魂本質導入脈輪。所以，當你運用靈魂之星脈輪，你就將更多神的力量導入你的七個脈輪。每天在靜心時練習。你會馬上看到效果，會能持續讓靈魂之星脈輪上下游移，這也會持續淨化你的脈輪柱。
+
+## 「我就是光」
+
+哈囉，親愛的各位。我是大天使麥可。我們希望與你分享一個聲音，讓你運用。這個聲音非常簡單，就是 omaan y u omaaan yyy uuu⁴。它的意義只有一個：我就是光。當你說「我就是光」，你難道沒有感覺到擴展嗎？難道你沒有感覺到完整嗎？當你說：「我就是光，oman yy uu」，它全部的意思就是：我在造物主之內，造物主在我之內。
+
+現在，在我們離去前，我們有個驚喜，一個禮物，要給各位。主菜已經用完，不過我知道你們還想要點心。所以讓我們介紹某位貴賓。
+
+## 完美的陽性陰性平衡
+
+哈囉。我使用來自古老的語言說話。我的名字是奧靈吉（Orengi），是水之精靈。
+
+> 4 註：聲音接近「歐瑪啊恩 伊 嗚 歐瑪啊啊啊恩 伊伊伊 嗚嗚嗚」
+
+在你的家或在戶外的自然中，在有水的地方，將赤裸的足放入水中。透過腳底呼吸，想像並觀想你正在呼吸著水。你會感覺溫暖、搏動的感覺進入你的雙足。你正在呼吸著水，水正在你的存在內流動。水有兩種特質：它能淨化，而最純淨的水將包含造物主最純淨的愛。當你觀想水在你內在流動，這是非常淨化的過程。
+
+一旦你結束這個計畫過程，坐下來，請求水傳遞它真正的源頭和目的進入你的存在。在你這麼做的時候，你將會感覺身體有不同的感覺，因為你將感覺造物主的愛。
+
+你也可以請我們傳送水的能量而它真正的目的進入你身體不同的密碼，因為你們都有 144 個神聖密碼需要活化。水也帶著生命藍圖，而你自己的藍圖、自己的 DNA 可以運用水元素來活化。
+
+所以，首先，進行呼吸和淨化。接著，請求結合水所包含的陰性和陽性能量的平衡結合。
+
+水非常平衡。許多人將水聯想為陰性。我不這麼認為。水同時是陰性和陽性，完全平衡。沒有元素是陽性或陰性。他們是合一的能量之力。為什麼大地母親稱為大地之「母」呢？這是因為她會滋養並支持人類和生命。所以我們賦予她母性特質。大地母親是合一的陽性和陰性能量。水也是一樣。你將傳遞這些密碼和理解，當你將雙足放進水中呼吸，這會促進你內在新密碼的活化。這將會與大地母親相應。
+
+## 運用你的誕生星辰
+
+誕生星辰的意義為何？在你出生時，每個人都與一顆星星相應。這顆星星是你的支持系統。你和自己的星星特別相應。找到那顆護持巨大的光和能量、能夠服務你的星。當你與自己的星連結，你就會開始下載高頻振動能量，這能真的將你迅速提升，增加你的振動至少百分之四十。
+
+## 可否請您給我們提示？我們說的不是星座，是嗎？
+
+星座只是一部分。我們談的不是星座。每個人都相應於不同的星辰系統。
+
+## 星星有這麼多。我們怎麼知道自己相應哪一個星辰系統？
+
+首先，列出你知道的星星。你可以使用網路來找出所有星星，這需要費點心。接著你的手一一放在每個星星名字上方。你會感受到能量。如此縮小清單，直到你找出五個有強烈共鳴的星。接著你就可以使用運動工學（kinesiology）或靈擺。
+
+這些星星有許多都是未知的。他們有名字，但是人們並不認識它們。科學發現了它們，但是它們只是編號。運用你的星，立刻你就能提升到更高的振動。
+
+## 我覺得更美妙的是您可以傳導給我們哪顆是我們的星。至少給我們一個捷徑。
+
+你覺得為什麼人出生時會遭遇這麼多困難？有些人太早來到，有些人則太晚。有時出生的陣痛會長達三十八小時，有些則只需兩小時。你是否曾想過為何人的陣痛時間不同呢？
+
+## 要排隊等到正確時間嗎？
+
+正是——要與正確的星星相應。你的內在人類羅盤與你的星相應，因此你必須連結自己的星。當你連結到這顆星，你將會真的擴展自己的能量。
+
+## 後記
+
+## 歐姆朗十二束DNA活化
+
+在這本書最後一次 Skype 會談之後，雷由大天使麥達昶處接收到一個十二束 DNA 活化程序，讓練習者能活化他人的DNA。不久之後，雷就創辦了歐姆朗學院來傳遞 DNA 活化的資訊，同時為歐姆朗十二束 DNA 活化的施行者提供訓練及授證。
+
+這是個力量非常強大的工作，雷和羅伯特二人都已經為自己的個案和朋友進行。麥達昶是如此描述這項工作：
+
+> 「這個儀式是一種啟蒙，讓人進入自己意識更深的跨次元（或是量子）層面。完成這個啟蒙之後，你便能開啟以經驗自己的核心本質。歐姆朗為阿拉姆（Aramaic）語，意思是『開門者』」。
+
+你的 DNA 包含了關於你一切的檔案。雙螺旋——生理DNA 的兩束——決定了你物質身體的特徵。其他十束的乙太DNA 包含了你靈魂、靈性本質、你真實面貌和真理的整個歷史。
+
+如果說你的更高自我或靈會住在某個地方，那必定就是你的乙太 DNA 束之內。你的全部故事都在裡面；這是你的阿卡莎檔案。所有你曾達成的天賦、天分、能力都在裡面。所有你曾採取的行動、所有你曾做過的抉擇，它們的能量都存在於你的 DNA。人類種族的靈性歷史和你身為人類旅程一部分的本質都銘印在你的 DNA 內。它攜帶你的靈性藍圖和你在每一世生命曾進行過的所有靈性旅程。
+
+你在意識之內有能力對自己的 DNA 說話，去面對它、控制它、與它合作、並且成為它的一部分。當你對 DNA 發號施令，而它開始回應，你就會覺醒到自己的多重次元性，這才是你真正的本質。
+
+量子意識會創造不同的理解系統。當你活化自己的 DNA，你也將擁有能力擴展自己的壽命，並且獲得理解及閱讀阿卡莎檔案的能力。DNA 活化意謂增加 DNA 內的資訊。這能幫助你開始重新回到意識的多重次元狀態。具備量子意識的人將與一切合一。
+
+乙太 DNA 束將會保持休眠，除非它們接獲命令要開啟。這個啟蒙儀式是來自造物主的禮物。休眠的非物質 DNA 束會接獲命令要甦醒。這是個神聖儀式，禮讚你內在的神性，開啟你獲得相關經驗的道路。
+
+不是每個人都能進行這樣的工作。要獲得效果，請先問自己是否已經準備好在最高的層級接受，並且將你所獲得得一切用於最高的善。要獲得更大效益，你需要一些靈性的理解。你依循何種靈性法門均可。你是否努力鍛鍊自己——尋求改善自己的靈性生活，提升自己的振動？前來試圖更了解自己內在的造物主，用你的心智何情感。如果你的意圖未曾專注在自己的靈性，那麼你或許對這樣的工作不會有太多感覺。
+
+## 誌謝
+
+許多人的協助讓這本書實現。我們的團隊成員來自英格蘭、蘇格蘭、以色列、美國（有四位）、加拿大、馬來西亞、以及日本。我們透過電子郵件、Skype 和 DropBox 保持聯繫。
+
+通靈聚會採問答形式，通過 Skype 進行。雷·強達藍傳達大師和大天使的話與。羅伯·波洛克、莫迪凱·雅欣和弗列達利卡·亞隆是主要的提問者；在多數的聚會中，我們三人通常至少會有一到三位出席，奧德莉·秦（Audrey Chin）和肯尼·伊金（Kenea Eakin）偶爾會加入我們。
+
+奧德莉和肯尼協助謄錄幾場聚會的逐字稿，其他則是由愛莉森·多曼（Allison Dohrman）、詹·西沃（Jan Seward）、艾倫·奈恩（Ellen Nairn）和迪歐納·菲利普（Deonna Phillips）負責完成逐字稿。保羅·凡德堡（Paul Van-de-Burgh）協助進行初步編輯並處理無數的技術細節，例如指導我們使用 DropBox 等。保羅也根據聚會的錄音檔核對手稿內容，確保資訊能正確傳達。
+
+摩妮卡·馬克利（Monica Markley）是光之科技出版社（Light Technology Publishing）的編輯。她檢視初稿，對內文的材料提出許多絕佳的問題。雷和我在 2014 年間再與大天使麥達昶進行五次額外聚會來回答這些問題。這些材料會以方框加入內文。摩妮卡的問題讓這本書更有用、更容易理解。
+
+莉茲·史代勒（Liz Stell）對手稿進行最後的編輯、潤飾、釐清、使內容一致。她也提出正確的問題，所以希望不會有太多讀者被搞糊塗了。
+
+在聚會的过程中，弗列達利卡·亞隆被描述為宇宙的圖書館員。任何時候，只要有引用內容或拼字相關問題，弗列達利卡都有答案。她也為聚會準備充分的問題清單，可惜沒有時間一一提問。所以未來的書籍將會有充足的材料。
+
+蓋爾·艾弗利特（Gayle Averyt）協助支付準備本書材料所產生的費用。艾利·葛林堡（Ari Greenberg）協助處理圖片、電腦問題、並且為 DNA 手印照片擔任示範者。羅素·陳（Russel Chen）和雷·強達藍設計本書封面。
+
+感謝各位，你們每個人讓本書成真。
+
+## 參與者清單
+
+## 雷·強德蘭通靈傳達的高等存在
+
+- 亞伯拉罕與撒拉的合體
+- 阿達瑪
+- 阿瑪，神聖母親
+- 天使存在
+- 安娜（Anna，耶穌的祖母）
+- 大天使加百列
+- 大天使麥達昶（Archangel Metatron）
+- 大天使麥達昶與聖哲曼
+- 大天使麥達昶和天使存在
+- 大天使米迦勒（Archangel Michael）
+- 造物主
+- 水晶頭骨
+- 火鶴
+- 蓋亞（Gaia）
+- 蜘蛛奶奶
+- 大角星人朱利安諾（Juliano, from Arcturus）
+- 阿肯納頓王（King Akhenaton）
+- 主·克里斯納（Lord Krsna）
+- 主梅翠亞（Lord Maitreya）
+- 主墨基瑟德（Lord Melchizedek）
+- 瑪哈特瑪（Mahatma）
+- 庫圖彌大師（Master Kuthumi）
+- 托特大師（Master Thoth）
+- DNA 大師
+- 聖母瑪利亞（Mother Mary）
+- 歐瑪，神聖母親的神聖母親
+- 奧靈吉（Orengi）
+- 孔雀
+- 植物物種
+- 昴宿星大師（A Pleiadian master）
+- 畢達哥拉斯（庫圖彌大師）
+- 聖哲曼（Saint Germain）
+- 聖哲曼與麥達昶
+- 薩彌爾（Samiel）
+- 薩南達大師（Master Sananda）
+- 山納·庫瑪拉（Sanat Kumara）
+- 鯨之靈
+- 師利·伯納托（Sri Bonato）
+- 耶穌（Yeshua）
+- 耶穌和巴巴吉
+- 祖虛（Zoosh）
+
+## 靈魂 DNA
+
+## DNA啟蒙程序
+
+如果面對面進行，此一啟蒙儀式大約需要一小時（也可以採遠距方式進行）。你會躺在治療桌上，閉起眼睛。施行者會站在你旁邊，透過碰觸來活化你身體的十二個觸發點，同時吟唱特殊的音調來為這些觸發點的活化提供能量。接著你將坐著或躺著，進入靜心狀態大約三十分鐘，同時背景會播放特殊的和聲。
+
+時間越久，你會越來越覺察到這個工作的效應。在接下來一到六個月，你能期待什麼呢。可能性很多。許多人注意到的第一件事就是幸福感。他們更有自信，感覺連結到某種歸屬感，不再孤單。某些人或許會獲得療癒，業報能量會消散。觀點和價值觀可能會改變。某些人感覺自己更為重要；感覺自己屬於宇宙。某些人更有自信和信任。
+
+你會獲得一本小手冊，其中某幾頁是作為日記之用。同時還有網路支持團體，成員都是進行過這個工作的人。我們鼓勵你參與這個支持團體，與他人分享經驗，聽聽他人的經驗。你可以採匿名方式參與。網路支持團體的網址如下：www.BerkshireEnergyHealing.com。
+
+## 附錄一：運用龍的能量
+
+2011 年 3 月 31 日
+主梅林 (Lord Merlin)
+
+各位好，我是主梅林。龍的傳說在地球上已經流傳許久。你也許好奇它們是怎麼出現的。就像所有傳說一樣，背後有個故事。龍是創造出來要啟發並克服許多持續在人類心靈中上演的戰役。
+
+人類和龍有很多共同點：兩者都會吐火。人類吐出的是憎恨、憤怒和其他低層情緒的火焰。龍也會吐火——吐出的是毀滅之火。問題是，如何馴服內在和外在的龍。
+
+所有關於龍的傳說和故事都牽涉到人類和龍之間的戰爭。最終都是人類獲勝，因此征服了龍並成為朋友。人類心靈也是如此。當你征服人類的心智，讓它成為你的朋友，你就征服了自己內在的龍。
+
+龍也在數百萬年前漫遊在地球上，牠們的後代仍在世界的某些地方，例如中國、南美洲和中美洲。不是所有地球上的龍都是啟蒙的生物。許多都不是。龍不屬於地球。牠們來自水，但是牠們能相當迅速地調適並適應自己的新環境。
+
+## 龍如何來到地球
+
+在地球有龍的領域之前，曾有十二條龍從其他星系來到這裡，為這顆星球設定能量矩陣系統。這十二條龍受到造物主的使者邀請而來到地球，為這個星球的能量打好基礎，準備人類種族的到來。在人類能在此生活之前，有很長一段準備時間。地球是個實驗，龍是最先受邀來此的存在，要設定這裡的能量架構。
+
+龍帶來純粹的水晶能量，將之安置於大地，此刻正在甦醒的就是這種能量。長久休眠的水晶意識將會在未來二十年內完全甦醒，這將會支持所有人類覺醒並記得自己真正的遺產。在這十二個雄偉存在完成最初的工作後，牠們便回到自己的故鄉，經過很長的時間，其他生物開始來到地球。
+
+你們的星辰系統很龐大，擁有無數生命形式；某些星球有龍，和最初來到這個星球的十二隻龍也相當類似。許多龍找到方式前來地球並安頓下來，因為這裡的能量和牠們故鄉星球相當類似。你們現在找到的剩餘的龍都是這些龍的後裔。在牠們自己進化的過程中，其中某些意識已經進化並前往更高的次元。
+
+隨著人類進化到更高的意識，將會有越來越多人看到或感覺連結到這些龍的存在。在牠們進化的過程中，這些高等次元的龍分散到這顆星球所有主要的能量中心。某些前往日本，某些前往南美洲的安地斯山脈，某些搬到加州的沙斯塔山，某些則到了中國和印度的山脈。在俄羅斯的烏拉山脈和非洲的吉力馬扎羅山，龍的能量已經準備揭露了。這些龍共同為人類護持振動，好讓他們進入第五次元。在不久的將來，人類的視力將會覺醒並看見真理，因為這是人類即將獲得的禮物：全新覺醒的眼睛，能看到真理並區分真理和幻象。
+
+## 與龍合作
+
+光之存在可以聯繫龍，只要呼喚牠們並與牠們進行能量層次的連結。龍可以支持你提升自己的勇氣，堅定你的意志，來尋找真理，永不放棄，賜與你無畏與智慧。
+
+人的許多脈輪也和龍能量連結。某些脈輪的幾何圖案可以在龍的皮膚上找到。你可以使用龍的能量來鍛鍊自己的脈輪。啟蒙的龍所發出的聲音能支持人類的覺醒。龍也能教你聲音振動的知識，讓你能用來喚醒自己的拙火。
+
+接下來，某些最初來到地球的龍將要與各位溝通。
+
+## 瓦阿龍（Dragon Vaaa）
+
+各位好。我是名為瓦阿的龍存在，目前住在馬來西亞名為「黑風洞」（Butu Caves）的聖山。我特別選擇黑風洞的山丘，是因為這裡帶有高頻振動，而黑風洞也連結著三個星系的能量。住在這裡的古人透過直覺得知這一點，因此他們選擇將此地視為勝地，將神聖的印度神祇供奉於此。
+
+黑風洞有特殊的目的，因為這裡具備的能量振動模式能喚醒人類的梅爾卡納能量。人類必須能成就梅爾卡納這個最高振動模式才能在此星球進入揚昇的最後階段。我為人類護持這個能量。
+
+我邀請各位自己取用這個偉大的能量來獲得進一步覺醒。運用我的能量所需的聲音頻率為「vayooooooooooooo vayoooo ooooooooooo vayoooooooooooooooooo」（瓦悠……瓦悠……瓦悠……）。觀想的顏色為綠色。
+
+## 啟悠龍 (Dragon Kiyoo)
+
+各位好，我是名為啟悠（Kiyoo）的龍存在，住在喜馬拉雅山脈。許多人在攀登喜馬拉雅山脈時都曾見過我，不過他們以為自己看到的是幻象、幻影，或是以為那是自己的心智在高海拔時所耍的把戲。
+
+我會出現在過去曾與我合作過的人面前。我負責喚醒松果腺的記憶的能量模式。當你吟頌我的名字並且觀想自己的松果腺開啟並擴展，我的能量會注入你的大腦，你將看見新的覺醒意識的開端。
+
+喚醒自己的松果腺是人類最光榮的一件事，這能喚醒更高的大腦，此處將永遠維繫著與造物主真正的連結。與我合作所使用的聲音頻率為「kiyooooooooooooooooo」（啟悠喔喔喔喔喔喔……），觀想的顏色為淡粉紅色。
+
+## 主瓦拉 (Lord Vallar)
+
+各位好，我是名為主瓦拉的存在。我是諸龍之王，為地球護持偉大的靈蛇力量能量模式。我的顏色是淡紫色帶點粉紅色。我的皮膚也帶有一點綠色以及一點灰色。
+
+古老的神呼喚我將自己的能量注入他們，藉此喚醒他們驚人的力量。我掌握你們完整的 DNA 組的振動模式。與我連結與合作，讓我們一起喚醒你內在這個驚人的力量。
+
+我居住的地方是南極，與我合作所需的聲音頻率是「valar ruuuuuuuuuuuuuuuuu」（瓦拉如嗚嗚嗚嗚嗚嗚……），觀想的顏色是紫紅色。
+
+## 維亞奧龍 (Dragon Vyaau)
+
+各位好。我是龍存在，名字是維亞奧龍。我是大使，連結人類與五大元素。人類在朝向揚昇努力的過程中必須掌握並配合元素的國度。
+
+我主掌風的振動模式。你必須掌握這個元素，因為它直接連結你吸入的空氣。呼吸能夠將你由幻象中解放。
+
+你能用來與這個元素合作的聲音頻率為「vaaaaaaaaaaaaaa aaaaaaaaaaaaaahhhhhhhhhhhhhhhhhhh」（瓦阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿阿## 靈魂 DNA
+
+## 阿蘇拉亞女士 (Lady Asuraya)
+
+諸位好。我的名字是阿蘇拉亞女士。我以女性的型態出現，為人類主掌連結花朵與植物界的振動模式，這也是揚昇的必要條件。透過連結花朵與植物界，你才能真正並完整地開啟自己的心。心必須完全開啟，你才能進入更高次元。
+
+我們全都攜帶著香氣，能支持人類的進化過程。我是阿蘇拉亞女士，呼喚我，讓我們一同努力將花朵與植物界的本質融入你的內在。
+
+## 梵尼龍 (Dragon Vanni)
+
+各位好。我是名為梵尼的龍。我代表並連結礦物界的能量模式。我為這星球的礦物——特別是水晶——主掌某些特定的振動模式。水晶會發送並傳導能量。在進入更高次元之前，你必須融合水晶藉此掌握此一特質。
+
+你的身體是由水晶能量所構成，自然會與礦物界產生連結並感受拉力。你必須有意識喚醒自己內在這種能量，導出這種能量並強化它，以便提升自己的振動。
+
+我的伴侶阿蘇拉亞女士和我都主掌開啟更高脈輪（第八到第十一脈輪）的能量。與我們連結，讓我們合作使你的更高脈輪在你的體內更加穩定。你用來與我們兩位連結的聲音是「vo oooooooooooooooooooooooooooooooo oh wyyyyyyyyyyyyyy y」（佛喔喔喔喔喔……喔赫……唔伊伊伊伊伊伊伊伊伊伊）。
+
+## 西克林龍 (Dragon Seacleyn)
+
+各位好，我的能量名為西克林，我定居於紐西蘭的山脈。我主掌的能量模式能連結水的國度。水是眾多生命之源，人類必須掌握這個元素才能進入更高次元。如果你能理解自己體內的水的模式，你就能徹底了解自己的生命。
+
+水掌握了你生命的鑰匙。如果你能與水合作，你們多數的問題——個人與全球問題——都能立即解決。學習掌握自己內在的這個元素。方式之一就是空出雙手捧著水，將這一捧水奉獻給天空，然後將它飲下。如此重複三次。這最好在早晨用餐前進行，便能開啟覺醒的過程，融合你體內水的本質，進而幫助你記得自己真正的根源。
+
+## 阿格尼拉丹龍 (Dragon Agniratham)
+
+各位好。我是名為阿格尼拉丹的龍，是人類身體內的火元素。我是你們每個人內在的電流脈衝，在你們之內攜帶生命力量。你和我的內在有巨大的力量，因此你必須努力活化它。這個力量的位置就在你的肚臍附近。一旦你能掌握內在之火的力量，通往大師成就之旅就更容易保持平衡。
+
+這股力量可能會吞噬你、摧毀你，也可能會轉變你並提升你。謹慎使用這個力量。剛開始先使用小規模的這種力量，逐漸累積。這個力量的聲音頻率為「theeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee
+
+## 靈魂 DNA
+
+欸……伊伊伊伊伊伊伊伊伊……嗡。
+
+## 莫勒瑪女士 (Lady Molema)
+
+各位好。我的名字是莫勒瑪。我又稱為寶貝龍，因為我主掌生命中純真的能量模式。在每個人類的核心層次，人人都是純真、純潔、充滿愛的。我主掌這個模式，好讓人類不要忘記自己真正的本質。
+
+請每天與我連結，重新發現自己內在的美、純真和無邪。任何時候，只要你需要提升和溫柔的鼓勵，請呼喚我。吟唱我的名字「莫勒瑪」三次，你將在心中感覺到我的存在。
+
+## 瓦勒勒夏克克提龍 (Dragon Vallishakkhti)
+
+大家好。我是名為瓦勒勒夏克克提的龍，又稱守門者。我的職責是開啟人類感知的門戶。感知有許多類型；揚昇（前往更高次元）是一種感知。試著在一切事物中看到更高的感知，好讓你不要因日常世界的幻象而盲目。
+
+我的能量模式是帶著點紫紅色的淡粉紅色。在心中觀想這個顏色，將這個顏色放在第三眼上，然後再去靜心。如此一來，你將會努力開啟自己更高階的感知之心／眼。你也可以將
+
+## 奇耶歐頌柏龍 (Dragon Kieosomb)
+
+各位好。我的名字是奇耶歐頌柏，主掌與地球連結的能量模式。我居住於歐洲的山丘上，許多時候我會化身為小鳥，出現在拜訪這些地方的好奇尋道者。
+
+我的角色是要護持記憶，讓你記得自己和地球深刻的共生關係，因為你和地球乃是夥伴，前來這裡都是要增加覺知並且成長。呼喚我，與我合作，喚醒這個記憶。
+
+## 靈魂 DNA
+
+音，接著慢慢以低頻吟唱八次。
+
+所以，朋友們，你已了解為何龍此刻現在要走入世間。請與牠們嬉戲，因為牠們有很多能教你。我是主梅林。
+
+## 附錄二：平衡你的飲食以強化靈性能量
+
+## 阿瑪、薩彌爾、庫圖彌大師
+
+注意：本章提供的資訊僅供教育目的之用。本文內容不可用於進行診斷或進行任何形式的生理、情緒或醫學障礙的治療，除非先行以直接或間接方式與醫師諮詢。若您為自己或他人採納並運用本文的任何建議，本書作者、編者、出版者均不為您的行為負起任何責任。
+
+各位好。今天我們想討論食物。人類攝取的食物和人類經驗生命的方式有很大關係。你曾聽過這樣的說法：「吃什麼就變成什麼」。這句話字字屬實。如果你仔細觀察，看看人吃的食物，你就會對他們有更多了解。所有食物都能分為兩類：陽性與陰性。
+
+## 陽性和陰性食物為何？它們對人有什麼影響？
+
+生命的目的是在各種表現領域創造平衡，而這會由食物開始，因為正是食物在敦促人類從事行為。在每個人的潛意識層次，記憶都記錄了各個食物短缺的時代，無論這是在昨天或數千年前所發生的。三萬年前，人類採集食物。還有些時候，你得獵取食物。這些食物短缺的記憶仍然潛藏於心靈之內。無時無刻，你們吃得都比需要得還多，因為你的身體記得自己食物不夠的時候。你從小的自然傾向就是人給什麼就吃什麼，因而養成這樣的習慣。
+
+我們可以說某些食物比其他食物更好，某些含有化學物質某些沒有，某些沉重某些輕盈，以此類推。人們總會辯論是否該吃肉。等到你對食物能量有基本的了解，你就能選擇能支持你的食物，知道哪些食物會耗竭你的能量。
+
+食物在你靈性覺醒的過程中扮演主要角色。在我們正在進入的時代，我們需要更為顯著的陰性能量。當你置身於陽性身體，其中亦包含陰性能量；你們所有人都同時包含陽性和陰性能量。如果人們能專注於食用更為陰性的食物，這會活化陰性能量，人們也將感知到更為豐富的靈魂能量湧現。造物主新的層面將會在每個人內在活化。這會帶來龐大的智慧、技能和能力，它們會在每個攝取更多陰性振動食物的人內在湧現。我們揚昇大師請求人類擁抱自己內在活化的陰性特質，並且在他們的行為、思想和靜心中運用。這樣的飲食方式非常重要。
+
+有時候你必須採取物質行動才能造成靈性轉變。我們相信以這種方式飲食是一種能穩固靈性轉變的物質行動，能活化更大的愛、創造力、美的能量。這會改變身體全部的振動，人類正需要這麼做才能更進一步揚昇。若是有這麼多人散發出陰性能量，大地母親也會擁抱這些振動，並且在物質實相中創造療癒。這種飲食方式能療癒物質身體和物質地球。
+
+## 該吃什麼食物，什麼時候吃
+
+讓我們想想一天的第一餐：早餐。專業醫學人士會說健康的早餐是一天的關鍵，因此每個人都該吃平衡的早餐。現在讓我們仔細檢視這樣的說法。早晨人們從休息充分的睡眠醒來時，他們的能量場處在高度接收的狀態。如果他們所吃的食物與之衝突，那麼人們接收和創造的部分就會逐漸耗盡能量。舉例來說，讓我們看看典型的美式早餐，包括麵包、蛋、牛奶、咖啡或茶、柳橙汁等等。這些食物全都包含陽性能量。吃這些食物的話，創造力的部分就會關閉，陽性的部分就會佔了上風。另一方面，如果人吃的食物能在早晨支持他們的能量場，那麼他們的能量就會強化，會讓人持續留在接受和創造的空間。早晨最先吃的食物和飲品的能量會設定整天的模式。
+
+你何時能攝取陽性食物？午餐是吃陽性食物最好的時間，因為這會給你能量推動你向前。傍晚的食物應為陰性食物。這不僅幫助你獲得健康，也能在你睡眠時強化創造性概念，好讓你醒來時更加平衡。
+
+另外一件關於食物能量的是要注意，也就是烹調方式。食物以陶鍋烹調能保留最高頻的振動，因為這類容器包含高頻能量以及大地母親更自然的本質。
+
+## 選擇陽性和陰性食物
+
+親愛的各位，所有食物，包含水，都能分為這兩類。冷水屬於陽性，溫水屬於陰性。
+
+針對攝取的食物進行實驗，你會找到最適合你的食物。
+
+人類活在加速中的時代，高度靈性的能量正在注入地球。你需要保持最佳能量場，以便運用這些充滿力量的能量。因此，你需要盡可能保持身體輕盈，才能運用這些能量。觀察自己攝取的食物，你將能做出必須的調整以便支持自己的靈性進程。
+
+## 陽性食物
+
+- 冷水
+- 雞豆（埃及豆）
+- 洋蔥
+- 黃豆
+- 櫛瓜
+- 橄欖
+- 茄子
+- 含沙拉醬的沙拉
+- 煮熟的豆類
+- 甜玉米（大量生產）
+- 馬鈴薯泥／薯餅
+
+**水果類**
+
+- 香蕉
+- 鳳梨
+- 葡萄
+- 芒果
+- 椰棗
+- 杏桃
+- 草莓
+- 西瓜
+
+**肉類與乳製品**
+
+- 蛋
+- 培根
+- 牛奶（工廠生產）
+- 魚
+
+**蔬菜類**
+
+- 高麗菜
+- 地瓜
+- 小黃瓜
+- 肉（所有肉類）
+
+**五穀類**
+
+- 義大利麵（所有種類）
+- 麵包（所有）
+- 小麥、裸麥等
+- 米飯（所有類型）
+
+**堅果類**
+
+- 花生
+- 腰果
+
+**香料**
+
+- 印度咖哩粉
+
+**飲料**
+
+- 汽水
+- 咖啡與茶
+- 花草茶（多半種類）
+
+**即食食品**
+
+- 比薩（所有）
+- 餅乾（所有）
+- 雞肉派
+- 熱狗
+- 洋芋片
+- 巧克力（所有）
+- 蛋糕（所有）
+- 玉米片
+- 甜甜圈
+
+## 陰性食物
+
+**溫水**
+
+**水果類**
+
+- 蘋果
+- 橘子
+- 木瓜
+- 哈密瓜
+- 石榴
+- 奇異果
+- 櫻桃
+- 葡萄乾
+- 無花果
+- 番茄（僅限小番茄）
+
+**莓果類**
+
+- 梨子
+- 酪梨（排名第一的平衡食物，任何時候均能食用。）
+
+**蔬菜類**
+
+- 紅蘿蔔
+- 美生菜
+- 大頭菜
+- 白蘿蔔
+- 白花椰菜
+- 青花椰菜
+- 甜玉米（有機）
+- 扁豆
+- 蘆筍
+- 波菜
+- 秋葵 韭菜
+- 芹菜
+- 不含沙拉醬的沙拉
+- 菇菌類
+
+**肉類和乳製品**
+
+- 羊奶
+- 牛奶（農場生產）
+- 小蝦（不超過 2.5 公分）
+
+**五穀類**
+
+- 天然麥片
+
+**堅果類**
+
+- 胡桃
+- 杏仁
+
+**香料**
+
+- 胡椒
+
+**飲料**
+
+- 綠茶
+
+## 什麼食物會創造一整天健康的能量經驗？
+
+以早餐而言，我們推薦單純以麥片搭配農場生產的牛奶、酪梨、木瓜和新鮮搾取的柳橙汁。早晨，你要保持接收狀態。以下午來說，可以攝取陽性食物做為能量推進器，讓你持續前進。若是傍晚想吃點心，不要大嚼餅乾糖果，而是攝取不含任何調味料的堅果和葡萄乾。以晚餐來說，試著攝取本質為陰性的食物。包括新鮮的食物、甜椒（紅甜椒、綠甜椒、尤其是黃甜椒）、小蘿蔔、波菜（新鮮或蒸煮）、菜豆、豌豆、小番茄、迷你蘋果等等。親愛的各位，與食物能量玩遊戲，找出最適合你自己的飲食方案。
+
+## 附錄三：活化新世紀的密碼
+
+## 大天使麥達昶
+
+天使與各位寒暄。我是大天使麥達昶。我最親愛的造物主同伴們，現在該加速在這個新的時間軸中創造一個新的實相，讓置身其中的你與自己完全和諧。你們全都了解，這顆星球的意識已經在今年春分時再次轉換，這次的轉換稱為「由黑暗步入光明」。這也稱為「進入新的紀元」——這個新的時間軸至少會持續幾千年。隨著這個新的轉變發生，帷幕變薄了，與第五次元的溝通和連結也更為容易。只要意圖能與準備和行動結合，你就能真正運用這個新的時間週期。我們的意思是什——意圖和準備？
+
+首先，你可以藉由呼喚並活化自身內在的水瓶密碼（Aquarian code）來準備這次轉化。每個紀元（Yuga）或時期都有特定的密碼和相關的大師。有兩位光之存在正以他們的光照耀這個新紀元，他們會陪伴地球知道下個新紀元到來。你可以呼喚這兩位存在：水瓶領主和夫人（Lord and Lady of Aquarius）。他們具備特定的振動記號，而你能請求融入他們與這個時期的地球相關的特定的光。他們的光頻率是淡淡的鐵黃色。觀想這道光進入你的第十脈輪，位於你頭部上方較高處，接著感覺這道光沿著你所有脈輪流下，然後再進入大地之靈的身體並且在該處安住。在融入這道光時，重點是要記得光不僅在脈輪柱中流動，也要進入你的普拉納管道。你的進化的下個階段是來自普拉納管道。每天做這個練習幾分鐘，觀想能量安住並字在流動——無論是在身體前後的脈輪中，或是在普拉納管道內。
+
+## 活化沉睡的密碼
+
+水瓶密碼的活化將會成為活化其他密碼的基礎。這些其他的密碼是什麼？人類是由聲音頻率和神聖幾何構成的，而每個聲音頻率和幾何部分都包含特定密碼。這些密碼會沉睡無數年代，直到它們獲得活化並運用。
+
+你們全都非常清楚與你合作的指導靈和其他支持能量，你們之中某些人經常且每日與他們溝通。這些指導靈是你的靈魂群組能量的一部分，而且每位指導靈都有個密碼。當你活化這些密碼，你就會完全擁抱這些存在的完整本質。例如，有大師和指導靈的密碼，例如佛陀大師、庫圖彌大師和主梅翠雅。你可以在靜心或靜默時請求活化這些密碼。還有些天使密碼也能活化。有些是我——大天使麥達昶——的密碼，有些是大天使麥可、大天使加百列、還有其他大天使和天使的密碼。單純地帶著純粹的意圖和心中的愛請求便能開啟這個過程。
+
+當你活化這些密碼，你便能導入更多指導靈的光，將之融入自己的光，這會立即強化你的光頻率。這類似於升級你舊電腦的軟體，好讓它能將新軟體運行得更快、更順暢。地球已經進入更高的實相，你必須加速並升級自己光的含量，才能符合地球新的頻率。還有些密碼屬於地球、所有元素和星辰，還有密碼能連結動物之靈純粹的本質。當你活化這些密碼，你將能與他們在更高層次相應，並且能與創造的一切溝通。你們許多人在自己的生命深處都渴望體驗這個層次的自我，能在日常生活與創造的一切之間體驗自己神的層面。造物主同伴們，這是進行的方式之一。
+
+## 運用新的密碼和你的星辰遺產
+
+我們想與你分享的下個練習是活化自己內在的摩西密碼（Moses code）。摩西密碼包含穿越和解放的特定能量——這種能量能支持你辨認何者是珍貴的，何者不會支持你的自我了悟。你們多數人都難以放下對第三次元行為和模式的深度執著，因此在靜心時運用摩西密碼能幫助你辨認這些模式並且將它們由你的生命中完全消除。
+
+你的生命中還有些密碼稱為靈魂藍圖密碼。許多光之工作者和其他人很難理解自己的生命目的或為何自己要出生，因此呼喚這些藍圖密碼的活化會讓他們能更為容易地感覺、感受或以直覺方式認識自己的靈魂目的。
+
+另外一個我們希望你們注意的領域就是你們的星辰遺產連結。你們許多人，在結束自己的地球化身之後，將會前往不同的星系去體驗或學習特定的課程。在這些學習的時候，你會創造星辰業報，因為同樣的因果原則也存在於那些實相。許多地球上的人都帶著沈重的星辰業報，這需要平衡且釋放。一旦完成，那麼你便能呼喚並活化自己內在的星辰密碼，因為你們所有人都與特定的星相應，而那顆星就是你們支持能量的一部分，等待你的呼喚。
+
+你們全都與一顆星、一隻龍、一顆樹、一株植物、一隻動物、一種聲音頻率、一個顏色、一種味道相應。你可以在靜心時呼喚這些支持能量的密碼獲得活化並且顯現，因為它們全都支持著你。
+
+## 平衡能量
+
+另外一個我們希望你注意的領域是關於能量失衡，也被稱為業報能量。業報就是這麼簡單——能量失衡。我們一再轉是就是要平衡能量。不過此時，在這個新的時期，你能夠藉由直接與業報委員會合作來消除許多這樣的失衡能量。業報委員會包含十二位光之存在，其中包含某些揚昇大師如佛陀大師與觀音夫人。在靜心時練習與他們溝通，請求從你的阿卡莎檔案和量子能量場中釋放這些失衡能量。再一次，請求並意圖讓這一切發生，便足以開啟這個程序。你也可以請求業報委員會將你的覺知導向業報中蘊含的課題——不帶有痛苦折磨的失衡。這種請求及消除業報是你為自己贏得的禮物，因為我們希望你能潔白無暇地進入這個新的紀元。
+
+最後，我們請你呼喚偉大的導師山納·庫瑪拉，因為他帶著特殊的、直接與這個地球層面連結的能量和密碼。山納·庫瑪拉體現了金星的能量，金星就是你來到地球之前化身所在之處。在這裡，你全然覺知自己是誰，因此請求山納·庫瑪拉活化這個出生前的意識密碼。這能幫助你記起更多的自己和內在的神，因為你們全都是男神和女神。親愛的家人，只要使用這些簡單的密碼工具，你將會來到這樣的地方，對自己和你的宇宙有更清楚的認識。
+
+## 作者簡介
+
+雷·強德蘭生於印度，曾於美國和日本生活。他針對個案提供個別通靈課程，文章也曾刊登於聖多那靈性期刊（Sedona Journal of Emergence）。雷在遠東地區開設工作坊來介紹古埃及神祕學派（Ancient Egyptian mysteries）、DNA 活化以及通靈。他也為個案創造靈魂符號，並且帶領人們遊歷全世界的古老聖地。
+
+雷創辦了歐姆朗機構（Omran Institute），此機構專事推廣 DNA 覺知並且針對「歐姆朗十二束 DNA 活化」（Omran 12-Strand DNA Activation）的從業人員提供授證。他也為個案提供個別的「歐姆朗十二束 DNA 活化」療程。他與妻兒住在日本東京近郊，更多資訊請參閱作者個人網站：www.RaeChandran.com。
+
+## 編者簡介
+
+羅伯·波洛克生於美國華盛頓特區，曾於英國倫敦、加拿大、以及美國麻薩諸塞州的伯克夏山區定居。他在伯克夏地區的一所全人健康中心擔任能量醫者，也在紐約及伯克夏進行能量療癒工作。
+
+羅伯曾出版《以心導航》（Navigating by Heart），並教授靈性和 DNA 活化的工作坊。他也為個案提供「歐姆朗十二束 DNA 活化」療程。羅伯目前定居於伯克夏，個人網站為：www.BerkshireEngergyHealing.com。
+
+## 靈魂DNA第二部簡介
+
+《靈魂DNA第一部》的續集會延續前書的重要教導，也是設計來強化前書內容並揭示能更進一步支持人類的教導。本書指出特定的技巧來提升自己的光，深化第一部所提供的教導。《靈魂DNA第二部》包含更高的成熟和智慧，書中文字也注入更多能量。在你翻閱本書的同時，請在心中護持神聖，請求內容能銘印在心中，好讓它能成為你能應用於自己生活的經驗。書中某些資訊是以密碼型態存在，真誠的學生會發現它們能解開這些密碼。
+
+本書所介紹的工具都曾由大師所使用。在各位閱讀本書內容並辨認自我真理時，你會發現自己踏上驚人的自我發現之旅，這會幫助你體驗和宇宙合一，發現自己內在的神聖。
+
+本書章節簡介：
+
+- 帶來療癒的氣場銘印技巧
+- 神的數字
+- 揭露自己的生命契約
+- 用你的阿卡莎檔案重新創造自己的生命
+- 人類是受訓中的造物主
+- 如何連結新的教導
+- 運用自己的光體來活化DNA
+
+## 生命潛能出版圖書目錄
+
+| 編號 | 書名 | 作者 | 譯者 | 定價 |
+|---|---|---|---|---|
+| ST01124 | 預見未知的高我 | 弗瑞德·思特靈Fred Sterling | 林瑞堂 | 380 |
+| ST01125 | 邀請你的指導靈 | 桑妮雅·喬凱特Sonia Choquette | 邱俊銘 | 380 |
+| ST01126 | 來自寂靜的信息 | 李耳納·傑克伯森Leonard Jacobson | 鄭羽庭 | 320 |
+| ST01127 | 呼吸的神奇力量 | 德瓦帕斯Devapath | 黃翎展 | 270 |
+| ST01128 | 當靜心與諮商相遇 | 史瓦吉多Svagito R. Liebermeister | 莎薇塔 | 380 |
+| ST01129 | 靈性法則之光 | 黛安娜·庫柏Diana Cooper | 沈文玉 | 320 |
+| ST01130 | 塔羅其實很簡單 | M. J. 阿芭迪M. J. Abadie | 盧娜 | 280 |
+| ST01133 | 地心文明桃樂市(1) | 奧瑞莉亞·盧意詩·瓊斯 Aurelia Louise Jones | 陳菲 | 280 |
+| ST01134 | 齊瑞爾訊息：創世基質 | 弗瑞德·思特靈Fred Sterling | 邱俊銘 | 340 |
+| ST01136 | 綻放直覺力 | 金·雀絲妮Kim Chestney | 許桂綿 | 280 |
+| ST01137 | 點燃療癒之火 | 凱若琳·密思博士Caroline Myss, Ph.D. | 林瑞堂 | 380 |
+| ST01139 | 我值得擁有一切美好的改變 | 露易絲·賀Louise L. Hay | 蕭順涵 | 250 |
+| ST01140 | 齊瑞爾訊息：重返列木里亞 | 弗瑞德·思特靈Fred Sterling | 林瑞堂 | 380 |
+| ST01142 | 克里昂訊息：DNA靈性12揭密 | 李·卡羅Lee Carroll | 邱俊銘 | 380 |
+| ST01143 | 重拾靈魂悸動 | 桑妮雅·喬凱特Sonia Choquette | 丘羽先 | 280 |
+| ST01144 | 朵琳夫人的天使水晶治療書 | 朵琳·芙秋博士Doreen Virtue, Ph.D. & 茱蒂斯·洛克斯基Judith Lukomski | 陶世惠 | 300 |
+| ST01146 | 地心文明桃樂市(3) | 奧瑞莉亞·盧意詩·瓊斯Aurelia Louise Jones | 黃愛淑 | 380 |
+| ST01147 | 女人愈熟愈美麗 | 莎拉·布洛考Sarah Brokaw | 盧秋瑩 | 350 |
+| ST01149 | 你的人生不一樣 | 露易絲·賀Louise L. Hay & 雪柔·李察森Cheryl Richardson | 江孟蓉 | 250 |
+| ST01150 | 發現亞特蘭提斯 | 黛安娜·庫柏Diana Cooper & 莎朗·赫頓Shaaron Hutton | 林瑞堂 | 380 |
+| ST01154 | 創造生命的力量(附光碟) | 露易絲·賀Louise L. Hay | 吳品瑜 | 280 |
+| ST01155 | 開心曼陀羅 | 林妙香 | | 280 |
+| ST01156 | 天使之藥2013年新版 | 朵琳·芙秋博士Doreen Virtue, Ph.D. | 陶世惠 | 340 |
+| ST01157 | 願望 | 安潔拉·唐諾凡Angela Donovan | 楊佳蓉 | 300 |
+| ST01158 | 居家魔法整理術 | 泰絲·懷特赫思特 Tess Whitehurst | 林群華 | 300 |
+| ST01159 | 通向宇宙的鑰匙 | 黛安娜·庫柏Diana Cooper &凱西·克洛斯威爾Kathy Crosswell | 黃愛淑 | 380 |
+| ST01161 | 中年不敗 | 潔西卡·卡吉爾湯普生 Jessica Cargill-Thompson &約翰·歐康乃爾 John O'Connell | 游懿萱 | 250 |
+
+| ST01162 | 不置力的靜坐 | 阿嘉彥·波伊斯Ajayan Borys | 舒靈 | 300 |
+| ST01163 | 水晶高頻治療(2) | 卡崔娜·拉斐爾Katrina Raphaell | 奕蘭 | 300 |
+| ST01164 | 夢想的顯化藝術 | 偉恩·戴爾博士Wayne W. Dyer | 非語 | 300 |
+| ST01165 | 凱若琳的人格原型書 | 凱若琳·密思Caroline Myss | 林瑞堂 | 360 |
+| ST01167 | 通往幸福的奇蹟課程 | 蓋布麗兒·伯恩絲坦 Gabrielle Bernstein | 謝明憲 | 360 |
+| ST01168 | 新世代小孩與人類意識大蛻變 | P.M.H.阿特沃特P. M. H. Atwater | 楊仕音 | 350 |
+| ST01170 | 人間天使的決斷力 | 朵琳·芙秋博士Doreen Virtue, Ph.D. | 林瑞堂 | 300 |
+| ST01171 | 水晶光能傳導(3) | 卡崔娜·拉斐爾Katrina Raphaell | 思逸 | 350 |
+| ST01173 | 奧修靜心治療 | 史瓦吉多Svagito R. Liebermeister | 陳伊娜 | 420 |
+| ST01174 | 召喚天使(2014年新版) | 朵琳·芙秋博士Doreen Virtue, Ph.D. | 王愉淑 | 280 |
+| ST01175 | 為人生帶來奇蹟的魔法書 | 山川紘矢 & 山川亞希子 | 李瓊祺 | 300 |
+| ST01176 | 來自長島靈媒的療癒訊息 | 特蕾莎·卡普托Theresa Caputo | 非語 | 320 |
+| ST01177 | 遇見神奇獨角獸 | 黛安娜·庫柏Diana Cooper | 黃愛淑 | 380 |
+| ST01178 | 托爾特克愛的智慧之書 | 唐·梅桂爾·魯伊茲Don Miguel Ruiz | 非語 | 260 |
+| ST01179 | 初學者的內觀禪修 | 傑克·康菲爾德 Jack Kornfield | 舒靈 | 250 |
+| ST01180 | 療癒破碎的心 | 露易絲·賀 Louise Hay &大衛·凱斯勒 David Kessler | 謝明憲 | 280 |
+| ST01181 | 當下是良師 | 佩瑪·丘卓Pema Chödrön | 舒靈 | 280 |
+| ST01182 | 天使塔羅全書 | 朵琳·芙秋博士 Doreen Virtue, Ph.D. & 羅賴·瓦倫坦 Radleigh Valentine | 星宿老師（林樂卿） | 350 |
+| ST01183 | 看見神性生命的奇蹟 | 偉恩·戴爾博士（Wayne W. Dyer） | 非語 | 420 |
+| ST01184 | 靈性能量淨化書 | 泰絲·懷特赫思特 Tess Whitehurst | 陳麗芳 | 300 |
+| ST01185 | 天使能量排毒法 | 朵琳·芙秋博士Doreen Virtue Ph.D. & 羅伯·李維Robert Reeves | 黃愛淑 | 420 |
+| ST01186 | 天使占星學 | 朵琳·芙秋博士Doreen Virtue, Ph.D. & 亞思敏Yasmin Boland | 陳萱芳 | 720 |
+| ST01187 | 情緒藝術 | 露西雅·卡帕席恩博士 Lucia Capacchione Ph.D. | 沈文玉 | 350 |
+| ST01188 | 五次元的靈魂揚昇 | 黛安娜·庫柏 Diana Cooper &提姆·威德 Tim Whild | 黃愛淑 | 450 |
+| ST01189 | 天使數字書(2016年版) | 朵琳·芙秋博士Doreen Virtue, Ph.D. | 王愉淑 | 300 |
+| ST01190 | 催眠之聲伴隨你(2016年版) | 米爾頓·艾瑞克森Milton H. Erickson & 史德奈·羅森Sidney Rosen | 蕭德蘭 | 450 |
+| ST01191 | 假面恐懼 | 麗莎·蘭金博 Dr. Lissa Rankin | 非語 | 450 |
+| ST01192 | 天使夢境國度 | 朵琳·芙秋博士Doreen Virtue, Ph.D. & 梅麗莎·芙秋Melissa Virtue | 黃春華 | 320 |
+| ST01193 | 高敏感族自在心法 | 伊蓮·艾融Elaine N. Aron | 張明玲 | 480 |
+| ST01194 | 喜悅之道 | 珊娜雅·羅曼Sanaya Roman | 王季慶 | 400 |
+
+获取更多好书，请加微信：13641926204 或 QQ:715104687
+
+| ST01195 | 開放通靈 | 珊娜雅·羅曼Sanaya Roman &杜安·派克 Duane Packer | 羅孝英 | 450 |
+| ST01196 | 創造金錢 | 珊娜雅·羅曼Sanaya Roman &杜安·派克 Duane Packer | 羅孝英 | 450 |
+| ST01197 | 個人覺知的力量 | 珊娜雅·羅曼Sanaya Roman | 羅孝英 | 420 |
+| ST01198 | 如是 | 許宜銘 |  | 350 |
+| ST01199 | 光行者 | 朵琳·芙秋博士Doreen Virtue, Ph.D | 林瑞堂 | 400 |
+
+## 心靈塔羅系列
+
+| 編號 | 書名 | 作者 | 譯者 | 定價 |
+|---|---|---|---|---|
+| ST11015 | 亞特蘭提斯神諭占卜卡 | 黛安娜·庫柏Diana Cooper | 羅孝英 | 780 |
+| ST11016 | 聖地國度卡 | 柯蕾·鮑隆瑞 Colette Baron-Reid | 王培欣 | 850 |
+| ST11017 | 守護天使指引卡(新版) | 朵琳·芙秋博士 Doreen Virtue, Ph.D. | 陶世惠 | 850 |
+| ST11020 | 揚昇大師神論卡(2013年新版) | 朵琳·芙秋博士 Doreen Virtue, Ph.D. | 鄭婷玫 | 850 |
+| ST11022 | 神奇精靈指引卡(2013年新版) | 朵琳·芙秋博士 Doreen Virtue, Ph.D. | 陶世惠 | 850 |
+| ST11024 | 靛藍天使指引卡 | 朵琳·芙秋博士 Doreen Virtue, Ph.D. & 查爾斯·芙秋Charles Virtue | 王培欣 | 850 |
+| ST11025 | 指導靈訊息卡(2014年新版) | 桑妮雅·喬凱特Sonia Choquette | 邱俊銘 | 850 |
+| ST11026 | 神奇花朵療癒占卜卡 | 朵琳·芙秋博士 Doreen Virtue, Ph.D.& 羅伯·李維Robert Reeves | 陶世惠 | 850 |
+| ST11030 | 生命療癒卡(2015年新版) | 凱若琳·密思Caroline Myss, Ph. D & 彼得·奧奇葛羅素Peter Occhiogrosso | 林瑞堂 | 850 |
+| ST11031 | 智慧脈輪指引卡 | 托莉·哈特曼Tori Hartman | 安德魯 | 850 |
+| ST11032 | 守護天使塔羅牌 | 朵琳·芙秋博士 Doreen Virtue, Ph.D. &羅賴·瓦倫坦 Radleigh Valentine | 林瑞堂 | 1280 |
+| ST11033 | 神奇美人魚與海豚指引卡(2016年版) | 朵琳·芙秋博士Doreen Virtue Ph.D. | 陶世惠 | 1180 |
+| ST11034 | 大天使神諭占卜卡(2016年版) | 朵琳·芙秋Doreen Virtue, Ph.D. | 王愉淑 | 1180 |
+| ST11035 | 天使回應占卜卡(2016年版) | 朵琳·芙秋 博士Doreen Virtue &羅賴·瓦倫坦Radleigh Valentine | 黃春華 | 1180 |
+| ST11036 | 天使夢境神諭卡(2016年版) | 朵琳·芙秋 博士Doreen Virtue, Ph.D. & 梅麗莎·芙秋Melissa Virtue | 黃春華 | 1200 |
+| ST11037 | 天使療癒卡(2016年版) | 朵琳·芙秋 博士Doreen Virtue, Ph.D. | 陶世惠 | 1180 |
+| ST11038 | 天使塔羅牌 | 朵琳·芙秋博士 Doreen Virtue, Ph.D.& 羅賴·瓦倫坦 Radleigh Valentine | 王培欣、王芳屏 | 1680 |
+| ST11039 | 愛希斯埃及女神卡 | 阿蓮娜·菲雀爾德 Alana Fairchild | 黃春華 | 1280 |
+| ST11040 | 愛的絮語占卜卡 | 安潔拉·哈特菲爾德 Angela Hartfield | 黃春華 | 1380 |
+| ST11041 | 觀音神諭卡 | 阿蓮娜·菲雀爾德 Alana Fairchild | 黃春華 | 1580 |
+| ST11042 | 自然絮語占卜卡 | 安潔拉·哈特菲爾德 Angela Hartfield | 黃春華 | 1380 |
+
+## 奧修靈性成長系列
+
+| 編號 | 書名 | 作者 | 譯者 | 定價 |
+|---|---|---|---|---|
+| ST6041 | 叛逆的靈魂-奧修自傳(DVD) | 奧修OSHO | 黃瓊瑩 | 450 |
+| ST6042 | 奧修談身心平衡(CD) | 奧修OSHO | 陳明堯 | 300 |
+| ST6043 | 靈魂之藥(DVD) | 奧修OSHO | 陳明堯 | 280 |
+| ST6044 | 與先哲奇人相遇(DVD) | 奧修OSHO | 陳明堯 | 320 |
+| ST6045 | 奧修談瑜伽(DVD) | 奧修OSHO | 林妙香 | 280 |
+| ST6046 | 奧修談勇氣(DVD) | 奧修OSHO | 黃瓊瑩 | 300 |
+| ST6047 | 奧修談自我(DVD) | 奧修OSHO | 莎薇塔 | 380 |
+| ST6048 | 奧修談成熟(DVD) | 奧修OSHO | 黃瓊瑩 | 280 |
+| ST6049 | 奧修談覺察 | 奧修OSHO. | 黃瓊瑩 | 280 |
+| ST6050 | 奧修談直覺(DVD) | 奧修OSHO | 沈文玉 | 280 |
+| ST6051 | 奧修談恐懼(DVD) | 奧修OSHO | 陳伊娜 | 300 |
+| ST6053 | 奧修談創造力(DVD) | 奧修OSHO | 莎薇塔 | 300 |
+| ST6054 | 奧修談親密(DVD)2015年新版 | 奧修OSHO | 陳明堯 | 280 |
+| ST6055 | 夢幻泡影 | 奧修OSHO | 陳伊娜 | 300 |
+| ST6056 | 城市裡的靜心手札 | 奧修OSHO | 非語 | 350 |
+| ST6057 | 奧修脈輪能量全書 | 奧修OSHO | 莎薇塔 | 580 |
+
+## 兩性互動系列
+
+| 編號 | 書名 | 作者 | 譯者 | 定價 |
+|---|---|---|---|---|
+| ST0218 | 靈慾情色愛 | 許宜銘 |  | 200 |
+| ST0224 | 男女大不同 身心健康對策 | 約翰·葛瑞博士John Gray, Ph.D | 許桂綿 | 320 |
+| ST0227 | 愛的溝通不打烊 | 瓊恩、卡森 | 周晴燕 | 280 |
+| ST0229 | Office男女大不同 職場輕鬆溝通 | 約翰·葛瑞博士John Gray, Ph.D |  | 320 |
+| ST0232 | 男人來自火星 女人來自金星 | 約翰·葛瑞博士John Gray, Ph.D | 蘇晴 | 320 |
+| ST0233 | 靈魂伴侶 | 艾莉兒·福特 Arielle Ford | 李怡萍 | 380 |
+| ST0234 | 男孩們的那些鳥事 | 安德魯·史邁勒 Andrew P. Smiler | 林瑞堂 | 450 |
+| ST0235 | 慾望の回歸 | 吉娜·奧格登 Gina Ogden | 鍾莉方 | 450 |
+
+## NOTE
+
+如果人類能轉變自己的思考模式，
+就會有越來越多人覺醒並活化自己的DNA，並且讓人們知道他
+們能觸及自己更寬廣
+更崇高的層面。
+這不是魔法，有許多導師已經這麼做了。
+
+水瓶密碼的活化將會成為活化其他密碼的基礎。
+
+這些其他的密碼是什麼？
+
+人類是由聲音頻率和神聖幾何構成的，
+
+而每個聲音頻率和幾何部分都包含特定密碼。
+
+這些密碼會沉睡無數年代，
+
+直到它們獲得活化並運用。
+
+天使神秘学院官方淘宝:http://strc.taobao.com
+
+## NOTE
+
+获取更多好书,请加微信:13641926204或QQ:715104687
+
+靈魂的意圖是永遠去尋找更高的經驗。
+它絕不停止。
+所以要請你
+獲得在這個新的實相中
+你的靈魂在地球層面能獲得的最高經驗。
+
+## NOTE
+
+
+你的乙太DNA束是你靈魂的資料庫，其中包含你累世生命的完整歷史。包括你帶入這一世的態度、業報、情緒傾向的記錄、還有一份藍圖（或是課程計畫）好讓你提升自我。你的DNA也記錄了從你被創造為星子的那一刻，到當前轉世的全部存在。這些資訊寫在你全身每個細胞裡。
+
+這本書告訴你能做哪些練習、能進行什麼能量連結，並藉此提升自我意識並活化額外的DNA螺旋束。這些練習可以帶給你更進一步的靈性力量、提升你的覺知、讓你與造物主以及內在層次的存在有更深的連結。
+
+## 章節內容包括：
+
+- 活化DNA十二層次的手印
+- 人類DNA的歷史
+- 喚醒水晶意識
+- 運用能量提升DNA層級
+- 喚醒意識的絕佳時代
+- 揚昇大師能如何協助你揚昇
+- DNA活化的天使支持
+- 你的內在羅盤：自然的身體智能
