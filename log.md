@@ -32,3 +32,4 @@
 ## [2026-11-09] ingest | diwuzhenyan -> 零极限与荷欧波诺波诺体系.md, 第五真言我原谅自己.md
 ## [2026-11-09] ingest | EFT情伤疗愈 -> EFT情伤疗愈.md, EFT情绪释放技巧.md, EFT情伤疗愈实作.md
 ## [2026-11-09] ingest | EFT情绪疗愈 -> EFT十大情绪排毒.md, EFT情绪释放技巧.md
+## [2026-11-09] ingest | ESP通灵的智慧 -> ESP通灵智慧体系.md, 安全通灵与ESP超觉阅读.md, 宇宙集体潜意识与灵商.md

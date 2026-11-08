@@ -1,3 +1,10 @@
+---
+compiled: true
+pages:
+- ESP通灵智慧体系.md
+- 宇宙集体潜意识与灵商.md
+- 安全通灵与ESP超觉阅读.md
+---
 # ESP 通灵的智慧
 
 ## 自序
