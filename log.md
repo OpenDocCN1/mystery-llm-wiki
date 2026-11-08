@@ -54,3 +54,4 @@
 ## [2026-11-09] ingest | SUMMARY -> 占星书籍目录与主题导航.md
 ## [2026-11-09] ingest | tuximofa -> 土元素魔法体系.md, 土系神话存有与土元素神明.md, 土元素历史演化与当代异教.md
 ## [2026-11-09] ingest | weizhizhongjietuo -> 出生前计划与因果疗愈.md, 灵魂小组与集体出生前计划.md, 身体病痛与出生前计划案例.md
+## [2026-11-09] ingest | wicca-book-spell-witchcraft-begin -> 巫术现代指南.md, 西方巫术简史.md, 威卡仪式与圆圈.md

@@ -1,3 +1,10 @@
+---
+compiled: true
+pages:
+- 威卡仪式与圆圈.md
+- 巫术现代指南.md
+- 西方巫术简史.md
+---
 # 面向初学者的威卡咒语和巫术书
 
 > 原文：[Wicca - Book of Spells and Witchcraft for Beginners]()
