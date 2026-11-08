@@ -43,3 +43,4 @@
 ## [2026-11-09] ingest | Mabon：秋分的仪式，食谱和传说 -> Mabon秋分与年轮.md, Mabon丰收神话与传说.md, Mabon仪式法术占卜与食谱.md
 ## [2026-11-09] ingest | manbulinghunsenlin -> 漫步灵魂森林.md, 塔罗起源与韦特塔罗版本谱系.md, 塔罗占卜与自由意志.md
 ## [2026-11-09] ingest | MBA女巫带你开通能量 -> MBA女巫带你开通能量.md, 女巫脉轮疗愈体系.md
+## [2026-11-09] ingest | mnd-mgk -> 心灵魔法显化的神经科学.md, 显化的大脑网络与神经系统.md, 显化实践与专注力训练.md
