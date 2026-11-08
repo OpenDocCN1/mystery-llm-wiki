@@ -1,3 +1,10 @@
+---
+compiled: true
+pages:
+- soham-healing-sprays.md
+- soham-healing-system.md
+- soham-techniques-and-meridians.md
+---
 
 
 新圓山診所 崔玖 院長．作家 袁瓊瓊．全昌堂中醫診所 陳弘儒 醫師．政治大學華人宗教研究中心 謝世維 主任 ——一致推薦
