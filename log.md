@@ -40,3 +40,4 @@
 ## [2026-11-09] ingest | huoximofa -> 火元素魔法体系.md, 火元素历史演化.md, 火系神话存有与火元素神明.md
 ## [2026-11-09] ingest | hwlkhpn -> luck-how-it-happens.md, luck-creation-principles.md, luck-risk-and-probability.md
 ## [2026-11-09] ingest | linghunchushengqian -> 灵魂的出生前计划.md, 出生前计划与因果疗愈.md, 流产与灵性觉醒的出生前计划案例.md
+## [2026-11-09] ingest | Mabon：秋分的仪式，食谱和传说 -> Mabon秋分与年轮.md, Mabon丰收神话与传说.md, Mabon仪式法术占卜与食谱.md

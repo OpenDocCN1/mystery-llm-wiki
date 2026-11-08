@@ -1,3 +1,10 @@
+---
+compiled: true
+pages:
+- Mabon丰收神话与传说.md
+- Mabon仪式法术占卜与食谱.md
+- Mabon秋分与年轮.md
+---
 
 
 # Mabon：秋分的仪式，食谱和传说
