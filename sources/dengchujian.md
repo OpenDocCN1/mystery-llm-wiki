@@ -1,3 +1,10 @@
+---
+compiled: true
+pages:
+- 如幻视角与信念显化.md
+- 生命三要素与不解释.md
+- 登出键体系与莫子.md
+---
 # 登出键
 
 ![日程表中度可信度描述已自动生成](img/dengchujian_image-1.png)
