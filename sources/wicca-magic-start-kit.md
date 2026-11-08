@@ -1,3 +1,9 @@
+---
+compiled: true
+pages:
+- wicca-candle-magic-introduction.md
+- wicca-magic-starter-kit.md
+---
 # 威卡魔法入门书
 
 Wicca Magic Starter Kit
