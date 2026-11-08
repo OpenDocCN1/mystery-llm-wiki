@@ -53,3 +53,4 @@
 ## [2026-11-09] ingest | SoHam徒手能量疗愈 -> soham-healing-system.md, soham-techniques-and-meridians.md, soham-healing-sprays.md
 ## [2026-11-09] ingest | SUMMARY -> 占星书籍目录与主题导航.md
 ## [2026-11-09] ingest | tuximofa -> 土元素魔法体系.md, 土系神话存有与土元素神明.md, 土元素历史演化与当代异教.md
+## [2026-11-09] ingest | weizhizhongjietuo -> 出生前计划与因果疗愈.md, 灵魂小组与集体出生前计划.md, 身体病痛与出生前计划案例.md
