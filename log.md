@@ -42,3 +42,4 @@
 ## [2026-11-09] ingest | linghunchushengqian -> 灵魂的出生前计划.md, 出生前计划与因果疗愈.md, 流产与灵性觉醒的出生前计划案例.md
 ## [2026-11-09] ingest | Mabon：秋分的仪式，食谱和传说 -> Mabon秋分与年轮.md, Mabon丰收神话与传说.md, Mabon仪式法术占卜与食谱.md
 ## [2026-11-09] ingest | manbulinghunsenlin -> 漫步灵魂森林.md, 塔罗起源与韦特塔罗版本谱系.md, 塔罗占卜与自由意志.md
+## [2026-11-09] ingest | MBA女巫带你开通能量 -> MBA女巫带你开通能量.md, 女巫脉轮疗愈体系.md
