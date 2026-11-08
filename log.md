@@ -39,3 +39,4 @@
 ## [2026-11-09] ingest | guangzhishou3 -> 光之手3核心光療癒.md, 人体能量场与超感知力.md, 创造性能量受阻与初始创伤.md
 ## [2026-11-09] ingest | huoximofa -> 火元素魔法体系.md, 火元素历史演化.md, 火系神话存有与火元素神明.md
 ## [2026-11-09] ingest | hwlkhpn -> luck-how-it-happens.md, luck-creation-principles.md, luck-risk-and-probability.md
+## [2026-11-09] ingest | linghunchushengqian -> 灵魂的出生前计划.md, 出生前计划与因果疗愈.md, 流产与灵性觉醒的出生前计划案例.md
