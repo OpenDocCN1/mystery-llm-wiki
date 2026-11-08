@@ -1,3 +1,10 @@
+---
+compiled: true
+pages:
+- 巫术现代指南.md
+- 西方巫术简史.md
+- 魔法四元素与宇宙观.md
+---
 # 巫术现代指南
 
 > 原文：[The Modern Guide to Witchcraft]()
