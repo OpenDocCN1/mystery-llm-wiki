@@ -132,3 +132,4 @@
 ## [2026-11-10] ingest | 中国工作坊传导 -> 约书亚2013上海工作坊.md
 ## [2026-11-10] ingest | 中国风水学初探 -> zhongguo-fengshui-xue-chu-tan.md, fengshui-shiyi-genyu.md, fengshui-bao-di-jiu-chong.md
 ## [2026-11-10] ingest | 中国风水文化 -> zhongguo-fengshui-gaoyouqian.md, fengshui-lishi-chuan-shuo.md, fengshui-shiyi-genyu.md
+## [2026-11-10] ingest | 中州派紫微斗数初级讲义 -> 中州派紫微斗数初级讲义.md, 紫微斗数安星法.md, 占星书籍目录与主题导航.md
