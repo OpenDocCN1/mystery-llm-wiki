@@ -137,3 +137,4 @@
 ## [2026-11-10] ingest | 中州派紫微斗数深造讲义下 -> zhongzhou-pai-ziywei-doushu-shenzhao-jiangyi.md
 ## [2026-11-10] ingest | 为人生带来奇迹的魔法书 -> 为人生带来奇迹的魔法书.md, 世界最伟大的吸引力法则.md
 ## [2026-11-10] ingest | 丽子的彩虹数字学 -> caibhong-shuzi-xue.md, caibhong-shuzi-xue-shuzi-nengliang.md
+## [2026-11-10] ingest | 九型人格：洞悉人心的心灵密码 -> 九型人格.md, 九型人格三中心.md
