@@ -59,3 +59,4 @@
 ## [2026-11-09] ingest | xr21帖子整理最终版 -> huanxiangxr-21-cosmology.md, huanxiangxr-21-world-matrix-invasion.md
 ## [2026-11-09] ingest | zaitaluo -> 你可以再塔罗一点.md, 塔罗牌阵基础与解牌流程.md
 ## [2026-11-09] ingest | 一个台湾巫师的影子书 -> 一个台湾巫师的影子书.md, 西方巫术简史.md
+## [2026-11-09] ingest | 一分钟下单练习 -> 抖S宇宙先生1分钟下单练习.md, 显化实践与专注力训练.md
