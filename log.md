@@ -90,3 +90,4 @@
 ## [2026-11-09] ingest | 不吹牛奇门遁甲讲义五 -> bu-chui-niu-qimen-jiangyi-wu.md, 不吹牛奇門遁甲教案第六版.md
 ## [2026-11-09] ingest | 不吹牛奇门遁甲讲义四 -> bu-chui-niu-qimen-jiangyi-si-fu-zhou-bi-zai.md, bu-chui-niu-qimen-jiangyi-si-yang-zhai-fengshui.md
 ## [2026-11-09] ingest | 不吹牛奇门遁甲讲义第六版（四） -> bu-chui-niu-qimen-jiangyi-si-fu-zhou-bi-zai.md, bu-chui-niu-qimen-jiangyi-si-yang-zhai-fengshui.md
+## [2026-11-09] ingest | 不吹牛奇门遁甲预测班讲义第六版（一） -> 不吹牛奇門遁甲預測班講義第六版一.md, 奇門遁甲基礎與排盤.md
