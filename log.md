@@ -113,3 +113,4 @@
 ## [2026-11-09] ingest | 与精灵连结 -> 与精灵连结.md, 风元素魔法体系.md, 土元素魔法体系.md
 ## [2026-11-09] ingest | 与自己对齐 -> lingmei-mama-xinling-jieda-shu-4.md
 ## [2026-11-09] ingest | 与诸神对话 -> 一個大學老師的通靈紀錄.md, 安全通灵与ESP超觉阅读.md
+## [2026-11-09] ingest | 与魔鬼对话 -> yu-mo-gui-dui-hua.md, napoleon-hill.md
