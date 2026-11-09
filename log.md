@@ -140,3 +140,4 @@
 ## [2026-11-10] ingest | 九型人格：洞悉人心的心灵密码 -> 九型人格.md, 九型人格三中心.md
 ## [2026-11-10] ingest | 九宫奇门 -> 九宫奇门.md, 奇門遁甲基礎與排盤.md
 ## [2026-11-10] ingest | 九宫奇门2：六次元改运术 -> jiu-gong-qi-men-2-liu-ci-yuan-gai-yun-shu.md, jiu-gong-qi-men.md
+## [2026-11-10] ingest | 九次元炼金术 -> 九次元炼金术.md
