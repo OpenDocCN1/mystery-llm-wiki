@@ -114,3 +114,4 @@
 ## [2026-11-09] ingest | 与自己对齐 -> lingmei-mama-xinling-jieda-shu-4.md
 ## [2026-11-09] ingest | 与诸神对话 -> 一個大學老師的通靈紀錄.md, 安全通灵与ESP超觉阅读.md
 ## [2026-11-09] ingest | 与魔鬼对话 -> yu-mo-gui-dui-hua.md, napoleon-hill.md
+## [2026-11-09] ingest | 专注意念的惊人力量 -> 专注意念的惊人力量.md, 艾伯拉罕希克斯.md, 显化实践与专注力训练.md
