@@ -119,3 +119,4 @@
 ## [2026-11-09] ingest | 世界上最神奇的24堂课 -> 世界上最神奇的24堂课.md, 显化实践与专注力训练.md
 ## [2026-11-09] ingest | 世界历史上的星占学 -> 星占学与天文学史.md, 巴比伦星占学.md
 ## [2026-11-09] ingest | 世界宝石经典图鉴 -> 世界宝石经典图鉴.md, 宝石成因与产地.md
+## [2026-11-09] ingest | 世界是个游戏，人生怎么样才有意义 -> shijie-shi-ge-youxi-ren-sheng-zen-yang-cai-you-yi-yi.md, kong-xin-cai.md
