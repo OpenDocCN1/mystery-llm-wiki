@@ -65,3 +65,4 @@
 ## [2026-11-09] ingest | 一本书弄懂风水 -> fengshui-shiyi-genyu.md, fengshui-biecheng-yu-liupai.md, fengshui-lishi-chuan-shuo.md
 ## [2026-11-09] ingest | 一本读懂人类图 -> 一本读懂人类图.md, 人类图五种人格类型.md
 ## [2026-11-09] ingest | 一的法则（又名Ra资料） -> 一的法则.md
+## [2026-11-09] ingest | 一辈子活在成功里 -> 一辈子活在成功里.md, 显化实践与专注力训练.md
