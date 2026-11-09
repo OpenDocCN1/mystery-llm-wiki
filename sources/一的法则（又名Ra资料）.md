@@ -1,3 +1,8 @@
+---
+compiled: true
+pages:
+- 一的法则.md
+---
 
 
 # 一的法则（又名Ra资料）
