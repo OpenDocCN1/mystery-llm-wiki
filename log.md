@@ -122,3 +122,4 @@
 ## [2026-11-09] ingest | 世界是个游戏，人生怎么样才有意义 -> shijie-shi-ge-youxi-ren-sheng-zen-yang-cai-you-yi-yi.md, kong-xin-cai.md
 ## [2026-11-09] ingest | 世界最准爱情占星术 -> 世界最准爱情占星术.md, 占星书籍目录与主题导航.md
 ## [2026-11-09] ingest | 业力心理学 -> 业力心理学.md, 出生前计划与因果疗愈.md
+## [2026-11-10] ingest | 东伯居士奇门秒诀 -> dong-bo-ju-shi-qi-men-miao-jue.md, 奇門遁甲基礎與排盤.md
