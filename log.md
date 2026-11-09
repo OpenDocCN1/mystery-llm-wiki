@@ -63,3 +63,4 @@
 ## [2026-11-09] ingest | 一味：超个人心理学大师札记 -> 一味.md, 肯·威尔伯.md
 ## [2026-11-09] ingest | 一善居士奇门遁甲应用诀 -> 奇門遁甲應用訣.md, 奇門遁甲基礎與排盤.md
 ## [2026-11-09] ingest | 一本书弄懂风水 -> fengshui-shiyi-genyu.md, fengshui-biecheng-yu-liupai.md, fengshui-lishi-chuan-shuo.md
+## [2026-11-09] ingest | 一本读懂人类图 -> 一本读懂人类图.md, 人类图五种人格类型.md
