@@ -109,3 +109,4 @@
 ## [2026-11-09] ingest | 与神对话：献给青少年 -> 与神对话献给青少年.md, 尼尔·唐纳德·沃尔什.md
 ## [2026-11-09] ingest | 与神对话：解开你的人生疑问 -> yu-shen-dui-hua-jie-kai-ren-sheng-wen-yi.md
 ## [2026-11-09] ingest | 与神相系的白魔女秘术 -> yu-shen-xiang-xi-bai-mo-nv-mi-shu.md, 巫术现代指南.md
+## [2026-11-09] ingest | 与神谈生死 -> 与神回家.md, 尼尔·唐纳德·沃尔什.md
