@@ -130,3 +130,4 @@
 ## [2026-11-10] ingest | 中医整体芳疗 -> 中医整体芳疗.md, 经络芳疗.md
 ## [2026-11-10] ingest | 中国人九种体质揭开星座密码 -> 中国人九种体质揭开星座密码.md, 白羊金牛双子座人物志.md
 ## [2026-11-10] ingest | 中国工作坊传导 -> 约书亚2013上海工作坊.md
+## [2026-11-10] ingest | 中国风水学初探 -> zhongguo-fengshui-xue-chu-tan.md, fengshui-shiyi-genyu.md, fengshui-bao-di-jiu-chong.md
