@@ -95,3 +95,4 @@
 ## [2026-11-09] ingest | 不吹牛奇门遁甲预测班讲义第六版（二） -> bu-chui-niu-qimen-jiangyi-liu-ban-30-gongzuo-shiye-yuce.md
 ## [2026-11-09] ingest | 不吹牛第一届奇门遁甲培训班讲义 -> bu-chui-niu-qimen-jiangyi-yi.md
 ## [2026-11-09] ingest | 与你的指导灵成为好麻吉 -> 与你的指导灵成为好麻吉.md, 安全通灵与ESP超觉阅读.md
+## [2026-11-09] ingest | 与天使连结 -> 与天使链接.md
