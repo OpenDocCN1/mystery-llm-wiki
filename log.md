@@ -134,3 +134,4 @@
 ## [2026-11-10] ingest | 中国风水文化 -> zhongguo-fengshui-gaoyouqian.md, fengshui-lishi-chuan-shuo.md, fengshui-shiyi-genyu.md
 ## [2026-11-10] ingest | 中州派紫微斗数初级讲义 -> 中州派紫微斗数初级讲义.md, 紫微斗数安星法.md, 占星书籍目录与主题导航.md
 ## [2026-11-10] ingest | 中州派紫微斗数深造讲义上 -> 中州派紫微斗数深造讲义.md, 中州派紫微斗数初级讲义.md
+## [2026-11-10] ingest | 中州派紫微斗数深造讲义下 -> zhongzhou-pai-ziywei-doushu-shenzhao-jiangyi.md
