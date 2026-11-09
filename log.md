@@ -62,3 +62,4 @@
 ## [2026-11-09] ingest | 一分钟下单练习 -> 抖S宇宙先生1分钟下单练习.md, 显化实践与专注力训练.md
 ## [2026-11-09] ingest | 一味：超个人心理学大师札记 -> 一味.md, 肯·威尔伯.md
 ## [2026-11-09] ingest | 一善居士奇门遁甲应用诀 -> 奇門遁甲應用訣.md, 奇門遁甲基礎與排盤.md
+## [2026-11-09] ingest | 一本书弄懂风水 -> fengshui-shiyi-genyu.md, fengshui-biecheng-yu-liupai.md, fengshui-lishi-chuan-shuo.md
