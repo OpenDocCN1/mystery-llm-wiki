@@ -197,3 +197,4 @@
 ## [2026-11-10] ingest | 仪式魔法全书（下） -> 亚伯拉梅林之书.md, 仪式魔法.md
 ## [2026-11-10] ingest | 众神的星空 -> zhong-shen-de-xing-kong.md, xing-zhan-xue-yu-tian-wen-xue-shi.md
 ## [2026-11-10] ingest | 众神的星空神谱图 -> zhongshen-de-xing-kong.md
+## [2026-11-10] ingest | 众神的植物 -> zhongshen-de-zhiwu.md, zhihuan-zhiwu-leixing.md
