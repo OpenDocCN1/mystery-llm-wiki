@@ -191,3 +191,4 @@
 ## [2026-11-10] ingest | 以肺为宗 -> yi-fei-wei-zong.md, fei-wei-zong-qi-li-lun.md
 ## [2026-11-10] ingest | 以脉为师：科学解读脉波曲线，以脉诊分析治未病 -> wang-wei-gong-mai-bo-lun.md, fei-wei-zong-qi-li-lun.md
 ## [2026-11-10] ingest | 以颈为钥 -> 以颈为钥.md, wang-wei-gong-mai-bo-lun.md
+## [2026-11-10] ingest | 仪式与水晶：水晶疗愈师必备圣经 -> 仪式与水晶.md
