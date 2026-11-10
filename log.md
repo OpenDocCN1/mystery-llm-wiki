@@ -221,3 +221,4 @@
 ## [2026-11-11] ingest | 光疗、氧疗、花精整合疗法 -> guang-liao-yang-liao-hua-jing-zheng-he-liao-fa.md, 人体气场彩光学.md
 ## [2026-11-11] ingest | 光的疗愈者 -> 光的疗愈者.md
 ## [2026-11-11] ingest | 光的课程全集 -> guang-de-ke-cheng.md
+## [2026-11-11] ingest | 光的课程系列1开启内在生命之光的途径 -> guang-de-ke-cheng.md, guang-de-ke-cheng-xi-lie-1.md
