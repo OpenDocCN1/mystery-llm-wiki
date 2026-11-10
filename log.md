@@ -200,3 +200,4 @@
 ## [2026-11-10] ingest | 众神的植物 -> zhongshen-de-zhiwu.md, zhihuan-zhiwu-leixing.md
 ## [2026-11-10] ingest | 住宅商铺风水学 -> zhongguo-fengshui-xue-chu-tan.md, fengshui-bao-di-mo-shi.md
 ## [2026-11-10] ingest | 佛门占星初机 -> 佛門占星初機.md, 占星书籍目录与主题导航.md
+## [2026-11-10] ingest | 你不知道的斗数 -> ni-buzhidao-de-doushu.md, ziwei-doushu-xiang-xing-lilun.md
