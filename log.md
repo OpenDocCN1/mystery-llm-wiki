@@ -173,3 +173,4 @@
 ## [2026-11-10] ingest | 人类图：找回你的原厂设定 -> renlei-tu-zhao-hui-ni-de-yuan-chang-she-ding.md
 ## [2026-11-10] ingest | 人类大历史 -> sapiens.md
 ## [2026-11-10] ingest | 人类大命运 -> 人类大命运.md, sapiens.md
+## [2026-11-10] ingest | 人类木马程序 -> 人类木马程序.md, 量子天命与AI时代新天赋.md
