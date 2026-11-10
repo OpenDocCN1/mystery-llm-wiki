@@ -202,3 +202,4 @@
 ## [2026-11-10] ingest | 佛门占星初机 -> 佛門占星初機.md, 占星书籍目录与主题导航.md
 ## [2026-11-10] ingest | 你不知道的斗数 -> ni-buzhidao-de-doushu.md, ziwei-doushu-xiang-xing-lilun.md
 ## [2026-11-10] ingest | 你不知道的自然疗法 -> 你不知道的自然疗法.md, 宝石与脉轮对应关系.md
+## [2026-11-10] ingest | 你可以再塔罗一点 -> 你可以再塔罗一点.md, 塔罗牌阵基础与解牌流程.md
