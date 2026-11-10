@@ -162,3 +162,4 @@
 ## [2026-11-10] ingest | 人类图区分的科学 -> 人类图区分的科学.md, ra-uru-hu.md
 ## [2026-11-10] ingest | 人类图去制约之旅 -> renlei-tu-qu-zhi-yue.md, ra-uru-hu.md
 ## [2026-11-10] ingest | 人类图找回你的原厂设定 -> 人类图找回你的原厂设定.md, 人类图五种人格类型.md, 人类图九大能量中心.md
+## [2026-11-10] ingest | 人类图气象报告1爱自己，别无选择 -> renlei-tu-qi-xiang-bao-gao-1-ai-zi-ji-bie-wu-xuan-ze.md
