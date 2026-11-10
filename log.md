@@ -186,3 +186,4 @@
 ## [2026-11-10] ingest | 从心觉醒 -> drunvalo-melchizedek.md, cong-xin-jue-xing.md
 ## [2026-11-10] ingest | 从未知中解脱 -> 从未知中解脱.md, shen-ti-bing-tong-yu-chu-sheng-qian-ji-hua-an-li.md
 ## [2026-11-10] ingest | 从负债2000万到奇迹 -> 从负债2000万到奇迹.md, 抖S宇宙先生1分钟下单练习.md
+## [2026-11-10] ingest | 从负债2000万到心想事成每一天 -> 从负债2000万到奇迹.md, 小池浩.md
