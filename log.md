@@ -151,3 +151,4 @@
 ## [2026-11-10] ingest | 五行芳香疗法全书 -> 五行芳香疗法全书.md, 中医整体芳疗.md
 ## [2026-11-10] ingest | 亲子难题紫微有解 -> ziwei-jiaoyang-zhihui.md, ziwei-qinzi-shiwulian.md
 ## [2026-11-10] ingest | 人人都能玩塔罗 -> 漫步灵魂森林.md, 塔罗牌阵基础与解牌流程.md
+## [2026-11-10] ingest | 人体气场彩光学 -> 人体气场彩光学.md, 人体能量场与超感知力.md
