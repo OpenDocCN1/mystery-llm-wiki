@@ -165,3 +165,4 @@
 ## [2026-11-10] ingest | 人类图气象报告1爱自己，别无选择 -> renlei-tu-qi-xiang-bao-gao-1-ai-zi-ji-bie-wu-xuan-ze.md
 ## [2026-11-10] ingest | 人类图气象报告2爱的秘密 -> renlei-tu-qi-xiang-bao-gao-2-ai-de-mi-mi.md, renlei-tu-qi-xiang-bao-gao-1-ai-zi-ji-bie-wu-xuan-ze.md
 ## [2026-11-10] ingest | 人类图爻线全书 -> 人类图爻线全书.md, 人类图找回你的原厂设定.md
+## [2026-11-10] ingest | 人类图自学圣经 -> 人类图自学圣经.md, 人类图五种人格类型.md
