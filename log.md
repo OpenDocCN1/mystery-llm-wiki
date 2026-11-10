@@ -208,3 +208,4 @@
 ## [2026-11-10] ingest | 你的第一本心理占星书 -> 你的第一本心理占星书.md, 占星书籍目录与主题导航.md
 ## [2026-11-10] ingest | 你的身体就是12星座 -> ni-de-shen-ti-jiu-shi-12-xing-zuo.md, zhanxing-shuji-mulu-yu-zhuti-daohang.md, huangdao-shier-gong-tixi.md
 ## [2026-11-10] ingest | 你的身心课题塔罗都知道 -> 你的身心课题塔罗都知道.md, 塔罗牌阵基础与解牌流程.md
+## [2026-11-11] ingest | 依婷紫微斗数讲课记录 -> yiting-ziwei-jiangke-jilu.md, ni-buzhidao-de-doushu.md
