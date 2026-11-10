@@ -180,3 +180,4 @@
 ## [2026-11-10] ingest | 人际相位圣经 -> 人际相位圣经.md
 ## [2026-11-10] ingest | 人际缘分全占星 -> 人际缘分全占星.md, 人际合盘占星全书.md
 ## [2026-11-10] ingest | 什么样的业力轮回造就现在的你 -> 什么样的业力轮回造就现在的你.md, 金钱的业力.md
+## [2026-11-10] ingest | 仁神术的疗愈奇迹 -> ren-shen-shu.md, ren-shen-shu-an-quan-neng-liang-suo.md, ren-shen-shu-san-yi-neng-liang-liu.md
