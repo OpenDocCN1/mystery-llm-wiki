@@ -195,3 +195,4 @@
 ## [2026-11-10] ingest | 仪式魔法 -> 仪式魔法.md
 ## [2026-11-10] ingest | 仪式魔法全书（上） -> 仪式魔法全书上册.md, 仪式魔法.md
 ## [2026-11-10] ingest | 仪式魔法全书（下） -> 亚伯拉梅林之书.md, 仪式魔法.md
+## [2026-11-10] ingest | 众神的星空 -> zhong-shen-de-xing-kong.md, xing-zhan-xue-yu-tian-wen-xue-shi.md
