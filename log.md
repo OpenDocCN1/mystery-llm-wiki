@@ -226,3 +226,4 @@
 ## [2026-11-11] ingest | 光的课程系列2迈向明心见性的旅程 -> guang-de-ke-cheng-xi-lie-2.md, guang-de-ke-cheng.md
 ## [2026-11-11] ingest | 光的课程系列3行星课程4-6 -> guang-de-ke-cheng-xi-lie-3.md, guang-de-ke-cheng.md
 ## [2026-11-11] ingest | 光的课程系列3踏上灵魂觉醒的旅程 -> guang-de-ke-cheng-xi-lie-3.md, guang-de-ke-cheng-xingxing-si.md
+## [2026-11-11] ingest | 光的课程系列4迈向灵魂觉醒的殿堂 -> guang-de-ke-cheng-xi-lie-4.md, guang-de-ke-cheng.md
