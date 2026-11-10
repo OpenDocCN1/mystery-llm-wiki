@@ -149,3 +149,4 @@
 ## [2026-11-10] ingest | 五次元的灵性觉醒 -> 五次元的灵性觉醒.md, 五次元的灵性动物.md
 ## [2026-11-10] ingest | 五次元的灵魂扬升 -> 五次元的靈魂揚昇.md
 ## [2026-11-10] ingest | 五行芳香疗法全书 -> 五行芳香疗法全书.md, 中医整体芳疗.md
+## [2026-11-10] ingest | 亲子难题紫微有解 -> ziwei-jiaoyang-zhihui.md, ziwei-qinzi-shiwulian.md
