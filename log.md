@@ -184,3 +184,4 @@
 ## [2026-11-10] ingest | 今日之神第二部：走出灵性文盲 -> 今日之神第二部.md
 ## [2026-11-10] ingest | 从心灵到细胞的疗愈 -> 从心灵到细胞的疗愈.md
 ## [2026-11-10] ingest | 从心觉醒 -> drunvalo-melchizedek.md, cong-xin-jue-xing.md
+## [2026-11-10] ingest | 从未知中解脱 -> 从未知中解脱.md, shen-ti-bing-tong-yu-chu-sheng-qian-ji-hua-an-li.md
