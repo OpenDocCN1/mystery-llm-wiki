@@ -229,3 +229,4 @@
 ## [2026-11-11] ingest | 光的课程系列4迈向灵魂觉醒的殿堂 -> guang-de-ke-cheng-xi-lie-4.md, guang-de-ke-cheng.md
 ## [2026-11-11] ingest | 光的课程系列5爱的献礼 -> guang-de-ke-cheng-xi-lie-5.md, guang-de-ke-cheng.md
 ## [2026-11-11] ingest | 克里昂讯息：DNA灵性12揭秘 -> kryon-dna-12-secrets-book.md, kryon-dna-12-layers-hebrew.md
+## [2026-11-11] ingest | 入门古埃及女祭司的灵魂旅程 -> 入门古埃及女祭司的灵魂旅程.md, guang-de-ke-cheng.md
