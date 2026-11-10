@@ -224,3 +224,4 @@
 ## [2026-11-11] ingest | 光的课程系列1开启内在生命之光的途径 -> guang-de-ke-cheng.md, guang-de-ke-cheng-xi-lie-1.md
 ## [2026-11-11] ingest | 光的课程系列2行星课程1-3 -> guang-de-ke-cheng-xi-lie-2.md, guang-de-ke-cheng.md
 ## [2026-11-11] ingest | 光的课程系列2迈向明心见性的旅程 -> guang-de-ke-cheng-xi-lie-2.md, guang-de-ke-cheng.md
+## [2026-11-11] ingest | 光的课程系列3行星课程4-6 -> guang-de-ke-cheng-xi-lie-3.md, guang-de-ke-cheng.md
