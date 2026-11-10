@@ -207,3 +207,4 @@
 ## [2026-11-10] ingest | 你的无形力量 -> 你的无形力量.md, 托马斯·托沃.md
 ## [2026-11-10] ingest | 你的第一本心理占星书 -> 你的第一本心理占星书.md, 占星书籍目录与主题导航.md
 ## [2026-11-10] ingest | 你的身体就是12星座 -> ni-de-shen-ti-jiu-shi-12-xing-zuo.md, zhanxing-shuji-mulu-yu-zhuti-daohang.md, huangdao-shier-gong-tixi.md
+## [2026-11-10] ingest | 你的身心课题塔罗都知道 -> 你的身心课题塔罗都知道.md, 塔罗牌阵基础与解牌流程.md
