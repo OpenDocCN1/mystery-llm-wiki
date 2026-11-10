@@ -158,3 +158,4 @@
 ## [2026-11-10] ingest | 人智医学及其疗愈方法 -> ren-zhi-yi-xue.md, ren-zhi-yi-xue-jinshu-liaofa.md, hu-ji-sheng-ya-zheng-liao-fa.md
 ## [2026-11-10] ingest | 人智医学疗愈的秘密 -> 人智醫學療癒的秘密.md, ren-zhi-yi-xue.md
 ## [2026-11-10] ingest | 人生使用說明書：靈界運作2 -> 人生使用說明書靈界運作2.md, 出生前计划与因果疗愈.md
+## [2026-11-10] ingest | 人生的十二个面向 -> 人生的十二个面向.md, 整宫制与十二宫位.md
