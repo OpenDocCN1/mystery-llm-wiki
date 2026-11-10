@@ -171,3 +171,4 @@
 ## [2026-11-10] ingest | 人类图轮回交叉全书 -> 人类图轮回交叉全书.md, 人类图找回你的原厂设定.md
 ## [2026-11-10] ingest | 人类图，爱、关系与性 -> renlei-tu-ai-guanxi-yu-xing.md, renlei-tu-wu-zhong-ren-ge-lei-xing.md
 ## [2026-11-10] ingest | 人类图：找回你的原厂设定 -> renlei-tu-zhao-hui-ni-de-yuan-chang-she-ding.md
+## [2026-11-10] ingest | 人类大历史 -> sapiens.md
