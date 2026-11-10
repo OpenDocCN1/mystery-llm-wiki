@@ -210,3 +210,4 @@
 ## [2026-11-10] ingest | 你的身心课题塔罗都知道 -> 你的身心课题塔罗都知道.md, 塔罗牌阵基础与解牌流程.md
 ## [2026-11-11] ingest | 依婷紫微斗数讲课记录 -> yiting-ziwei-jiangke-jilu.md, ni-buzhidao-de-doushu.md
 ## [2026-11-11] ingest | 依恋+原生家庭+执迷（心理学三册套装） -> 依恋原生家庭执迷心理学三册套装.md
+## [2026-11-11] ingest | 俏梅花外应 -> qiao-mei-hua-wai-ying-yu-ce-shu.md
