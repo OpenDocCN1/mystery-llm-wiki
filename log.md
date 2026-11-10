@@ -156,3 +156,4 @@
 ## [2026-11-10] ingest | 人体能量中心的真相 -> 人体能量中心的真相.md
 ## [2026-11-10] ingest | 人声，奇迹的治愈力 -> yvonne-de-bruijn-shengming-zhisheng.md, 人声奇迹的治愈力.md
 ## [2026-11-10] ingest | 人智医学及其疗愈方法 -> ren-zhi-yi-xue.md, ren-zhi-yi-xue-jinshu-liaofa.md, hu-ji-sheng-ya-zheng-liao-fa.md
+## [2026-11-10] ingest | 人智医学疗愈的秘密 -> 人智醫學療癒的秘密.md, ren-zhi-yi-xue.md
