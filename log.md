@@ -212,3 +212,4 @@
 ## [2026-11-11] ingest | 依恋+原生家庭+执迷（心理学三册套装） -> 依恋原生家庭执迷心理学三册套装.md
 ## [2026-11-11] ingest | 俏梅花外应 -> qiao-mei-hua-wai-ying-yu-ce-shu.md
 ## [2026-11-11] ingest | 俏梅花外应预测学 -> qiao-mei-hua-wai-ying-yu-ce-shu.md
+## [2026-11-11] ingest | 信任你的直觉力 -> 信任你的直觉力.md, 你可以通灵.md
