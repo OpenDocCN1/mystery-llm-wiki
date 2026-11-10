@@ -1,3 +1,9 @@
+---
+compiled: true
+pages:
+- kryon-dna-12-layers-hebrew.md
+- kryon-dna-12-secrets-book.md
+---
 
 # 克里昂讯息：DNA灵性12揭秘
 
