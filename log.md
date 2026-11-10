@@ -218,3 +218,4 @@
 ## [2026-11-11] ingest | 催情植物传奇 -> ciqing-zhiwu-chuanqi.md, zhongshen-de-zhiwu.md
 ## [2026-11-11] ingest | 元素魔法 -> 史考特康宁罕元素魔法.md, 魔法四元素与宇宙观.md
 ## [2026-11-11] ingest | 光——未来的医学 -> 光未来的医学.md, 人体气场彩光学.md
+## [2026-11-11] ingest | 光疗、氧疗、花精整合疗法 -> guang-liao-yang-liao-hua-jing-zheng-he-liao-fa.md, 人体气场彩光学.md
