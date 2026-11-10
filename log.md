@@ -183,3 +183,4 @@
 ## [2026-11-10] ingest | 仁神术的疗愈奇迹 -> ren-shen-shu.md, ren-shen-shu-an-quan-neng-liang-suo.md, ren-shen-shu-san-yi-neng-liang-liu.md
 ## [2026-11-10] ingest | 今日之神第二部：走出灵性文盲 -> 今日之神第二部.md
 ## [2026-11-10] ingest | 从心灵到细胞的疗愈 -> 从心灵到细胞的疗愈.md
+## [2026-11-10] ingest | 从心觉醒 -> drunvalo-melchizedek.md, cong-xin-jue-xing.md
