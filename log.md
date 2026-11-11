@@ -253,3 +253,4 @@
 ## [2026-11-11] ingest | 六壬经典汇要 -> liuren-jingdian-huiyao.md, zhongguo-yixue-wenhua-chuancheng-jiedu-congshu.md
 ## [2026-11-11] ingest | 六壬股市实战解秘 -> liuren-gushi-shizhan-jiemi.md, liuren-fazhan-shi.md
 ## [2026-11-11] ingest | 六壬辨疑 -> liuren-bian-yi.md, liuren-fazhan-shi.md
+## [2026-11-11] ingest | 六壬金口诀 -> liuren-shen-ke-jin-kou-jue-xin-sui-zhi-yao.md, liuren-jin-kou-jue-qi-ke-qi-bu.md
