@@ -258,3 +258,4 @@
 ## [2026-11-11] ingest | 六爻三大技法 -> liuyao-sanda-jifa.md
 ## [2026-11-11] ingest | 六爻全书上 -> liuyao-quanshu-shangce.md, liuyao-qimeng-jieyao.md
 ## [2026-11-11] ingest | 六爻全书下 -> liuyao-quanshu-xiace.md, liuyao-quanshu-shangce.md
+## [2026-11-11] ingest | 六爻八卦全息论 -> liuyao-bagua-quanxi-lun.md
