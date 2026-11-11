@@ -231,3 +231,4 @@
 ## [2026-11-11] ingest | 克里昂讯息：DNA灵性12揭秘 -> kryon-dna-12-secrets-book.md, kryon-dna-12-layers-hebrew.md
 ## [2026-11-11] ingest | 入门古埃及女祭司的灵魂旅程 -> 入门古埃及女祭司的灵魂旅程.md, guang-de-ke-cheng.md
 ## [2026-11-11] ingest | 全息太乙 -> taiyi-shenshu.md, quanxi-taiyi.md
+## [2026-11-11] ingest | 全观的视野 -> 肯·威尔伯.md, aqal整合图谱.md
