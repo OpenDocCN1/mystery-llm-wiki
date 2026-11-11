@@ -234,3 +234,4 @@
 ## [2026-11-11] ingest | 全观的视野 -> 肯·威尔伯.md, aqal整合图谱.md
 ## [2026-11-11] ingest | 全频能量花精全书 -> 全频能量花精全书.md, 光療氧療花精整合療法.md
 ## [2026-11-11] ingest | 八字命理学动态分析教程 -> bazi-mingli-xue-dongtai-fenxi-jiaocheng.md, bazi-fenxi-sigeyanshi-moxing.md
+## [2026-11-11] ingest | 八字命理学基础教程 -> bazi-mingli-xue-jichu-jiaocheng.md
