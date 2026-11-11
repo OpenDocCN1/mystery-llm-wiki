@@ -249,3 +249,4 @@
 ## [2026-11-11] ingest | 六壬神课吉凶正断法 -> liuren-shen-ke-ji-xiong-zheng-duan-fa.md, liuren-shen-ke-chu-xue-xiang-jie.md
 ## [2026-11-11] ingest | 六壬神课大全 -> liuren-shen-ke-daquan.md, liuren-fazhan-shi.md
 ## [2026-11-11] ingest | 六壬神课金口诀心髓指要 -> liuren-shen-ke-jin-kou-jue-xin-sui-zhi-yao.md, liuren-fazhan-shi.md
+## [2026-11-11] ingest | 六壬神课金口诀现代实例精解 -> liuren-shen-ke-jin-kou-jue-xian-dai-shi-li-jing-jie.md, liuren-shen-ke-jin-kou-jue-xin-sui-zhi-yao.md
