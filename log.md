@@ -236,3 +236,4 @@
 ## [2026-11-11] ingest | 八字命理学动态分析教程 -> bazi-mingli-xue-dongtai-fenxi-jiaocheng.md, bazi-fenxi-sigeyanshi-moxing.md
 ## [2026-11-11] ingest | 八字命理学基础教程 -> bazi-mingli-xue-jichu-jiaocheng.md
 ## [2026-11-11] ingest | 八字命理学进阶教程 -> bazi-mingli-xue-jin-jie-jiaocheng.md, bazi-mingli-xue-jichu-jiaocheng.md
+## [2026-11-11] ingest | 八字秘法1 -> su-min-feng.md, su-min-feng-bazi-mi-fa.md
