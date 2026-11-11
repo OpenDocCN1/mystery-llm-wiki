@@ -244,3 +244,4 @@
 ## [2026-11-11] ingest | 六壬指南例题解 -> 六壬指南例题解.md, 六壬发展史.md
 ## [2026-11-11] ingest | 六壬捷录新解 -> liuren-jielu-xinjie.md, liuren-fazhan-shi.md
 ## [2026-11-11] ingest | 六壬断案详解 -> shao-yanhe-liuren-duan-an.md, liuren-fazhan-shi.md
+## [2026-11-11] ingest | 六壬时空 -> liuren-shi-kong.md
