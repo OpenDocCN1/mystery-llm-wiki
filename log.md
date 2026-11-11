@@ -232,3 +232,4 @@
 ## [2026-11-11] ingest | 入门古埃及女祭司的灵魂旅程 -> 入门古埃及女祭司的灵魂旅程.md, guang-de-ke-cheng.md
 ## [2026-11-11] ingest | 全息太乙 -> taiyi-shenshu.md, quanxi-taiyi.md
 ## [2026-11-11] ingest | 全观的视野 -> 肯·威尔伯.md, aqal整合图谱.md
+## [2026-11-11] ingest | 全频能量花精全书 -> 全频能量花精全书.md, 光療氧療花精整合療法.md
