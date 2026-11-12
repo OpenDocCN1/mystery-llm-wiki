@@ -298,3 +298,4 @@
 ## [2026-11-13] ingest | 内在小孩 -> 尤尼希皮里与内在小孩.md, 零极限与荷欧波诺波诺体系.md
 ## [2026-11-13] ingest | 内在疗愈塔罗 -> nei-zhi-liao-yu-taro.md
 ## [2026-11-13] ingest | 内在的天空 -> neizai-de-tiankong.md
+## [2026-11-13] ingest | 内在的宇宙 -> 内在的宇宙-史蒂芬·阿若优.md
