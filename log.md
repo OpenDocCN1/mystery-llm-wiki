@@ -275,3 +275,4 @@
 ## [2026-11-12] ingest | 六爻真传 -> qu-wei-liuyao-tezhunban-jiangyi.md
 ## [2026-11-12] ingest | 六爻真鉴 -> liuyao-zhenjian.md
 ## [2026-11-12] ingest | 六爻神卦实证集录 -> liuyao-shen-gua-shi-zheng-ji-lu.md
+## [2026-11-12] ingest | 六爻答疑 -> liuyao-q-and-a-quwei.md
