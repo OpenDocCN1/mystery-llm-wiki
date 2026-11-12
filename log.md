@@ -306,3 +306,4 @@
 ## [2026-11-13] ingest | 冥想 -> ming-xiang-gai-lun.md
 ## [2026-11-13] ingest | 冥想5分钟，等于熟睡一小时 -> ming-xiang-gai-lun.md, buddhas-brain-rick-hanson.md
 ## [2026-11-13] ingest | 冥想日记 -> ming-xiang-gai-lun.md, ming-xiang-ri-ji-zi-wo-guan-li.md
+## [2026-11-13] ingest | 冥想正念手册 -> ming-xiang-gai-lun.md
