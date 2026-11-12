@@ -273,3 +273,4 @@
 ## [2026-11-12] ingest | 六爻病灾秘法 -> huangji-liuyao-tixi.md, liuyao-zaihuo-yuce.md
 ## [2026-11-12] ingest | 六爻看鬼神 -> liuyao-kan-guishen.md
 ## [2026-11-12] ingest | 六爻真传 -> qu-wei-liuyao-tezhunban-jiangyi.md
+## [2026-11-12] ingest | 六爻真鉴 -> liuyao-zhenjian.md
