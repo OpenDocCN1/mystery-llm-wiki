@@ -296,3 +296,4 @@
 ## [2026-11-13] ingest | 其实你已经很塔罗了（图文版） -> tarot-wands-suit-analysis.md, tarot-keyword-correspondence.md
 ## [2026-11-13] ingest | 内在女性觉醒 -> 内在女性觉醒.md
 ## [2026-11-13] ingest | 内在小孩 -> 尤尼希皮里与内在小孩.md, 零极限与荷欧波诺波诺体系.md
+## [2026-11-13] ingest | 内在疗愈塔罗 -> nei-zhi-liao-yu-taro.md
