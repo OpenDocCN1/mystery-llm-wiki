@@ -313,3 +313,4 @@
 ## [2026-11-13] ingest | 冥王星：灵魂在亲密关系中的演化 -> 冥王星灵魂亲密关系演化.md
 ## [2026-11-13] ingest | 冥王星：灵魂的演化之旅 -> ming-wang-xing-ling-hun-yan-hua-zhi-lv-juan-yi.md
 ## [2026-11-13] ingest | 净化脉轮 -> chakra-clearing-doreen-virtue.md
+## [2026-11-13] ingest | 凤麟奇门风水学 -> fenglin-qimen-fengshui.md, yin-pan-qimen-paipan-shi-yi-bu.md, fenglin-qimen-xiangyi-zheng-shu.md
