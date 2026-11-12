@@ -291,3 +291,4 @@
 ## [2026-11-12] ingest | 六甲法术奇门预测篇 -> liu-jia-fa-shu-qi-men-yu-ce-pian.md
 ## [2026-11-12] ingest | 六甲法术奇门高级面授班讲义 -> liu-jia-fa-shu-qi-men-fa-shu-pian.md, liu-jia-fa-shu-qi-men-yu-ce-pian.md, liu-jia-fa-shu-qi-men-ji-chu-pian.md
 ## [2026-11-12] ingest | 六甲附余天遁神书 -> liu-jia-yin-fu-yu-tian-dun-shen-shu.md
+## [2026-11-12] ingest | 关于能量 -> neng-liang-ping-heng.md
