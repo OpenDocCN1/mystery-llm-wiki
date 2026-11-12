@@ -288,3 +288,4 @@
 ## [2026-11-12] ingest | 六甲法术奇门基础篇 -> liu-jia-fa-shu-qi-men-ji-chu-pian.md
 ## [2026-11-12] ingest | 六甲法术奇门法术篇 -> liu-jia-fa-shu-qi-men-fa-shu-pian.md
 ## [2026-11-12] ingest | 六甲法术奇门答疑篇 -> liu-jia-fa-shu-qi-men-da-yi-pian.md, liu-jia-fa-shu-qi-men-ji-chu-pian.md, liu-jia-fa-shu-qi-men-fa-shu-pian.md
+## [2026-11-12] ingest | 六甲法术奇门预测篇 -> liu-jia-fa-shu-qi-men-yu-ce-pian.md
