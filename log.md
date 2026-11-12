@@ -262,3 +262,4 @@
 ## [2026-11-11] ingest | 六爻因果 -> liuyao-yinguo.md, wang-hu-ying.md
 ## [2026-11-12] ingest | 六爻基础入门 -> liuyao-jichu-rumen-qinglan.md, qinglan-jianglan-liuyao-zhuanji.md
 ## [2026-11-12] ingest | 六爻姻缘预测学 -> liuyao-yinyuan-yuce.md, wang-hu-ying.md
+## [2026-11-12] ingest | 六爻婚孕秘法 -> liuyao-hunyun-mifa.md
