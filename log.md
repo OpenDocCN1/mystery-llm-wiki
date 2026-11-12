@@ -287,3 +287,4 @@
 ## [2026-11-12] ingest | 六爻预测误中悟 -> liuyao-yuce-wu-zhong-wu.md, wang-hu-ying.md
 ## [2026-11-12] ingest | 六甲法术奇门基础篇 -> liu-jia-fa-shu-qi-men-ji-chu-pian.md
 ## [2026-11-12] ingest | 六甲法术奇门法术篇 -> liu-jia-fa-shu-qi-men-fa-shu-pian.md
+## [2026-11-12] ingest | 六甲法术奇门答疑篇 -> liu-jia-fa-shu-qi-men-da-yi-pian.md, liu-jia-fa-shu-qi-men-ji-chu-pian.md, liu-jia-fa-shu-qi-men-fa-shu-pian.md
