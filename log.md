@@ -310,3 +310,4 @@
 ## [2026-11-13] ingest | 冥想的奇跡 -> 冥想的奇跡.md
 ## [2026-11-13] ingest | 冥想：创造你梦想的生活 -> shakti-gawain-chuang-zao-xing-xiang-ti-xi.md
 ## [2026-11-13] ingest | 冥想：认识内在自我 -> swami-rama-meditation-guide.md
+## [2026-11-13] ingest | 冥王星：灵魂在亲密关系中的演化 -> 冥王星灵魂亲密关系演化.md
