@@ -268,3 +268,4 @@
 ## [2026-11-12] ingest | 六爻正道 -> liuyao-zhengdao-zhangde.md
 ## [2026-11-12] ingest | 六爻特训班讲义 -> qu-wei-liuyao-tezhunban-jiangyi.md
 ## [2026-11-12] ingest | 六爻玄机 -> liuyao-xuanji.md
+## [2026-11-12] ingest | 六爻理法进阶 -> liuyao-lifa-jinjiie-qinglan.md
