@@ -278,3 +278,4 @@
 ## [2026-11-12] ingest | 六爻答疑 -> liuyao-q-and-a-quwei.md
 ## [2026-11-12] ingest | 六爻经济预测学 -> liuyao-jingji-yuce-xue.md
 ## [2026-11-12] ingest | 六爻详真 -> liuyao-xizhen-quwei.md
+## [2026-11-12] ingest | 六爻象法进阶1 -> liuyao-xiangfa-jinjiie.md, liuyao-liushen-qinglong.md, liuyao-lifa-jinjiie-qinglan.md
