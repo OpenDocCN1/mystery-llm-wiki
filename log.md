@@ -303,3 +303,4 @@
 ## [2026-11-13] ingest | 内行星 -> nei-xing-xing.md, shui-xing-shen-hua-yu-xin-li-fenxi.md, zhanxing-shuji-mulu-yu-zhuti-daohang.md
 ## [2026-11-13] ingest | 再连结疗愈法 -> zai-lian-jie-liao-yu-fa.md
 ## [2026-11-13] ingest | 写下来奇迹就会发生 -> 写下来奇迹就会发生.md, 显化实践与专注力训练.md
+## [2026-11-13] ingest | 冥想 -> ming-xiang-gai-lun.md
