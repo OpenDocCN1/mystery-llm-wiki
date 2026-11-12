@@ -309,3 +309,4 @@
 ## [2026-11-13] ingest | 冥想正念手册 -> ming-xiang-gai-lun.md
 ## [2026-11-13] ingest | 冥想的奇跡 -> 冥想的奇跡.md
 ## [2026-11-13] ingest | 冥想：创造你梦想的生活 -> shakti-gawain-chuang-zao-xing-xiang-ti-xi.md
+## [2026-11-13] ingest | 冥想：认识内在自我 -> swami-rama-meditation-guide.md
