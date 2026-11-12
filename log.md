@@ -267,3 +267,4 @@
 ## [2026-11-12] ingest | 六爻实战点窍 -> liuyao-shizhan-dianqiao.md, liuyao-qimeng-jieyao.md, liuyao-shizhan-da-quan.md
 ## [2026-11-12] ingest | 六爻正道 -> liuyao-zhengdao-zhangde.md
 ## [2026-11-12] ingest | 六爻特训班讲义 -> qu-wei-liuyao-tezhunban-jiangyi.md
+## [2026-11-12] ingest | 六爻玄机 -> liuyao-xuanji.md
