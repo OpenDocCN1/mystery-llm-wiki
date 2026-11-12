@@ -270,3 +270,4 @@
 ## [2026-11-12] ingest | 六爻玄机 -> liuyao-xuanji.md
 ## [2026-11-12] ingest | 六爻理法进阶 -> liuyao-lifa-jinjiie-qinglan.md
 ## [2026-11-12] ingest | 六爻疑惑指迷 -> liuyao-yihui-zhimi.md, wang-hu-ying.md
+## [2026-11-12] ingest | 六爻病灾秘法 -> huangji-liuyao-tixi.md, liuyao-zaihuo-yuce.md
