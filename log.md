@@ -281,3 +281,4 @@
 ## [2026-11-12] ingest | 六爻象法进阶1 -> liuyao-xiangfa-jinjiie.md, liuyao-liushen-qinglong.md, liuyao-lifa-jinjiie-qinglan.md
 ## [2026-11-12] ingest | 六爻象法进阶下 -> liuyao-xiangfa-jinjiie.md
 ## [2026-11-12] ingest | 六爻财运秘法 -> huangji-liuyao-tixi.md, liuyao-caiyun-mifa.md
+## [2026-11-12] ingest | 六爻预测入门 -> liuwen-zhao-liuyao-yuce-rumen.md
