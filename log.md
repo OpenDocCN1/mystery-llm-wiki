@@ -301,3 +301,4 @@
 ## [2026-11-13] ingest | 内在的宇宙 -> 内在的宇宙-史蒂芬·阿若优.md
 ## [2026-11-13] ingest | 内经呼吸养生法 -> neijing-huxi-yangsheng-fa.md
 ## [2026-11-13] ingest | 内行星 -> nei-xing-xing.md, shui-xing-shen-hua-yu-xin-li-fenxi.md, zhanxing-shuji-mulu-yu-zhuti-daohang.md
+## [2026-11-13] ingest | 再连结疗愈法 -> zai-lian-jie-liao-yu-fa.md
