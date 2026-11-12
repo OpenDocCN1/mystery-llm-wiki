@@ -299,3 +299,4 @@
 ## [2026-11-13] ingest | 内在疗愈塔罗 -> nei-zhi-liao-yu-taro.md
 ## [2026-11-13] ingest | 内在的天空 -> neizai-de-tiankong.md
 ## [2026-11-13] ingest | 内在的宇宙 -> 内在的宇宙-史蒂芬·阿若优.md
+## [2026-11-13] ingest | 内经呼吸养生法 -> neijing-huxi-yangsheng-fa.md
