@@ -284,3 +284,4 @@
 ## [2026-11-12] ingest | 六爻预测入门 -> liuwen-zhao-liuyao-yuce-rumen.md
 ## [2026-11-12] ingest | 六爻预测学 -> liuyao-sanda-jifa.md, liuyao-history-development.md, liuyao-foundation-basics.md
 ## [2026-11-12] ingest | 六爻预测彩票3D -> liuyao-gui-xiu-fa.md, liuyao-gui-xiu-fa-3d-lottery-rules.md
+## [2026-11-12] ingest | 六爻预测误中悟 -> liuyao-yuce-wu-zhong-wu.md, wang-hu-ying.md
