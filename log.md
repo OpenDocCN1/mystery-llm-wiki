@@ -328,3 +328,4 @@
 ## [2026-11-13] ingest | 初学者塔罗 -> 塔罗牌阵基础与解牌流程.md, 塔罗小阿尔卡那数字与宫廷牌核心义.md, 塔罗起源与韦特塔罗版本谱系.md
 ## [2026-11-13] ingest | 初学者的冥想书 -> chu-xue-zhe-de-ming-xiang-shu.md
 ## [2026-11-13] ingest | 制约数字 -> conditioning-number-mangala-billson.md
+## [2026-11-13] ingest | 前世今生 -> brian-weiss-many-lives-many-masters.md, 灵魂小组与集体出生前计划.md
