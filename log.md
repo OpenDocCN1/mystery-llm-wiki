@@ -315,3 +315,4 @@
 ## [2026-11-13] ingest | 净化脉轮 -> chakra-clearing-doreen-virtue.md
 ## [2026-11-13] ingest | 凤麟奇门风水学 -> fenglin-qimen-fengshui.md, yin-pan-qimen-paipan-shi-yi-bu.md, fenglin-qimen-xiangyi-zheng-shu.md
 ## [2026-11-13] ingest | 凤麟易理案例精解 -> fenglin-qimen-xiangyi-zheng-shu.md, yin-pan-qimen-paipan-shi-yi-bu.md, fenglin-qimen-bingli-shenzhao-jingjie.md
+## [2026-11-13] ingest | 凤麟易理道家大六壬 -> fenglin-yinpan-liuren.md
