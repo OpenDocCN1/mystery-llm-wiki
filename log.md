@@ -322,3 +322,4 @@
 ## [2026-11-13] ingest | 凯龙星：灵魂的创伤与疗愈 -> 凯龙星灵魂的创伤与疗愈.md, 凯龙星疗愈力量.md
 ## [2026-11-13] ingest | 创造生命的奇迹 -> louise-hay-you-can-heal-your-life.md
 ## [2026-11-13] ingest | 创造自己的神圣典礼 -> 创造自己的神圣典礼.md
+## [2026-11-13] ingest | 创造金钱 -> chuang-zao-jin-qian-tong-wang-feng-yu-zhi-lu.md, 显化实践与专注力训练.md, 专注意念的惊人力量.md
