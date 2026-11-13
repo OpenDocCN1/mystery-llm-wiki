@@ -350,3 +350,4 @@
 ## [2026-11-14] ingest | 医疗灵媒：抢救肝脏 -> yi-liao-ling-mei-qiang-jiu-gan.md, yi-liao-ling-mei.md
 ## [2026-11-14] ingest | 医疗灵媒：改变生命的食物 -> yi-liao-ling-mei-gai-bian-sheng-ming-de-shi-wu.md, yi-liao-ling-mei.md
 ## [2026-11-14] ingest | 医疗灵媒：甲状腺揭密 -> yi-liao-ling-mei-jia-zhuang-xian-jie-mi.md, yi-liao-ling-mei.md
+## [2026-11-14] ingest | 医疗灵媒：神奇西芹汁 -> yi-liao-ling-mei-shen-qi-xi-qin-zhi.md, yi-liao-ling-mei.md
