@@ -326,3 +326,4 @@
 ## [2026-11-13] ingest | 初学六爻预测 -> liuyao-foundation-basics.md, wang-hu-ying.md
 ## [2026-11-13] ingest | 初学紫微斗数 -> chu-xue-ziwei-doushu.md
 ## [2026-11-13] ingest | 初学者塔罗 -> 塔罗牌阵基础与解牌流程.md, 塔罗小阿尔卡那数字与宫廷牌核心义.md, 塔罗起源与韦特塔罗版本谱系.md
+## [2026-11-13] ingest | 初学者的冥想书 -> chu-xue-zhe-de-ming-xiang-shu.md
