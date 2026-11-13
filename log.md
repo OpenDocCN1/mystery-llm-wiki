@@ -348,3 +348,4 @@
 ## [2026-11-14] ingest | 医师推荐！能量石的疗愈力 -> neng-liang-shi-liao-yu-xi-tong.md
 ## [2026-11-14] ingest | 医疗灵媒 -> yi-liao-ling-mei.md
 ## [2026-11-14] ingest | 医疗灵媒：抢救肝脏 -> yi-liao-ling-mei-qiang-jiu-gan.md, yi-liao-ling-mei.md
+## [2026-11-14] ingest | 医疗灵媒：改变生命的食物 -> yi-liao-ling-mei-gai-bian-sheng-ming-de-shi-wu.md, yi-liao-ling-mei.md
