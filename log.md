@@ -345,3 +345,4 @@
 ## [2026-11-13] ingest | 化解大法全书下 -> hua-jie-da-fa-quan-shu-xia.md, zhu-you-shisan-ke.md, liu-jia-tian-shu.md
 ## [2026-11-13] ingest | 北欧秘法卢恩符文 -> lunwen-fuwen-hexin-tixi.md, lunwen-24-fuwen-xiangjie.md, lunwen-fuwen-yingyong-duiying.md
 ## [2026-11-13] ingest | 北门的魔法 -> 北门的魔法.md, 巫术现代指南.md, 仪式魔法.md
+## [2026-11-14] ingest | 医师推荐！能量石的疗愈力 -> neng-liang-shi-liao-yu-xi-tong.md
