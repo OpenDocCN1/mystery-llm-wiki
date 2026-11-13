@@ -352,3 +352,4 @@
 ## [2026-11-14] ingest | 医疗灵媒：甲状腺揭密 -> yi-liao-ling-mei-jia-zhuang-xian-jie-mi.md, yi-liao-ling-mei.md
 ## [2026-11-14] ingest | 医疗灵媒：神奇西芹汁 -> yi-liao-ling-mei-shen-qi-xi-qin-zhi.md, yi-liao-ling-mei.md
 ## [2026-11-14] ingest | 十二宫位 -> zhenggongzhi-yu-shier-gongwei.md, zhanxing-shuji-mulu-yu-zhuti-daohang.md
+## [2026-11-14] ingest | 十二感官：如何用健康的感官提升灵性 -> twelve-senses-steiner-soesman.md
