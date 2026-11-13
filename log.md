@@ -342,3 +342,4 @@
 ## [2026-11-13] ingest | 动物塔罗 -> 动物塔罗.md
 ## [2026-11-13] ingest | 动物灵气疗愈 -> dong-wu-ling-qi-liao-yu.md, ling-qi-ji-chu-yu-diao-pin.md
 ## [2026-11-13] ingest | 化解大法全书上 -> hua-jie-da-fa-quan-shu-shang.md
+## [2026-11-13] ingest | 化解大法全书下 -> hua-jie-da-fa-quan-shu-xia.md, zhu-you-shisan-ke.md, liu-jia-tian-shu.md
