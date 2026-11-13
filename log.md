@@ -358,3 +358,4 @@
 ## [2026-11-14] ingest | 十二星座恋爱密码 -> 十二星座恋爱密码.md, 星座恋爱心理成长框架.md
 ## [2026-11-14] ingest | 十二星座成功密码 -> 十二星座成功密码.md, 心理星相学职场应用框架.md, 英格丽星相学著作体系.md
 ## [2026-11-14] ingest | 十二星座首席爱情大师 -> twelve-zodiac-chief-love-master.md, zhanxing-shuji-mulu-yu-zhuti-daohang.md
+## [2026-11-14] ingest | 十分钟冥想 -> ming-xiang-gai-lun.md
