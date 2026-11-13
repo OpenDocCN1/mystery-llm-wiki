@@ -332,3 +332,4 @@
 ## [2026-11-13] ingest | 前世今生之回到当下 -> brian-weiss-many-lives-many-masters.md
 ## [2026-11-13] ingest | 前世今生爱未央 -> brian-weiss-only-love-is-real.md
 ## [2026-11-13] ingest | 前世今生：16堂生死启蒙课 -> brian-weiss-many-lives-many-masters.md
+## [2026-11-13] ingest | 劝学斋紫微初阶 -> ziwei-jie-ti-chu-jie.md, ziwei-doushu-an-xing-fa.md, chu-xue-ziwei-doushu.md
