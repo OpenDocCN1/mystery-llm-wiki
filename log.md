@@ -317,3 +317,4 @@
 ## [2026-11-13] ingest | 凤麟易理案例精解 -> fenglin-qimen-xiangyi-zheng-shu.md, yin-pan-qimen-paipan-shi-yi-bu.md, fenglin-qimen-bingli-shenzhao-jingjie.md
 ## [2026-11-13] ingest | 凤麟易理道家大六壬 -> fenglin-yinpan-liuren.md
 ## [2026-11-13] ingest | 凤麟易理阴盘奇门 -> yin-pan-qimen-paipan-shi-yi-bu.md, fenglin-qimen-xiangyi-zheng-shu.md, fenglin-yinpan-qimen-lilun.md
+## [2026-11-13] ingest | 凯尔特十字大辞典 -> 凯尔特十字牌阵大辞典.md, 经典塔罗牌阵详解.md
