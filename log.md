@@ -338,3 +338,4 @@
 ## [2026-11-13] ingest | 劝学斋紫微高阶之三 -> ziwei-gao-jie-zhi-san.md, ziwei-huopan-tiyong-he-luo.md, ziwei-sihua-xinli-shenxin.md
 ## [2026-11-13] ingest | 劝学斋紫微高阶之二 -> ziwei-gao-jie-zhi-er.md
 ## [2026-11-13] ingest | 劝学斋紫微高阶之五 -> 紫微高階之五-斗數人須知.md, 紫微斗數排盤真太陽時校正.md, 紫微斗數安星法.md
+## [2026-11-13] ingest | 劝学斋紫微高阶之四 -> ziwei-gao-jie-zhi-si.md, ziwei-gao-jie-zhi-san.md, ziwei-sihua-xinli-shenxin.md
