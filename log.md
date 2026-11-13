@@ -324,3 +324,4 @@
 ## [2026-11-13] ingest | 创造自己的神圣典礼 -> 创造自己的神圣典礼.md
 ## [2026-11-13] ingest | 创造金钱 -> chuang-zao-jin-qian-tong-wang-feng-yu-zhi-lu.md, 显化实践与专注力训练.md, 专注意念的惊人力量.md
 ## [2026-11-13] ingest | 初学六爻预测 -> liuyao-foundation-basics.md, wang-hu-ying.md
+## [2026-11-13] ingest | 初学紫微斗数 -> chu-xue-ziwei-doushu.md
