@@ -355,3 +355,4 @@
 ## [2026-11-14] ingest | 十二感官：如何用健康的感官提升灵性 -> twelve-senses-steiner-soesman.md
 ## [2026-11-14] ingest | 十二星座 -> han-lianglu-12-zodiac-planetary-interactions.md
 ## [2026-11-14] ingest | 十二星座居家配色宝典 -> 十二星座居家配色宝典.md, 占星书籍目录与主题导航.md
+## [2026-11-14] ingest | 十二星座恋爱密码 -> 十二星座恋爱密码.md, 星座恋爱心理成长框架.md
