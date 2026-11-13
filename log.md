@@ -331,3 +331,4 @@
 ## [2026-11-13] ingest | 前世今生 -> brian-weiss-many-lives-many-masters.md, 灵魂小组与集体出生前计划.md
 ## [2026-11-13] ingest | 前世今生之回到当下 -> brian-weiss-many-lives-many-masters.md
 ## [2026-11-13] ingest | 前世今生爱未央 -> brian-weiss-only-love-is-real.md
+## [2026-11-13] ingest | 前世今生：16堂生死启蒙课 -> brian-weiss-many-lives-many-masters.md
