@@ -386,3 +386,4 @@
 ## [2026-11-14] ingest | 占星学量子 -> liang-zi-zhan-xing-xue.md, zhanxing-tianwen-jichu-yu-huangdao-tixi.md, zhanxing-zhe-xue-ji-chu-bohm-hun-dun-jung.md
 ## [2026-11-14] ingest | 占星心理学与四元素 -> arroyo-astrology-psychology-four-elements.md, humanistic-astrology.md, zhanxing-shuji-mulu-yu-zhuti-daohang.md
 ## [2026-11-14] ingest | 占星扬升指南 -> zhanxing-yangsheng-zhinan.md, zhanxing-xingxing-tianwen-yu-yiyi.md, sasportas-twelve-houses.md
+## [2026-11-14] ingest | 占星流年 -> zhanxing-liu-nian-rudolf.md, zhanxing-yu-ce-ji-fa-ti-xi.md, zhanxing-shuji-mulu-yu-zhuti-daohang.md
