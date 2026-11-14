@@ -402,3 +402,4 @@
 ## [2026-11-15] ingest | 占星魔法学 -> zhanxing-mofa-benjamin-dykes.md
 ## [2026-11-15] ingest | 卡到阴 -> ka-yin-xian-xiang-yu-hua-jie.md, zheng-yi-dao-fu-zhou-xiu-xing-shi-wu.md, ming-li-shi-jia-chuan-cheng-yu-zao-ming-jin-dan.md
 ## [2026-11-15] ingest | 卡巴拉数字密码 -> kabbalah-numerology.md
+## [2026-11-15] ingest | 卢恩符文初学指南+应用入门 -> lunwen-fuwen-hexin-tixi.md, lunwen-24-fuwen-xiangjie.md, lunwen-fuwen-yingyong-duiying.md
