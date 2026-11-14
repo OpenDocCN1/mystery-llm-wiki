@@ -392,3 +392,4 @@
 ## [2026-11-14] ingest | 占星看天下 -> zhan-xing-kan-tian-xia.md, yuan-fang-li-ji.md, xing-zhan-xue-yu-tian-wen-xue-shi.md
 ## [2026-11-14] ingest | 占星笔记：给初学者找回真实自我的星盘分析 -> zhanxing-biji-zhaohui-zhenshi-ziji.md, zhanxing-shuji-mulu-yu-zhuti-daohang.md
 ## [2026-11-14] ingest | 占星纵横谈 -> zhanxing-shi-xing-san-wei.md, zhanxing-zhongjian-yuexing-12.md, zhanxing-zhongjian-xingzuo-xinli.md
+## [2026-11-14] ingest | 占星自学圣经 -> zhanxing-zixue-shengjing.md, zhanxing-shuji-mulu-yu-zhuti-daohang.md
