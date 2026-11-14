@@ -376,3 +376,4 @@
 ## [2026-11-14] ingest | 占星占心 -> zhan-xing-zhan-xin.md, classical-astrology-three-step-analysis.md, zhanxing-shuji-mulu-yu-zhuti-daohang.md
 ## [2026-11-14] ingest | 占星合盘的吸引力法则 -> han-lianglu-synastry-law-of-attraction.md, zhanxing-shuji-mulu-yu-zhuti-daohang.md, synastry-planets-in-houses.md
 ## [2026-11-14] ingest | 占星图形相位全书 -> zhanxing-tuxing-xiangwei-quanshu.md
+## [2026-11-14] ingest | 占星大师谈星座 -> 12星座人性攻略.md, 星座三原型与四正.md, 占星学方法论与太阳星座批判.md
