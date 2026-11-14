@@ -380,3 +380,4 @@
 ## [2026-11-14] ingest | 占星妈妈手册 -> han-lianglu-astrology-mom-handbook.md, twelve-zodiac-parenting-communication.md, ceres-asteroid-nurturing.md
 ## [2026-11-14] ingest | 占星学上 -> qin-ruisheng-shi-li-zhan-xing-di-yi-ce.md, zhanxing-shuji-mulu-yu-zhuti-daohang.md, zhanxing-zhe-xue-ji-chu-bohm-hun-dun-jung.md
 ## [2026-11-14] ingest | 占星学下 -> arabic-parts-and-fixed-stars.md, planetary-condition-traditional-astrology.md, zhanxing-quan-fang-wei.md
+## [2026-11-14] ingest | 占星学中的月亮 -> darby-costello-moon-in-astrology.md
