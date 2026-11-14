@@ -365,3 +365,4 @@
 ## [2026-11-14] ingest | 千里姻缘何处牵 -> han-lianglu-juno-marriage-asteroid.md, tian-xie-zuo-yuan-xing-neng-liang-ceng-ci.md, hun-shen-xing-jin-shen-xing-ai-shen-xing.md
 ## [2026-11-14] ingest | 升起你的灵性天线 -> shengqi-lingxing-tianxian.md, xianhua-shijian-yu-zhuanzhu-lianci.md, soham-healing-system.md
 ## [2026-11-14] ingest | 占卜 -> divination-fundamentals.md, pendulum-divination.md, 云占术.md
+## [2026-11-14] ingest | 占卜大全 -> divination-fundamentals.md, scott-cunningham-divination-compendium.md, divination-water-fire-candle-techniques.md
