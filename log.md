@@ -394,3 +394,4 @@
 ## [2026-11-14] ingest | 占星纵横谈 -> zhanxing-shi-xing-san-wei.md, zhanxing-zhongjian-yuexing-12.md, zhanxing-zhongjian-xingzuo-xinli.md
 ## [2026-11-14] ingest | 占星自学圣经 -> zhanxing-zixue-shengjing.md, zhanxing-shuji-mulu-yu-zhuti-daohang.md
 ## [2026-11-14] ingest | 占星芳疗 -> zhanxing-fang-liao-xi-tong.md
+## [2026-11-15] ingest | 占星解密 -> zhanxing-jiemi.md
