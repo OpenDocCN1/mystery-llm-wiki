@@ -360,3 +360,4 @@
 ## [2026-11-14] ingest | 十二星座首席爱情大师 -> twelve-zodiac-chief-love-master.md, zhanxing-shuji-mulu-yu-zhuti-daohang.md
 ## [2026-11-14] ingest | 十分钟冥想 -> ming-xiang-gai-lun.md
 ## [2026-11-14] ingest | 十神启示录：一柱论命泄天机 -> pan-le-de.md, shi-shen-qi-shi-lu.md, yi-zhu-lun-ming.md
+## [2026-11-14] ingest | 十神泄天机 -> shi-shen-xie-tian-ji.md, pan-le-de.md
