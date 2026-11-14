@@ -372,3 +372,4 @@
 ## [2026-11-14] ingest | 占星全书收藏版 -> zhanxing-quanshu-rudolf.md, zhanxing-tianwen-jichu-yu-huangdao-tixi.md, zhanxing-xingxing-tianwen-yu-yiyi.md
 ## [2026-11-14] ingest | 占星全方位 -> zhanxing-quan-fang-wei.md, zhanxing-shuji-mulu-yu-zhuti-daohang.md, zhanxing-shi-xing-san-wei.md
 ## [2026-11-14] ingest | 占星其实很简单1+2 -> zodiac-sign-correspondences.md, twenty-eight-lunar-mansions.md, astrology-made-simple-series.md
+## [2026-11-14] ingest | 占星十二宫位研究 -> sasportas-twelve-houses.md, zhanxing-shuji-mulu-yu-zhuti-daohang.md
