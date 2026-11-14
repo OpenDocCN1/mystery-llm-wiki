@@ -369,3 +369,4 @@
 ## [2026-11-14] ingest | 占星与震我 -> zhanxing-yu-zhen-wo.md, zheng-gong-zhi-yu-shier-gong-wei.md, planetary-condition-traditional-astrology.md
 ## [2026-11-14] ingest | 占星业力与转化 -> arroyo-astrology-karma-transformation.md, zhanxing-shuji-mulu-yu-zhuti-daohang.md
 ## [2026-11-14] ingest | 占星全书 -> zhanxing-quanshu-rudolf.md, xing-zhan-xue-yu-tian-wen-xue-shi.md, 黄道十二宫体系.md
+## [2026-11-14] ingest | 占星全书收藏版 -> zhanxing-quanshu-rudolf.md, zhanxing-tianwen-jichu-yu-huangdao-tixi.md, zhanxing-xingxing-tianwen-yu-yiyi.md
