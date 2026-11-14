@@ -389,3 +389,4 @@
 ## [2026-11-14] ingest | 占星流年 -> zhanxing-liu-nian-rudolf.md, zhanxing-yu-ce-ji-fa-ti-xi.md, zhanxing-shuji-mulu-yu-zhuti-daohang.md
 ## [2026-11-14] ingest | 占星玩家手册：深度命盘解释 -> astrology-chart-calculation-methods.md, aspect-interpretation-framework.md
 ## [2026-11-14] ingest | 占星相位研究 -> sue-tompkins-aspect-theory.md, aspect-interpretation-framework.md, minor-aspects-psychological-astrology.md
+## [2026-11-14] ingest | 占星看天下 -> zhan-xing-kan-tian-xia.md, yuan-fang-li-ji.md, xing-zhan-xue-yu-tian-wen-xue-shi.md
