@@ -401,3 +401,4 @@
 ## [2026-11-15] ingest | 占星魔法 -> 占星魔法-丹尼尔斯.md, 行星时与魔法择时实务.md
 ## [2026-11-15] ingest | 占星魔法学 -> zhanxing-mofa-benjamin-dykes.md
 ## [2026-11-15] ingest | 卡到阴 -> ka-yin-xian-xiang-yu-hua-jie.md, zheng-yi-dao-fu-zhou-xiu-xing-shi-wu.md, ming-li-shi-jia-chuan-cheng-yu-zao-ming-jin-dan.md
+## [2026-11-15] ingest | 卡巴拉数字密码 -> kabbalah-numerology.md
