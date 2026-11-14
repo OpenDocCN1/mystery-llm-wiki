@@ -406,3 +406,4 @@
 ## [2026-11-15] ingest | 卢恩符文占卜自学手册 -> lunwen-fuwen-hexin-tixi.md, lunwen-fuwen-yingyong-duiying.md, lunwen-24-fuwen-xiangjie.md
 ## [2026-11-15] ingest | 印加灵魂复原疗法 -> inca-soul-retrieval.md, shamanic-journeying-time.md, villoldo-chakra-system.md
 ## [2026-11-15] ingest | 印度占星学 -> indian-astrology-jyotish-overview.md, nakshatra-27-lunar-mansions.md, vargas-divisional-charts.md
+## [2026-11-15] ingest | 印度占星学入门 -> 印度占星学入门-洪能平.md, indian-astrology-jyotish-overview.md
