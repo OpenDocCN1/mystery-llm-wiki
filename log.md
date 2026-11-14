@@ -391,3 +391,4 @@
 ## [2026-11-14] ingest | 占星相位研究 -> sue-tompkins-aspect-theory.md, aspect-interpretation-framework.md, minor-aspects-psychological-astrology.md
 ## [2026-11-14] ingest | 占星看天下 -> zhan-xing-kan-tian-xia.md, yuan-fang-li-ji.md, xing-zhan-xue-yu-tian-wen-xue-shi.md
 ## [2026-11-14] ingest | 占星笔记：给初学者找回真实自我的星盘分析 -> zhanxing-biji-zhaohui-zhenshi-ziji.md, zhanxing-shuji-mulu-yu-zhuti-daohang.md
+## [2026-11-14] ingest | 占星纵横谈 -> zhanxing-shi-xing-san-wei.md, zhanxing-zhongjian-yuexing-12.md, zhanxing-zhongjian-xingzuo-xinli.md
