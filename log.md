@@ -367,3 +367,4 @@
 ## [2026-11-14] ingest | 占卜 -> divination-fundamentals.md, pendulum-divination.md, 云占术.md
 ## [2026-11-14] ingest | 占卜大全 -> divination-fundamentals.md, scott-cunningham-divination-compendium.md, divination-water-fire-candle-techniques.md
 ## [2026-11-14] ingest | 占星与震我 -> zhanxing-yu-zhen-wo.md, zheng-gong-zhi-yu-shier-gong-wei.md, planetary-condition-traditional-astrology.md
+## [2026-11-14] ingest | 占星业力与转化 -> arroyo-astrology-karma-transformation.md, zhanxing-shuji-mulu-yu-zhuti-daohang.md
