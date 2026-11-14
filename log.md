@@ -375,3 +375,4 @@
 ## [2026-11-14] ingest | 占星十二宫位研究 -> sasportas-twelve-houses.md, zhanxing-shuji-mulu-yu-zhuti-daohang.md
 ## [2026-11-14] ingest | 占星占心 -> zhan-xing-zhan-xin.md, classical-astrology-three-step-analysis.md, zhanxing-shuji-mulu-yu-zhuti-daohang.md
 ## [2026-11-14] ingest | 占星合盘的吸引力法则 -> han-lianglu-synastry-law-of-attraction.md, zhanxing-shuji-mulu-yu-zhuti-daohang.md, synastry-planets-in-houses.md
+## [2026-11-14] ingest | 占星图形相位全书 -> zhanxing-tuxing-xiangwei-quanshu.md
