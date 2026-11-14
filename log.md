@@ -396,3 +396,4 @@
 ## [2026-11-14] ingest | 占星芳疗 -> zhanxing-fang-liao-xi-tong.md
 ## [2026-11-15] ingest | 占星解密 -> zhanxing-jiemi.md
 ## [2026-11-15] ingest | 占星诗集 -> carmen-astrologicum-dorotheus.md, planetary-condition-traditional-astrology.md, arabic-parts-and-fixed-stars.md
+## [2026-11-15] ingest | 占星财富手册 -> han-lianglu-astrology-wealth-handbook.md
