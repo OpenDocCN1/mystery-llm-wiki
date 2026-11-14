@@ -404,3 +404,4 @@
 ## [2026-11-15] ingest | 卡巴拉数字密码 -> kabbalah-numerology.md
 ## [2026-11-15] ingest | 卢恩符文初学指南+应用入门 -> lunwen-fuwen-hexin-tixi.md, lunwen-24-fuwen-xiangjie.md, lunwen-fuwen-yingyong-duiying.md
 ## [2026-11-15] ingest | 卢恩符文占卜自学手册 -> lunwen-fuwen-hexin-tixi.md, lunwen-fuwen-yingyong-duiying.md, lunwen-24-fuwen-xiangjie.md
+## [2026-11-15] ingest | 印加灵魂复原疗法 -> inca-soul-retrieval.md, shamanic-journeying-time.md, villoldo-chakra-system.md
