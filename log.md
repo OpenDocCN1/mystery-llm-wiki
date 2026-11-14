@@ -398,3 +398,4 @@
 ## [2026-11-15] ingest | 占星诗集 -> carmen-astrologicum-dorotheus.md, planetary-condition-traditional-astrology.md, arabic-parts-and-fixed-stars.md
 ## [2026-11-15] ingest | 占星财富手册 -> han-lianglu-astrology-wealth-handbook.md
 ## [2026-11-15] ingest | 占星进阶辞典 -> rudolf-advanced-astrology-dictionary.md, arabic-parts-and-fixed-stars.md, draconic-chart.md
+## [2026-11-15] ingest | 占星魔法 -> 占星魔法-丹尼尔斯.md, 行星时与魔法择时实务.md
