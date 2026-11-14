@@ -382,3 +382,4 @@
 ## [2026-11-14] ingest | 占星学下 -> arabic-parts-and-fixed-stars.md, planetary-condition-traditional-astrology.md, zhanxing-quan-fang-wei.md
 ## [2026-11-14] ingest | 占星学中的月亮 -> darby-costello-moon-in-astrology.md
 ## [2026-11-14] ingest | 占星学全指引 -> zhanxue-quan-zhi-yin.md, planetary-condition-traditional-astrology.md
+## [2026-11-14] ingest | 占星学拾遗 -> 占星学拾遗.md, 占星书籍目录与主题导航.md
