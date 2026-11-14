@@ -387,3 +387,4 @@
 ## [2026-11-14] ingest | 占星心理学与四元素 -> arroyo-astrology-psychology-four-elements.md, humanistic-astrology.md, zhanxing-shuji-mulu-yu-zhuti-daohang.md
 ## [2026-11-14] ingest | 占星扬升指南 -> zhanxing-yangsheng-zhinan.md, zhanxing-xingxing-tianwen-yu-yiyi.md, sasportas-twelve-houses.md
 ## [2026-11-14] ingest | 占星流年 -> zhanxing-liu-nian-rudolf.md, zhanxing-yu-ce-ji-fa-ti-xi.md, zhanxing-shuji-mulu-yu-zhuti-daohang.md
+## [2026-11-14] ingest | 占星玩家手册：深度命盘解释 -> astrology-chart-calculation-methods.md, aspect-interpretation-framework.md
