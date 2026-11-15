@@ -408,3 +408,4 @@
 ## [2026-11-15] ingest | 印度占星学 -> indian-astrology-jyotish-overview.md, nakshatra-27-lunar-mansions.md, vargas-divisional-charts.md
 ## [2026-11-15] ingest | 印度占星学入门 -> 印度占星学入门-洪能平.md, indian-astrology-jyotish-overview.md
 ## [2026-11-15] ingest | 印度纳迪叶 -> nadi-leaf.md
+## [2026-11-15] ingest | 原来我还可以这样活 -> 辟穀與食氣主義.md, 身體能量系統與松果體激活.md
