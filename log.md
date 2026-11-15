@@ -413,3 +413,4 @@
 ## [2026-11-15] ingest | 参筹秘书（奇门） -> can-chou-mi-shu.md, qin-dun-ershiba-xiu-fenye.md, twenty-eight-lunar-mansions.md
 ## [2026-11-15] ingest | 发现天赋之旅 -> ken-robinson-element-theory.md, self-discovery-toolkit.md, barnum-effect-in-self-assessment.md
 ## [2026-11-15] ingest | 变幻的天空 -> bian-huan-de-tiankong.md, zhanxing-yu-ce-ji-fa-ti-xi.md
+## [2026-11-15] ingest | 变异三王星 -> sasportas-gods-of-change.md, outer-planet-transits-psychological-framework.md, saturn-uranus-myth-dialectic.md
