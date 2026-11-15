@@ -430,3 +430,4 @@
 ## [2026-11-15] ingest | 向光打开 -> guang-de-ke-cheng-xi-lie-1.md, guang-de-ke-cheng.md
 ## [2026-11-15] ingest | 向宇宙下订单 -> xiang-yu-zhou-xia-ding-dan.md
 ## [2026-11-15] ingest | 向老天爷借青春 -> xiang-lao-tian-ye-jie-qing-chun.md
+## [2026-11-15] ingest | 启动你内在的成功密码 -> oneness-university-bhagavan-teachings.md, breakthrough-triangle-success-psychology.md, universal-spiritual-laws-manifestation.md
