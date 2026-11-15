@@ -416,3 +416,4 @@
 ## [2026-11-15] ingest | 变异三王星 -> sasportas-gods-of-change.md, outer-planet-transits-psychological-framework.md, saturn-uranus-myth-dialectic.md
 ## [2026-11-15] ingest | 叙事塔罗 -> 叙事塔罗.md
 ## [2026-11-15] ingest | 古代神秘学院入门书 -> 你可以通灵.md, 人体能量场与超感知力.md, 中脉七轮.md
+## [2026-11-15] ingest | 古典医学占星 -> 古典医学占星-奥斯卡霍夫曼.md
