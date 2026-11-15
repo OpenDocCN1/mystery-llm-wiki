@@ -439,3 +439,4 @@
 ## [2026-11-15] ingest | 吸引力法则大全集 -> law-of-attraction-comprehensive-guide.md
 ## [2026-11-15] ingest | 吸引力法则心灵使用手册 -> michael-losier-law-of-attraction.md
 ## [2026-11-15] ingest | 吸引力法则：心想事成的秘密 -> abraham-hicks-law-of-attraction.md, law-of-attraction-comprehensive-guide.md, xianhua-shijian-yu-zhuanzhu-lianci.md
+## [2026-11-15] ingest | 吸引力法则：神奇的个人磁场效应 -> world-greatest-law-of-attraction.md
