@@ -442,3 +442,4 @@
 ## [2026-11-15] ingest | 吸引力法则：神奇的个人磁场效应 -> world-greatest-law-of-attraction.md
 ## [2026-11-15] ingest | 吸引力法则：让你成就财富、成功与健康的秘密法则 -> wallace-wattles-law-of-attraction.md
 ## [2026-11-15] ingest | 吸引力的漩涡 -> abraham-hicks-the-vortex.md, abraham-hicks-law-of-attraction.md
+## [2026-11-15] ingest | 吸财大法之横财秘术 -> li-juming-fengshui-gaiyun-xue.md, hua-jie-da-fa-quan-shu-shang.md
