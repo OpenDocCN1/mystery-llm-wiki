@@ -446,3 +446,4 @@
 ## [2026-11-15] ingest | 周纳羽实用阴盘奇门 -> zhou-nayu-yinpan-qimen.md, yin-pan-qimen-paipan-shi-yi-bu.md
 ## [2026-11-16] ingest | 周纳羽意识奇门速成心法 -> zhou-nayu-yinpan-qimen.md, zhou-nayu-sihai-huajie.md, yi-shi-qi-men-du-xiang-fa.md
 ## [2026-11-16] ingest | 咒术使用说明书 -> japanese-curse-arts.md
+## [2026-11-16] ingest | 咒语：下载宇宙能量的通关密码 -> buddhist-mantra-quantum-theory.md, nine-core-buddhist-mantras.md, mantra-chanting-four-steps-guide.md
