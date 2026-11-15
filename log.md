@@ -451,3 +451,4 @@
 ## [2026-11-16] ingest | 哥白尼问题上 -> westman-copernican-question.md, zhanxing-shuji-mulu-yu-zhuti-daohang.md
 ## [2026-11-16] ingest | 哥白尼问题下 -> westman-copernican-question.md
 ## [2026-11-16] ingest | 哺育喂养的亲密关系 -> ceres-asteroid-nurturing.md, four-asteroids-human-relationships.md, han-lianglu-astrology-mom-handbook.md
+## [2026-11-16] ingest | 商战与奇门 -> shang-zhan-yu-qi-men.md
