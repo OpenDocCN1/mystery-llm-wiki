@@ -419,3 +419,4 @@
 ## [2026-11-15] ingest | 古典医学占星 -> 古典医学占星-奥斯卡霍夫曼.md
 ## [2026-11-15] ingest | 古埃及亡灵书 -> ancient-egyptian-book-of-the-dead.md
 ## [2026-11-15] ingest | 古埃及的咒语 -> egyptian-mythological-legends.md, ai-rumor-detection-governance.md
+## [2026-11-15] ingest | 只要会呼吸，就能做冥想 -> zhi-yao-hui-hu-xi-jiu-neng-zuo-ming-xiang.md
