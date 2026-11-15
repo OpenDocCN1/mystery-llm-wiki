@@ -443,3 +443,4 @@
 ## [2026-11-15] ingest | 吸引力法则：让你成就财富、成功与健康的秘密法则 -> wallace-wattles-law-of-attraction.md
 ## [2026-11-15] ingest | 吸引力的漩涡 -> abraham-hicks-the-vortex.md, abraham-hicks-law-of-attraction.md
 ## [2026-11-15] ingest | 吸财大法之横财秘术 -> li-juming-fengshui-gaiyun-xue.md, hua-jie-da-fa-quan-shu-shang.md
+## [2026-11-15] ingest | 周纳羽实用阴盘奇门 -> zhou-nayu-yinpan-qimen.md, yin-pan-qimen-paipan-shi-yi-bu.md
