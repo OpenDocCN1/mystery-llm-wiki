@@ -447,3 +447,4 @@
 ## [2026-11-16] ingest | 周纳羽意识奇门速成心法 -> zhou-nayu-yinpan-qimen.md, zhou-nayu-sihai-huajie.md, yi-shi-qi-men-du-xiang-fa.md
 ## [2026-11-16] ingest | 咒术使用说明书 -> japanese-curse-arts.md
 ## [2026-11-16] ingest | 咒语：下载宇宙能量的通关密码 -> buddhist-mantra-quantum-theory.md, nine-core-buddhist-mantras.md, mantra-chanting-four-steps-guide.md
+## [2026-11-16] ingest | 咨商塔罗 -> consulting-tarot-framework.md, tarot-major-arcana-consulting-0-6.md, mingyun-shu-yu-shengri-jiedu.md
