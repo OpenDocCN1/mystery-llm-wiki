@@ -454,3 +454,4 @@
 ## [2026-11-16] ingest | 商战与奇门 -> shang-zhan-yu-qi-men.md
 ## [2026-11-16] ingest | 啊啰哈 -> zero-limits-hooponopono-system.md, unihilipi-inner-child.md, fifth-phrase-i-forgive-myself.md
 ## [2026-11-16] ingest | 喜悦之道 -> sanaya-roman-orin-path-of-joy.md, sanaya-roman-orin-teachings.md, chuang-zao-jin-qian-tong-wang-feng-yu-zhi-lu.md
+## [2026-11-16] ingest | 喜悦就是去拥抱生活 -> oneness-university-bhagavan-teachings.md, oneness-awareness-seeing-practice.md, oneness-relationship-energy-healing.md
