@@ -411,3 +411,4 @@
 ## [2026-11-15] ingest | 原来我还可以这样活 -> 辟穀與食氣主義.md, 身體能量系統與松果體激活.md
 ## [2026-11-15] ingest | 原生家庭木马快筛 -> 人类木马程序.md, 原生家庭木马三步驟破解法.md, 金錢木馬十八題自測.md
 ## [2026-11-15] ingest | 参筹秘书（奇门） -> can-chou-mi-shu.md, qin-dun-ershiba-xiu-fenye.md, twenty-eight-lunar-mansions.md
+## [2026-11-15] ingest | 发现天赋之旅 -> ken-robinson-element-theory.md, self-discovery-toolkit.md, barnum-effect-in-self-assessment.md
