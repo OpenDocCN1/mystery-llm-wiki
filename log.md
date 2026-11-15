@@ -423,3 +423,4 @@
 ## [2026-11-15] ingest | 召唤天使 -> zhao-huan-tian-shi-doreen-virtue.md
 ## [2026-11-15] ingest | 召唤奇迹的圆梦说话术 -> 一辈子活在成功里.md
 ## [2026-11-15] ingest | 召唤宇宙能量的幸运整理术 -> zhaohuan-yuzhou-nengliang-xingyun-zhengli-shu.md, xinli-shanghen-yu-zhengli-guanxi.md, fengshui-nengliang-quyu-ditu.md
+## [2026-11-15] ingest | 召唤金钱的魔法 -> 召唤金钱的魔法.md, 能量平衡.md, 人体能量场与超感知力.md
