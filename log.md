@@ -433,3 +433,4 @@
 ## [2026-11-15] ingest | 启动你内在的成功密码 -> oneness-university-bhagavan-teachings.md, breakthrough-triangle-success-psychology.md, universal-spiritual-laws-manifestation.md
 ## [2026-11-15] ingest | 启动灵感 -> seth-philosophy-jane-roberts.md, belief-creates-reality-practice.md
 ## [2026-11-15] ingest | 启动神秘疗愈能量 -> activating-mystical-healing-power.md, you-can-channel.md, soham-techniques-and-meridians.md
+## [2026-11-15] ingest | 吸引力法则 -> law-of-attraction-canfield.md, xianhua-shijian-yu-zhuanzhu-lianci.md
