@@ -418,3 +418,4 @@
 ## [2026-11-15] ingest | 古代神秘学院入门书 -> 你可以通灵.md, 人体能量场与超感知力.md, 中脉七轮.md
 ## [2026-11-15] ingest | 古典医学占星 -> 古典医学占星-奥斯卡霍夫曼.md
 ## [2026-11-15] ingest | 古埃及亡灵书 -> ancient-egyptian-book-of-the-dead.md
+## [2026-11-15] ingest | 古埃及的咒语 -> egyptian-mythological-legends.md, ai-rumor-detection-governance.md
