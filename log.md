@@ -434,3 +434,4 @@
 ## [2026-11-15] ingest | 启动灵感 -> seth-philosophy-jane-roberts.md, belief-creates-reality-practice.md
 ## [2026-11-15] ingest | 启动神秘疗愈能量 -> activating-mystical-healing-power.md, you-can-channel.md, soham-techniques-and-meridians.md
 ## [2026-11-15] ingest | 吸引力法则 -> law-of-attraction-canfield.md, xianhua-shijian-yu-zhuanzhu-lianci.md
+## [2026-11-15] ingest | 吸引力法则使用手册 -> james-ray-harmonic-wealth.md, law-of-attraction-canfield.md, xianhua-shijian-yu-zhuanzhu-lianci.md
