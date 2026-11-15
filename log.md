@@ -426,3 +426,4 @@
 ## [2026-11-15] ingest | 召唤金钱的魔法 -> 召唤金钱的魔法.md, 能量平衡.md, 人体能量场与超感知力.md
 ## [2026-11-15] ingest | 叶飘然大六壬讲义下 -> ye-piaoran-da-liu-ren-jiang-yi-xia.md
 ## [2026-11-15] ingest | 叶飘然大六壬讲义中 -> ye-piaoran-da-liu-ren-jiang-yi-geju-huizong.md
+## [2026-11-15] ingest | 叶鸿生：我用遁甲 -> ye-hongsheng-qi-men-dun-jia-ti-xi.md, ye-hongsheng-qi-men-yu-ce-yu-yong-shen.md, ye-hongsheng-qi-men-ji-chu-yu-qi-ju.md
