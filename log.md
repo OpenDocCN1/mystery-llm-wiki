@@ -422,3 +422,4 @@
 ## [2026-11-15] ingest | 只要会呼吸，就能做冥想 -> zhi-yao-hui-hu-xi-jiu-neng-zuo-ming-xiang.md
 ## [2026-11-15] ingest | 召唤天使 -> zhao-huan-tian-shi-doreen-virtue.md
 ## [2026-11-15] ingest | 召唤奇迹的圆梦说话术 -> 一辈子活在成功里.md
+## [2026-11-15] ingest | 召唤宇宙能量的幸运整理术 -> zhaohuan-yuzhou-nengliang-xingyun-zhengli-shu.md, xinli-shanghen-yu-zhengli-guanxi.md, fengshui-nengliang-quyu-ditu.md
