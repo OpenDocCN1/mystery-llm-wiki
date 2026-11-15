@@ -453,3 +453,4 @@
 ## [2026-11-16] ingest | 哺育喂养的亲密关系 -> ceres-asteroid-nurturing.md, four-asteroids-human-relationships.md, han-lianglu-astrology-mom-handbook.md
 ## [2026-11-16] ingest | 商战与奇门 -> shang-zhan-yu-qi-men.md
 ## [2026-11-16] ingest | 啊啰哈 -> zero-limits-hooponopono-system.md, unihilipi-inner-child.md, fifth-phrase-i-forgive-myself.md
+## [2026-11-16] ingest | 喜悦之道 -> sanaya-roman-orin-path-of-joy.md, sanaya-roman-orin-teachings.md, chuang-zao-jin-qian-tong-wang-feng-yu-zhi-lu.md
