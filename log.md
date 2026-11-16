@@ -459,3 +459,4 @@
 ## [2026-11-16] ingest | 四句话变幸福 -> zero-limits-hooponopono-system.md, hooponopono-cleaning-tools.md, unihilipi-inner-child.md
 ## [2026-11-16] ingest | 四大圣哲 -> four-great-sages.md, karl-jaspers.md, fu-peirong.md
 ## [2026-11-16] ingest | 四女神星 -> asteroid-goddesses-book.md, ceres-asteroid-nurturing.md, asteroid-goddesses-mandala.md
+## [2026-11-16] ingest | 四柱六爻应用透解 -> zhongguo-yixue-wenhua-chuancheng-jiedu-congshu.md, si-zhu-liu-yao-ying-yong-tou-jie.md
