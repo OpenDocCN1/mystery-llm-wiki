@@ -473,3 +473,4 @@
 ## [2026-11-16] ingest | 图解六壬大全二 -> liuren-shen-ke-daquan.md, liuren-twelve-generals.md, liuren-64-ke-jing.md
 ## [2026-11-16] ingest | 图解冥想 -> tu-jie-ming-xiang.md
 ## [2026-11-16] ingest | 图解北欧神话 -> 圖解北歐神話.md, 北歐神話概觀.md
+## [2026-11-16] ingest | 图解吸血鬼 -> vampire-mythology-lore.md, vampire-fiction-pop-culture.md
