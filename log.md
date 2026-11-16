@@ -468,3 +468,4 @@
 ## [2026-11-16] ingest | 图解中国家居生活百科1001问 -> tujie-zhongguo-jujia-shenghuo-baike-1001-wen.md
 ## [2026-11-16] ingest | 图解人类图 -> tujie-renlei-tu.md
 ## [2026-11-16] ingest | 图解克苏鲁神话 -> cthulhu-mythos-overview.md, cthulhu-mythos-deities.md, cthulhu-mythos-lore.md
+## [2026-11-16] ingest | 图解六壬大全一 -> liuren-shen-ke-daquan.md
