@@ -488,3 +488,4 @@
 ## [2026-11-17] ingest | 图解果老星宗上 -> guo-lao-xing-zong.md, chinese-star-divination.md
 ## [2026-11-17] ingest | 图解果老星宗下 -> chinese-star-divination.md, guo-lao-xing-zong.md, qi-zheng-si-yu-guo-lao.md
 ## [2026-11-17] ingest | 图解梅花易数 -> meihua-yishu.md
+## [2026-11-17] ingest | 图解水神与水精灵 -> water-spirits-deities-world-mythology.md
