@@ -462,3 +462,4 @@
 ## [2026-11-16] ingest | 四柱六爻应用透解 -> zhongguo-yixue-wenhua-chuancheng-jiedu-congshu.md, si-zhu-liu-yao-ying-yong-tou-jie.md
 ## [2026-11-16] ingest | 回到你的内在权威 -> huidao-nide-neizai-quanwei.md
 ## [2026-11-16] ingest | 回旋宇宙1 -> dolores-cannon-atlantis-revelations.md, atlantis-crystal-energy-technology.md, qhht-quantum-healing-hypnosis-technique.md
+## [2026-11-16] ingest | 回旋宇宙2上 -> qhht-quantum-healing-hypnosis-technique.md, dolores-cannon-atlantis-revelations.md, egyptian-cat-people-healing-temples.md
