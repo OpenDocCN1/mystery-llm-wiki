@@ -497,3 +497,4 @@
 ## [2026-11-17] ingest | 图解紫微斗数下推理卷 -> tu-jie-ziwei-doushu-xia-tui-li-juan.md, ziwei-doushu.md
 ## [2026-11-17] ingest | 图解象征占星学全书 -> tujie-xiangzheng-zhanxue-quanshu.md, astrology-made-simple-series.md, zhanxing-yu-ce-ji-fa-ti-xi.md
 ## [2026-11-17] ingest | 图解阴阳师 -> japanese-onmyodo.md, onmyoji-key-figures.md, onmyodo-techniques-rituals.md
+## [2026-11-17] ingest | 图解风水入门 -> tujie-fengshui-rumen.md
