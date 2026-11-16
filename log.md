@@ -466,3 +466,4 @@
 ## [2026-11-16] ingest | 回旋宇宙2中 -> convoluted-universe-2-apostles-sleep-work.md, dolores-cannon-atlantis-revelations.md
 ## [2026-11-16] ingest | 回旋宇宙——序曲光之灵 -> convoluted-universe-book-1.md, earth-et-history-cosmology.md, qhht-quantum-healing-hypnosis-technique.md
 ## [2026-11-16] ingest | 图解中国家居生活百科1001问 -> tujie-zhongguo-jujia-shenghuo-baike-1001-wen.md
+## [2026-11-16] ingest | 图解人类图 -> tujie-renlei-tu.md
