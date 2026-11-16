@@ -471,3 +471,4 @@
 ## [2026-11-16] ingest | 图解六壬大全一 -> liuren-shen-ke-daquan.md
 ## [2026-11-16] ingest | 图解六壬大全三 -> liuren-shen-ke-daquan.md, liuren-bifa-fu.md, liuren-shier-gong-fenye.md
 ## [2026-11-16] ingest | 图解六壬大全二 -> liuren-shen-ke-daquan.md, liuren-twelve-generals.md, liuren-64-ke-jing.md
+## [2026-11-16] ingest | 图解冥想 -> tu-jie-ming-xiang.md
