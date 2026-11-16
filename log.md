@@ -479,3 +479,4 @@
 ## [2026-11-16] ingest | 图解奇门遁甲大全三 -> tu-jie-qi-men-dun-jia-da-quan.md, qimen-dunjia-yin-dun-540-ju-xiang-jie.md, qimen-dunjia-history-applications.md
 ## [2026-11-16] ingest | 图解奇门遁甲大全二 -> tu-jie-qi-men-dun-jia-da-quan.md, qimen-dunjia-yang-dun-540-ju-xiang-jie.md
 ## [2026-11-16] ingest | 图解巴赫花精 -> bach-flower-remedies-illustrated.md, guang-liao-yang-liao-hua-jing-zheng-he-liao-fa.md, 中医整体芳疗.md
+## [2026-11-16] ingest | 图解恶魔学 -> christian-demonology.md, ceremonial-magic.md, abramelin-book.md
