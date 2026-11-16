@@ -494,3 +494,4 @@
 ## [2026-11-17] ingest | 图解第一次塔罗占卜就上手 -> tarot-jungian-framework.md, tarot-daily-journaling.md, tarot-major-arcana-consulting-0-6.md
 ## [2026-11-17] ingest | 图解第一次塔罗占卜就上手修订版 -> illustrated-first-tarot-reading-guide.md, tarot-daily-journaling.md, tarot-jungian-framework.md
 ## [2026-11-17] ingest | 图解紫微斗数上命理卷 -> 图解紫微斗数上命理卷.md, ziwei-doushu.md, 天干地支合冲化刑害.md
+## [2026-11-17] ingest | 图解紫微斗数下推理卷 -> tu-jie-ziwei-doushu-xia-tui-li-juan.md, ziwei-doushu.md
