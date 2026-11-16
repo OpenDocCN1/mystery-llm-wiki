@@ -491,3 +491,4 @@
 ## [2026-11-17] ingest | 图解水神与水精灵 -> water-spirits-deities-world-mythology.md
 ## [2026-11-17] ingest | 图解火神与火精灵 -> tujie-huo-shen-yu-huo-jing-ling.md, fire-mythology-beings.md, fire-element-history.md
 ## [2026-11-17] ingest | 图解炼金术 -> alchemy-comprehensive-guide.md
+## [2026-11-17] ingest | 图解第一次塔罗占卜就上手 -> tarot-jungian-framework.md, tarot-daily-journaling.md, tarot-major-arcana-consulting-0-6.md
