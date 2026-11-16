@@ -467,3 +467,4 @@
 ## [2026-11-16] ingest | 回旋宇宙——序曲光之灵 -> convoluted-universe-book-1.md, earth-et-history-cosmology.md, qhht-quantum-healing-hypnosis-technique.md
 ## [2026-11-16] ingest | 图解中国家居生活百科1001问 -> tujie-zhongguo-jujia-shenghuo-baike-1001-wen.md
 ## [2026-11-16] ingest | 图解人类图 -> tujie-renlei-tu.md
+## [2026-11-16] ingest | 图解克苏鲁神话 -> cthulhu-mythos-overview.md, cthulhu-mythos-deities.md, cthulhu-mythos-lore.md
