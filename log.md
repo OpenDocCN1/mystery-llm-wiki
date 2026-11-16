@@ -469,3 +469,4 @@
 ## [2026-11-16] ingest | 图解人类图 -> tujie-renlei-tu.md
 ## [2026-11-16] ingest | 图解克苏鲁神话 -> cthulhu-mythos-overview.md, cthulhu-mythos-deities.md, cthulhu-mythos-lore.md
 ## [2026-11-16] ingest | 图解六壬大全一 -> liuren-shen-ke-daquan.md
+## [2026-11-16] ingest | 图解六壬大全三 -> liuren-shen-ke-daquan.md, liuren-bifa-fu.md, liuren-shier-gong-fenye.md
