@@ -483,3 +483,4 @@
 ## [2026-11-16] ingest | 图解日本神话 -> japanese-mythology-sources-and-cosmology.md, japanese-creation-myths-izanagi-izanami.md, japanese-major-kami-myths.md
 ## [2026-11-17] ingest | 图解易经中的数学梅花易数 -> meihua-yishu.md, shao-yong.md, najia-fa.md
 ## [2026-11-17] ingest | 图解星学大成一 -> xingxue-dacheng.md, chinese-star-divination.md
+## [2026-11-17] ingest | 图解星学大成三 -> chinese-star-divination.md, xingxue-dacheng.md
