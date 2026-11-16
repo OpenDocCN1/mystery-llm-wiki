@@ -485,3 +485,4 @@
 ## [2026-11-17] ingest | 图解星学大成一 -> xingxue-dacheng.md, chinese-star-divination.md
 ## [2026-11-17] ingest | 图解星学大成三 -> chinese-star-divination.md, xingxue-dacheng.md
 ## [2026-11-17] ingest | 图解星学大成二 -> xingxue-dacheng.md, chinese-star-divination.md
+## [2026-11-17] ingest | 图解果老星宗上 -> guo-lao-xing-zong.md, chinese-star-divination.md
