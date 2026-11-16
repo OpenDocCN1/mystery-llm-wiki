@@ -476,3 +476,4 @@
 ## [2026-11-16] ingest | 图解吸血鬼 -> vampire-mythology-lore.md, vampire-fiction-pop-culture.md
 ## [2026-11-16] ingest | 图解天国与地狱 -> tujie-tianguo-yu-diyu.md, ancient-egyptian-book-of-the-dead.md, ancient-egyptian-mythological-legends.md
 ## [2026-11-16] ingest | 图解奇门遁甲大全一 -> qimen-dunjia-fundamentals.md, tu-jie-qi-men-dun-jia-da-quan.md
+## [2026-11-16] ingest | 图解奇门遁甲大全三 -> tu-jie-qi-men-dun-jia-da-quan.md, qimen-dunjia-yin-dun-540-ju-xiang-jie.md, qimen-dunjia-history-applications.md
