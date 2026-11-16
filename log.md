@@ -481,3 +481,4 @@
 ## [2026-11-16] ingest | 图解巴赫花精 -> bach-flower-remedies-illustrated.md, guang-liao-yang-liao-hua-jing-zheng-he-liao-fa.md, 中医整体芳疗.md
 ## [2026-11-16] ingest | 图解恶魔学 -> christian-demonology.md, ceremonial-magic.md, abramelin-book.md
 ## [2026-11-16] ingest | 图解日本神话 -> japanese-mythology-sources-and-cosmology.md, japanese-creation-myths-izanagi-izanami.md, japanese-major-kami-myths.md
+## [2026-11-17] ingest | 图解易经中的数学梅花易数 -> meihua-yishu.md, shao-yong.md, najia-fa.md
