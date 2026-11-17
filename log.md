@@ -511,3 +511,4 @@
 ## [2026-11-17] ingest | 地球之赋：来自盖娅的灵讯 -> pamela-kribbe-gaia-channelings.md, soul-embodiment-grounding-process.md, human-animal-spiritual-partnership.md
 ## [2026-11-17] ingest | 地球守护者 -> dolores-cannon-custodians.md, earth-et-history-cosmology.md, qhht-quantum-healing-hypnosis-technique.md
 ## [2026-11-17] ingest | 埃及塔罗大阿卡那部分 -> egyptian-hermetic-tarot-history.md, egyptian-magic-amulets.md, ancient-egyptian-mythological-legends.md
+## [2026-11-17] ingest | 基因天命 -> gene-keys.md, gene-keys-golden-path.md, iching-dna-gene-keys.md
