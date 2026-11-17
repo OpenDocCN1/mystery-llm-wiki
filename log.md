@@ -507,3 +507,4 @@
 ## [2026-11-17] ingest | 在阿卡西记录中发现你的灵魂道路 -> a-ka-xi-ji-lu-ti-xi-yu-yu-zhou-a-ka-xi-qi-dao-wen.md, da-kai-yu-guan-bi-a-ka-xi-ji-lu-zhi-nan.md, linda-howe-five-pillars-consciousness.md
 ## [2026-11-17] ingest | 地心文明桃乐市1第五次元拉姆妮亚的扬升之道 -> telos-adama-teachings.md, lemuria-civilization-history.md, agartha-network-cities.md
 ## [2026-11-17] ingest | 地心文明桃乐市2人类扬升的光启之道 -> telos-adama-teachings.md, agartha-network-cities.md, recreational-drugs-spiritual-impact.md
+## [2026-11-17] ingest | 地心文明桃乐市3第五次元协定：与神合一之道 -> telos-adama-teachings.md, agartha-network-cities.md, lemuria-civilization-history.md
