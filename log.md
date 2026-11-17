@@ -518,3 +518,4 @@
 ## [2026-11-17] ingest | 塔罗三昧 -> tarot-sanmei-system.md
 ## [2026-11-17] ingest | 塔罗与占星 -> tarot-astrology-golden-dawn-correspondences.md
 ## [2026-11-17] ingest | 塔罗与心灵沟通 -> tarot-mind-communication-zhihuiguo.md
+## [2026-11-17] ingest | 塔罗之书解牌字典 -> tarot-major-arcana-consulting-0-6.md, illustrated-first-tarot-reading-guide.md
