@@ -510,3 +510,4 @@
 ## [2026-11-17] ingest | 地心文明桃乐市3第五次元协定：与神合一之道 -> telos-adama-teachings.md, agartha-network-cities.md, lemuria-civilization-history.md
 ## [2026-11-17] ingest | 地球之赋：来自盖娅的灵讯 -> pamela-kribbe-gaia-channelings.md, soul-embodiment-grounding-process.md, human-animal-spiritual-partnership.md
 ## [2026-11-17] ingest | 地球守护者 -> dolores-cannon-custodians.md, earth-et-history-cosmology.md, qhht-quantum-healing-hypnosis-technique.md
+## [2026-11-17] ingest | 埃及塔罗大阿卡那部分 -> egyptian-hermetic-tarot-history.md, egyptian-magic-amulets.md, ancient-egyptian-mythological-legends.md
