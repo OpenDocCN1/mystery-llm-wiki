@@ -502,3 +502,4 @@
 ## [2026-11-17] ingest | 图解魔导书 -> ceremonial-magic.md, christian-demonology.md, grimoire-comprehensive-guide.md
 ## [2026-11-17] ingest | 图解魔法知识 -> magic-classification-fundamentals.md, frazer-sympathetic-magic.md, ceremonial-magic.md
 ## [2026-11-17] ingest | 土星 -> liz-greene-saturn-new-look-old-devil.md
+## [2026-11-17] ingest | 土系魔法 -> tu-xi-mo-fa.md, tu-yuan-su-mo-fa-ti-xi.md, tu-xi-shen-hua-cun-you-yu-tu-yuan-su-shen-ming.md
