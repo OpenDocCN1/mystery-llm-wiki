@@ -515,3 +515,4 @@
 ## [2026-11-17] ingest | 基因天命转化卡64张 -> gene-keys.md, gene-keys-golden-path.md, iching-dna-gene-keys.md
 ## [2026-11-17] ingest | 基督教占星学 -> christian-astrology-william-lilly.md
 ## [2026-11-17] ingest | 基础占星 -> ji-chu-zhan-xing-essential-astrology.md, zhanxing-shuji-mulu-yu-zhuti-daohang.md
+## [2026-11-17] ingest | 塔罗三昧 -> tarot-sanmei-system.md
