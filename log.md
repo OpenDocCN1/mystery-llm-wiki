@@ -501,3 +501,4 @@
 ## [2026-11-17] ingest | 图解魔女魔法使事典 -> tujie-monv-mofashi-shidian.md, witch-folklore-tools.md, maleficium.md
 ## [2026-11-17] ingest | 图解魔导书 -> ceremonial-magic.md, christian-demonology.md, grimoire-comprehensive-guide.md
 ## [2026-11-17] ingest | 图解魔法知识 -> magic-classification-fundamentals.md, frazer-sympathetic-magic.md, ceremonial-magic.md
+## [2026-11-17] ingest | 土星 -> liz-greene-saturn-new-look-old-devil.md
