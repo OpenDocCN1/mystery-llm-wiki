@@ -508,3 +508,4 @@
 ## [2026-11-17] ingest | 地心文明桃乐市1第五次元拉姆妮亚的扬升之道 -> telos-adama-teachings.md, lemuria-civilization-history.md, agartha-network-cities.md
 ## [2026-11-17] ingest | 地心文明桃乐市2人类扬升的光启之道 -> telos-adama-teachings.md, agartha-network-cities.md, recreational-drugs-spiritual-impact.md
 ## [2026-11-17] ingest | 地心文明桃乐市3第五次元协定：与神合一之道 -> telos-adama-teachings.md, agartha-network-cities.md, lemuria-civilization-history.md
+## [2026-11-17] ingest | 地球之赋：来自盖娅的灵讯 -> pamela-kribbe-gaia-channelings.md, soul-embodiment-grounding-process.md, human-animal-spiritual-partnership.md
