@@ -520,3 +520,4 @@
 ## [2026-11-17] ingest | 塔罗与心灵沟通 -> tarot-mind-communication-zhihuiguo.md
 ## [2026-11-17] ingest | 塔罗之书解牌字典 -> tarot-major-arcana-consulting-0-6.md, illustrated-first-tarot-reading-guide.md
 ## [2026-11-17] ingest | 塔罗之眼（全兩册） -> tarot-eye-two-volumes.md, 天空为限老师.md
+## [2026-11-17] ingest | 塔罗九章 -> tarot-nine-chapters.md, tarot-major-arcana-consulting-0-6.md, tarot-sanmei-system.md
