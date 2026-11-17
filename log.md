@@ -523,3 +523,4 @@
 ## [2026-11-17] ingest | 塔罗九章 -> tarot-nine-chapters.md, tarot-major-arcana-consulting-0-6.md, tarot-sanmei-system.md
 ## [2026-11-17] ingest | 塔罗事典 -> illustrated-first-tarot-reading-guide.md, tarot-index-quick-reference.md, tarot-spreads-fundamentals.md
 ## [2026-11-17] ingest | 塔罗入门 -> learning-the-tarot-joan-bunning.md, tarot-spreads-fundamentals.md, tarot-daily-journaling.md
+## [2026-11-17] ingest | 塔罗入门十九堂课 -> learning-the-tarot-joan-bunning.md, tarot-spreads-fundamentals.md, tarot-daily-journaling.md
