@@ -513,3 +513,4 @@
 ## [2026-11-17] ingest | 埃及塔罗大阿卡那部分 -> egyptian-hermetic-tarot-history.md, egyptian-magic-amulets.md, ancient-egyptian-mythological-legends.md
 ## [2026-11-17] ingest | 基因天命 -> gene-keys.md, gene-keys-golden-path.md, iching-dna-gene-keys.md
 ## [2026-11-17] ingest | 基因天命转化卡64张 -> gene-keys.md, gene-keys-golden-path.md, iching-dna-gene-keys.md
+## [2026-11-17] ingest | 基督教占星学 -> christian-astrology-william-lilly.md
