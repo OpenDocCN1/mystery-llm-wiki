@@ -504,3 +504,4 @@
 ## [2026-11-17] ingest | 土星 -> liz-greene-saturn-new-look-old-devil.md
 ## [2026-11-17] ingest | 土系魔法 -> tu-xi-mo-fa.md, tu-yuan-su-mo-fa-ti-xi.md, tu-xi-shen-hua-cun-you-yu-tu-yuan-su-shen-ming.md
 ## [2026-11-17] ingest | 在觉知中创造的十大法则 -> kirael-ten-principles-conscious-creation.md
+## [2026-11-17] ingest | 在阿卡西记录中发现你的灵魂道路 -> a-ka-xi-ji-lu-ti-xi-yu-yu-zhou-a-ka-xi-qi-dao-wen.md, da-kai-yu-guan-bi-a-ka-xi-ji-lu-zhi-nan.md, linda-howe-five-pillars-consciousness.md
