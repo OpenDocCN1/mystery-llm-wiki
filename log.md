@@ -525,3 +525,4 @@
 ## [2026-11-17] ingest | 塔罗入门 -> learning-the-tarot-joan-bunning.md, tarot-spreads-fundamentals.md, tarot-daily-journaling.md
 ## [2026-11-17] ingest | 塔罗入门十九堂课 -> learning-the-tarot-joan-bunning.md, tarot-spreads-fundamentals.md, tarot-daily-journaling.md
 ## [2026-11-17] ingest | 塔罗入门指南 -> easy-tarot-lessons.md, learning-the-tarot-joan-bunning.md, tarot-spreads-fundamentals.md
+## [2026-11-17] ingest | 塔罗入门经典牌阵 -> tarot-classic-spreads-daniel.md, tarot-spreads-fundamentals.md, consulting-tarot-framework.md
